@@ -1,4 +1,4 @@
-#### 20220726 萨卢姆三角洲国家公园的红树林，塞内加尔共和国 (© mariusz_prusaczyk/Getty Images)
+#### 20220726 Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)
 
 ![](20220726_MangroveDay_1920x1080.jpg)
 

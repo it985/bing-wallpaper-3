@@ -1,4 +1,4 @@
-#### 20220726 萨卢姆三角洲国家公园的红树林，塞内加尔共和国 (© mariusz_prusaczyk/Getty Images)
+#### 20220726 Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)
 
 ![](images/2022-07/20220726_MangroveDay_1920x1080.jpg)
 
@@ -6,7 +6,7 @@
 
 ![](images/2022-07/20220725_MGRBrighton_1920x1080.jpg)
 
-#### 20220725 Dolbadarn Castle, Llanberis Pass, Wales (© Viktoria Rodriguez/Getty Images)
+#### 20220725 兰贝里斯山口脚下的多尔巴达恩城堡，威尔士 (© Viktoria Rodriguez/Getty Images)
 
 ![](images/2022-07/20220725_DolbadarnCastle_1920x1080.jpg)
 
@@ -30,15 +30,15 @@
 
 ![](images/2022-07/20220723_FoxgloveHawkmoth_1920x1080.jpg)
 
-#### 20220722 Our Lady of the Rocks, Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)
+#### 20220722 Our Lady of the Rocks and Saint George Island in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)
 
 ![](images/2022-07/20220722_SGIMontenegro_1920x1080.jpg)
 
-#### 20220721 Abbey Gardens, Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)
+#### 20220721 Abbey Gardens in Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)
 
 ![](images/2022-07/20220721_AbbeyGardens_1920x1080.jpg)
 
-#### 20220720 Phases of the Moon (© Delpixart/Getty Images)
+#### 20220720 Composite photo showing the phases of the moon (© Delpixart/Getty Images)
 
 ![](images/2022-07/20220720_MoonPhases_1920x1080.jpg)
 
@@ -46,7 +46,7 @@
 
 ![](images/2022-07/20220719_YellowstoneBison_1920x1080.jpg)
 
-#### 20220719 Two Jack Lake, Banff National Park, Alberta, Canada (© SnapRapid/Offset)
+#### 20220719 Two Jack Lake, Banff National Park, Alberta (© SnapRapid/Offset)
 
 ![](images/2022-07/20220719_TwoJackLake_1920x1080.jpg)
 
@@ -54,7 +54,7 @@
 
 ![](images/2022-07/20220719_StPaul_1920x1080.jpg)
 
-#### 20220719 Fraueninsel island, Chiemsee, Bavaria, Germany (© Malorny/Getty Images)
+#### 20220719 基姆湖上的淑女岛，德国巴伐利亚州 (© Malorny/Getty Images)
 
 ![](images/2022-07/20220719_FraueninselChiemsee_1920x1080.jpg)
 
