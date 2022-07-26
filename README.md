@@ -1,3 +1,7 @@
+#### 20220727 玛甸沙勒（也被称为黑格拉）的纳巴泰墓，沙特阿拉伯 (© Tuul & Bruno Morandi/Getty Images)
+
+![](images/2022-07/20220727_NabateanTomb_1920x1080.jpg)
+
 #### 20220726 Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)
 
 ![](images/2022-07/20220726_MangroveDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220719 Allée fleurie à Saint-Paul-de-Vence, Alpes Maritimes, Provence-Alpes-Côte-D’azur (© Susanne Kremer/Huber/eStock Photo)
 
 ![](images/2022-07/20220719_StPaul_1920x1080.jpg)
-
-#### 20220719 基姆湖上的淑女岛，德国巴伐利亚州 (© Malorny/Getty Images)
-
-![](images/2022-07/20220719_FraueninselChiemsee_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20220727 玛甸沙勒（也被称为黑格拉）的纳巴泰墓，沙特阿拉伯 (© Tuul & Bruno Morandi/Getty Images)
+
+![](20220727_NabateanTomb_1920x1080.jpg)
+
 #### 20220726 Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)
 
 ![](20220726_MangroveDay_1920x1080.jpg)
