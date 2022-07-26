@@ -6,7 +6,7 @@
 
 ![](images/2022-07/20220725_MGRBrighton_1920x1080.jpg)
 
-#### 20220725 兰贝里斯山口脚下的多尔巴达恩城堡，威尔士 (© Viktoria Rodriguez/Getty Images)
+#### 20220725 Dolbadarn Castle, Llanberis Pass, Wales (© Viktoria Rodriguez/Getty Images)
 
 ![](images/2022-07/20220725_DolbadarnCastle_1920x1080.jpg)
 
@@ -30,15 +30,15 @@
 
 ![](images/2022-07/20220723_FoxgloveHawkmoth_1920x1080.jpg)
 
-#### 20220722 Our Lady of the Rocks and Saint George Island in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)
+#### 20220722 Our Lady of the Rocks, Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)
 
 ![](images/2022-07/20220722_SGIMontenegro_1920x1080.jpg)
 
-#### 20220721 Abbey Gardens in Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)
+#### 20220721 Abbey Gardens, Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)
 
 ![](images/2022-07/20220721_AbbeyGardens_1920x1080.jpg)
 
-#### 20220720 Composite photo showing the phases of the moon (© Delpixart/Getty Images)
+#### 20220720 Phases of the Moon (© Delpixart/Getty Images)
 
 ![](images/2022-07/20220720_MoonPhases_1920x1080.jpg)
 
@@ -46,7 +46,7 @@
 
 ![](images/2022-07/20220719_YellowstoneBison_1920x1080.jpg)
 
-#### 20220719 Two Jack Lake, Banff National Park, Alberta (© SnapRapid/Offset)
+#### 20220719 Two Jack Lake, Banff National Park, Alberta, Canada (© SnapRapid/Offset)
 
 ![](images/2022-07/20220719_TwoJackLake_1920x1080.jpg)
 
@@ -54,7 +54,7 @@
 
 ![](images/2022-07/20220719_StPaul_1920x1080.jpg)
 
-#### 20220719 基姆湖上的淑女岛，德国巴伐利亚州 (© Malorny/Getty Images)
+#### 20220719 Fraueninsel island, Chiemsee, Bavaria, Germany (© Malorny/Getty Images)
 
 ![](images/2022-07/20220719_FraueninselChiemsee_1920x1080.jpg)
 
@@ -68,7 +68,7 @@
 
 - 2022&emsp;&emsp;[07](images/2022-07/README.md) &emsp;&emsp;[06](images/2022-06/README.md) &emsp;&emsp;[05](images/2022-05/README.md) &emsp;&emsp;[04](images/2022-04/README.md) &emsp;&emsp;[03](images/2022-03/README.md) &emsp;&emsp;[02](images/2022-02/README.md) &emsp;&emsp;[01](images/2022-01/README.md) 
 
-- 2021&emsp;&emsp;[12](images/2021-12/README.md) &emsp;&emsp;[11](images/2021-11/README.md) &emsp;&emsp;[10](images/2021-10/README.md) &emsp;&emsp;[09](images/2021-09/README.md) &emsp;&emsp;[08](images/2021-08/README.md) &emsp;&emsp;[07](images/2021-07/README.md) &emsp;&emsp;[06](images/2021-06/README.md) &emsp;&emsp;[05](images/2021-05/README.md) &emsp;&emsp;[04](images/2021-04/README.md) &emsp;&emsp;[03](images/2021-03/README.md) &emsp;&emsp;[02](images/2021-02/README.md) &emsp;&emsp;[01](images/2021-01/README.md) 
+- 2021&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-01/README.md) 
 
 - 2020&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2020/images/2020-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2020/images/2020-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2020/images/2020-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2020/images/2020-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2020/images/2020-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2020/images/2020-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2020/images/2020-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2020/images/2020-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2020/images/2020-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2020/images/2020-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2020/images/2020-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2020/images/2020-01/README.md) 
 
