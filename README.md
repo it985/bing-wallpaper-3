@@ -1,3 +1,7 @@
+#### 20220728 落基山国家公园的朗斯峰，科罗拉多州 (© Andrew R. Slaton/Tandem Stills + Motion)
+
+![](images/2022-07/20220728_LongsPeak_1920x1080.jpg)
+
 #### 20220727 Nabataean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)
 
 ![](images/2022-07/20220727_NabateanTomb_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220719 Two Jack Lake, Banff National Park, Alberta (© SnapRapid/Offset)
 
 ![](images/2022-07/20220719_TwoJackLake_1920x1080.jpg)
-
-#### 20220719 Allée fleurie à Saint-Paul-de-Vence, Alpes Maritimes, Provence-Alpes-Côte-D’azur (© Susanne Kremer/Huber/eStock Photo)
-
-![](images/2022-07/20220719_StPaul_1920x1080.jpg)
 
 
 

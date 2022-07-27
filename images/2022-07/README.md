@@ -1,3 +1,7 @@
+#### 20220728 落基山国家公园的朗斯峰，科罗拉多州 (© Andrew R. Slaton/Tandem Stills + Motion)
+
+![](20220728_LongsPeak_1920x1080.jpg)
+
 #### 20220727 Nabataean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)
 
 ![](20220727_NabateanTomb_1920x1080.jpg)
