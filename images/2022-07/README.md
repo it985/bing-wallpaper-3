@@ -1,4 +1,4 @@
-#### 20220727 玛甸沙勒（也被称为黑格拉）的纳巴泰墓，沙特阿拉伯 (© Tuul & Bruno Morandi/Getty Images)
+#### 20220727 Nabataean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)
 
 ![](20220727_NabateanTomb_1920x1080.jpg)
 
