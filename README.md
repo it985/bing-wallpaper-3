@@ -1,3 +1,7 @@
+#### 20220728 Shot of rocks in water in Tobermory, Ontario (© Reese Lassman/EyeEm/Getty Images)
+
+![](images/2022-07/20220728_TobermoryRocks_1920x1080.jpg)
+
 #### 20220728 Eichen in einem Rapsfeld bei aufziehendem Gewitter, Sachsen-Anhalt (© mauritius images GmbH/Alamy Stock Photo)
 
 ![](images/2022-07/20220728_RapsEichen_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220720 Composite photo showing the phases of the moon (© Delpixart/Getty Images)
 
 ![](images/2022-07/20220720_MoonPhases_1920x1080.jpg)
-
-#### 20220719 Male American bison in Yellowstone National Park, Wyoming (© Donyanedomam/Getty Images)
-
-![](images/2022-07/20220719_YellowstoneBison_1920x1080.jpg)
 
 
 

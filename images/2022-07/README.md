@@ -1,3 +1,7 @@
+#### 20220728 Shot of rocks in water in Tobermory, Ontario (© Reese Lassman/EyeEm/Getty Images)
+
+![](20220728_TobermoryRocks_1920x1080.jpg)
+
 #### 20220728 Eichen in einem Rapsfeld bei aufziehendem Gewitter, Sachsen-Anhalt (© mauritius images GmbH/Alamy Stock Photo)
 
 ![](20220728_RapsEichen_1920x1080.jpg)
