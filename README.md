@@ -1,3 +1,7 @@
+#### 20220729 塔多巴老虎保护区里的老虎四姐妹，印度 (© Ashish Parmar/Alamy)
+
+![](images/2022-07/20220729_FourTigresses_1920x1080.jpg)
+
 #### 20220728 Shot of rocks in water in Tobermory, Ontario (© Reese Lassman/EyeEm/Getty Images)
 
 ![](images/2022-07/20220728_TobermoryRocks_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220721 Abbey Gardens in Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)
 
 ![](images/2022-07/20220721_AbbeyGardens_1920x1080.jpg)
-
-#### 20220720 Composite photo showing the phases of the moon (© Delpixart/Getty Images)
-
-![](images/2022-07/20220720_MoonPhases_1920x1080.jpg)
 
 
 
