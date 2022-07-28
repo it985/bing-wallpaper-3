@@ -1,3 +1,7 @@
+#### 20220728 Eichen in einem Rapsfeld bei aufziehendem Gewitter, Sachsen-Anhalt (© mauritius images GmbH/Alamy Stock Photo)
+
+![](images/2022-07/20220728_RapsEichen_1920x1080.jpg)
+
 #### 20220728 落基山国家公园的朗斯峰，科罗拉多州 (© Andrew R. Slaton/Tandem Stills + Motion)
 
 ![](images/2022-07/20220728_LongsPeak_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220719 Male American bison in Yellowstone National Park, Wyoming (© Donyanedomam/Getty Images)
 
 ![](images/2022-07/20220719_YellowstoneBison_1920x1080.jpg)
-
-#### 20220719 Two Jack Lake, Banff National Park, Alberta (© SnapRapid/Offset)
-
-![](images/2022-07/20220719_TwoJackLake_1920x1080.jpg)
 
 
 

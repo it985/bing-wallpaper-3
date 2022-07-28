@@ -1,3 +1,7 @@
+#### 20220728 Eichen in einem Rapsfeld bei aufziehendem Gewitter, Sachsen-Anhalt (© mauritius images GmbH/Alamy Stock Photo)
+
+![](20220728_RapsEichen_1920x1080.jpg)
+
 #### 20220728 落基山国家公园的朗斯峰，科罗拉多州 (© Andrew R. Slaton/Tandem Stills + Motion)
 
 ![](20220728_LongsPeak_1920x1080.jpg)
