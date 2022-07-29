@@ -1,3 +1,7 @@
+#### 20220730 米尔福德峡湾附近的徒步雨林，新西兰 (© Jim Patterson/Tandem Stills + Motion)
+
+![](images/2022-07/20220730_FiordlandRainforest_1920x1080.jpg)
+
 #### 20220729 Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)
 
 ![](images/2022-07/20220729_FourTigresses_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220722 Our Lady of the Rocks and Saint George Island in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)
 
 ![](images/2022-07/20220722_SGIMontenegro_1920x1080.jpg)
-
-#### 20220721 Abbey Gardens in Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)
-
-![](images/2022-07/20220721_AbbeyGardens_1920x1080.jpg)
 
 
 

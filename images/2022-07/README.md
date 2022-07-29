@@ -1,3 +1,7 @@
+#### 20220730 米尔福德峡湾附近的徒步雨林，新西兰 (© Jim Patterson/Tandem Stills + Motion)
+
+![](20220730_FiordlandRainforest_1920x1080.jpg)
+
 #### 20220729 Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)
 
 ![](20220729_FourTigresses_1920x1080.jpg)
