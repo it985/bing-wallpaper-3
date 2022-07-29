@@ -1,4 +1,4 @@
-#### 20220729 塔多巴老虎保护区里的老虎四姐妹，印度 (© Ashish Parmar/Alamy)
+#### 20220729 Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)
 
 ![](20220729_FourTigresses_1920x1080.jpg)
 
