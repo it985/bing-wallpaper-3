@@ -1,4 +1,4 @@
-#### 20220730 米尔福德峡湾附近的徒步雨林，新西兰 (© Jim Patterson/Tandem Stills + Motion)
+#### 20220730 Rainforest hike near Milford Sound/Piopiotahi in New Zealand (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2022-07/20220730_FiordlandRainforest_1920x1080.jpg)
 
