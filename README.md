@@ -1,3 +1,7 @@
+#### 20220731 立陶宛的夜光云 (© ljphoto7/Getty Images)
+
+![](images/2022-07/20220731_NoctilucentClouds_1920x1080.jpg)
+
 #### 20220730 Rainforest hike near Milford Sound/Piopiotahi in New Zealand (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2022-07/20220730_FiordlandRainforest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220723 Elephant hawk-moth on foxglove flower (© David Chapman/Alamy)
 
 ![](images/2022-07/20220723_FoxgloveHawkmoth_1920x1080.jpg)
-
-#### 20220722 Our Lady of the Rocks and Saint George Island in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)
-
-![](images/2022-07/20220722_SGIMontenegro_1920x1080.jpg)
 
 
 
