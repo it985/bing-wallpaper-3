@@ -1,3 +1,7 @@
+#### 20220801 Le fort national de Saint-Malo à marée haute (© stevanzz/Adobe Photostock)
+
+![](images/2022-08/20220801_Malo_1920x1080.jpg)
+
 #### 20220801 漏出“天窗”的熔岩管，夏威夷火山国家公园 (© Tom Schwabel/Tandem Stills + Motion)
 
 ![](images/2022-08/20220801_LavaTube_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220723 Regenbogenflagge (© Matt Jeacock/Getty Images)
 
 ![](images/2022-07/20220723_Pride_1920x1080.jpg)
-
-#### 20220723 青の洞窟, 沖縄 宮古島  (© Daisuke Kurashima/Alamy Stock Photo)
-
-![](images/2022-07/20220723_Marine_1920x1080.jpg)
 
 
 
