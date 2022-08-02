@@ -1,3 +1,7 @@
+#### 20220803 在德国的赤颈鸊鷉 (© Edo van Uchelen/Minden Pictures)
+
+![](images/2022-08/20220803_RedneckedGrebe_1920x1080.jpg)
+
 #### 20220802 Fjord with fog, Khutzeymateen Provincial Park (© Westend61 GmbH/Alamy)
 
 ![](images/2022-08/20220802_KhutzeymateenValley_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220725 兰贝里斯山口脚下的多尔巴达恩城堡，威尔士 (© Viktoria Rodriguez/Getty Images)
 
 ![](images/2022-07/20220725_DolbadarnCastle_1920x1080.jpg)
-
-#### 20220724 Amelia Earhart teaching students in Newark, New Jersey (© Bettmann/Getty Images)
-
-![](images/2022-07/20220724_AmeliaEarhart_1920x1080.jpg)
 
 
 
