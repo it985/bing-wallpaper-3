@@ -2,7 +2,7 @@
 
 ![](images/2022-08/20220802_KhutzeymateenValley_1920x1080.jpg)
 
-#### 20220802 圆顶礁国家公园里的希克曼桥，美国犹他州 (© Tim Fitzharris/Minden Pictures)
+#### 20220802 The Hickman Bridge at Capitol Reef National Park, Utah (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2022-08/20220802_HickmanBridge_1920x1080.jpg)
 
