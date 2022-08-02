@@ -1,3 +1,7 @@
+#### 20220802 Fjord with fog, Khutzeymateen Provincial Park (© Westend61 GmbH/Alamy)
+
+![](20220802_KhutzeymateenValley_1920x1080.jpg)
+
 #### 20220802 圆顶礁国家公园里的希克曼桥，美国犹他州 (© Tim Fitzharris/Minden Pictures)
 
 ![](20220802_HickmanBridge_1920x1080.jpg)

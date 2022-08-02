@@ -1,3 +1,7 @@
+#### 20220802 Fjord with fog, Khutzeymateen Provincial Park (© Westend61 GmbH/Alamy)
+
+![](images/2022-08/20220802_KhutzeymateenValley_1920x1080.jpg)
+
 #### 20220802 圆顶礁国家公园里的希克曼桥，美国犹他州 (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2022-08/20220802_HickmanBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220724 Amelia Earhart teaching students in Newark, New Jersey (© Bettmann/Getty Images)
 
 ![](images/2022-07/20220724_AmeliaEarhart_1920x1080.jpg)
-
-#### 20220723 Voiliers au crépuscule devant un phare au large de Roscoff, Finistère, Bretagne (© Cristina Granena/iStock/Getty Images Plus)
-
-![](images/2022-07/20220723_SailAway_1920x1080.jpg)
 
 
 
