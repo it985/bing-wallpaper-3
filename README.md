@@ -1,3 +1,11 @@
+#### 20220804 上海浦东森林心形洞穴鸟瞰图，中国 (© Yaorusheng/Getty Images)
+
+![](images/2022-08/20220804_QiXiFestival_1920x1080.jpg)
+
+#### 20220804 熱帯スイレンを集めるボート, バングラディッシュ バリサル (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)
+
+![](images/2022-08/20220804_BangladeshWaterLilies_1920x1080.jpg)
+
 #### 20220803 Red-necked grebes in Germany (© Edo van Uchelen/Minden Pictures)
 
 ![](images/2022-08/20220803_RedneckedGrebe_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220727 Nabataean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)
 
 ![](images/2022-07/20220727_NabateanTomb_1920x1080.jpg)
-
-#### 20220726 Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)
-
-![](images/2022-07/20220726_MangroveDay_1920x1080.jpg)
-
-#### 20220725 Golden Gallopers Carousel on the seafront in Brighton, East Sussex, England (© Graham Prentice/Alamy)
-
-![](images/2022-07/20220725_MGRBrighton_1920x1080.jpg)
 
 
 

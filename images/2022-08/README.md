@@ -1,3 +1,11 @@
+#### 20220804 上海浦东森林心形洞穴鸟瞰图，中国 (© Yaorusheng/Getty Images)
+
+![](20220804_QiXiFestival_1920x1080.jpg)
+
+#### 20220804 熱帯スイレンを集めるボート, バングラディッシュ バリサル (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)
+
+![](20220804_BangladeshWaterLilies_1920x1080.jpg)
+
 #### 20220803 Red-necked grebes in Germany (© Edo van Uchelen/Minden Pictures)
 
 ![](20220803_RedneckedGrebe_1920x1080.jpg)
