@@ -2,6 +2,10 @@
 
 ![](images/2022-08/20220803_RedneckedGrebe_1920x1080.jpg)
 
+#### 20220803 Boote im Fischereihafen, Boltenhagen, Mecklenburg-Vorpommern (© iStock/Getty Images)
+
+![](images/2022-08/20220803_BoltenhagenBoote_1920x1080.jpg)
+
 #### 20220802 Fjord with fog, Khutzeymateen Provincial Park (© Westend61 GmbH/Alamy)
 
 ![](images/2022-08/20220802_KhutzeymateenValley_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220725 Golden Gallopers Carousel on the seafront in Brighton, East Sussex, England (© Graham Prentice/Alamy)
 
 ![](images/2022-07/20220725_MGRBrighton_1920x1080.jpg)
-
-#### 20220725 兰贝里斯山口脚下的多尔巴达恩城堡，威尔士 (© Viktoria Rodriguez/Getty Images)
-
-![](images/2022-07/20220725_DolbadarnCastle_1920x1080.jpg)
 
 
 

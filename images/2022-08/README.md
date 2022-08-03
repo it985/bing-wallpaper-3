@@ -2,6 +2,10 @@
 
 ![](20220803_RedneckedGrebe_1920x1080.jpg)
 
+#### 20220803 Boote im Fischereihafen, Boltenhagen, Mecklenburg-Vorpommern (© iStock/Getty Images)
+
+![](20220803_BoltenhagenBoote_1920x1080.jpg)
+
 #### 20220802 Fjord with fog, Khutzeymateen Provincial Park (© Westend61 GmbH/Alamy)
 
 ![](20220802_KhutzeymateenValley_1920x1080.jpg)
