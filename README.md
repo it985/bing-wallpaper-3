@@ -1,3 +1,7 @@
+#### 20220805 夜晚的爱丁堡城市天际线，苏格兰 (© Suranga Weeratuna/Alamy)
+
+![](images/2022-08/20220805_MilitaryTattoo_1920x1080.jpg)
+
 #### 20220805 Marina da Glória and Sugarloaf Mountain, Rio de Janeiro, Brazil (© f11photo/Getty Images)
 
 ![](images/2022-08/20220805_MarinaDaGloria_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220728 Eichen in einem Rapsfeld bei aufziehendem Gewitter, Sachsen-Anhalt (© mauritius images GmbH/Alamy Stock Photo)
 
 ![](images/2022-07/20220728_RapsEichen_1920x1080.jpg)
-
-#### 20220728 Longs Peak in Rocky Mountain National Park, Colorado (© Andrew R. Slaton/Tandem Stills + Motion)
-
-![](images/2022-07/20220728_LongsPeak_1920x1080.jpg)
 
 
 
