@@ -1,8 +1,12 @@
+#### 20220805 Marina da Glória and Sugarloaf Mountain, Rio de Janeiro, Brazil (© f11photo/Getty Images)
+
+![](20220805_MarinaDaGloria_1920x1080.jpg)
+
 #### 20220804 上海浦东森林心形洞穴鸟瞰图，中国 (© Yaorusheng/Getty Images)
 
 ![](20220804_QiXiFestival_1920x1080.jpg)
 
-#### 20220804 熱帯スイレンを集めるボート, バングラディッシュ バリサル (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)
+#### 20220804 Farmers collecting water lilies in the Satla marshland near Bagdha, Barisal, Bangladesh (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)
 
 ![](20220804_BangladeshWaterLilies_1920x1080.jpg)
 
