@@ -1,4 +1,4 @@
-#### 20220805 夜晚的爱丁堡城市天际线，苏格兰 (© Suranga Weeratuna/Alamy)
+#### 20220805 Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)
 
 ![](20220805_MilitaryTattoo_1920x1080.jpg)
 
