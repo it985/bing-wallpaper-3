@@ -1,3 +1,11 @@
+#### 20220806 旧金山湾的盐滩 (© Jeffrey Lewis/Tandem Stills + Motion)
+
+![](20220806_SFSaltFlats_1920x1080.jpg)
+
+#### 20220806 原爆ドームと元安川, 広島 (© Sean Pavone/Alamy Stock Photo)
+
+![](20220806_Hiroshima_1920x1080.jpg)
+
 #### 20220805 Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)
 
 ![](20220805_MilitaryTattoo_1920x1080.jpg)

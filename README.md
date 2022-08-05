@@ -1,3 +1,11 @@
+#### 20220806 旧金山湾的盐滩 (© Jeffrey Lewis/Tandem Stills + Motion)
+
+![](images/2022-08/20220806_SFSaltFlats_1920x1080.jpg)
+
+#### 20220806 原爆ドームと元安川, 広島 (© Sean Pavone/Alamy Stock Photo)
+
+![](images/2022-08/20220806_Hiroshima_1920x1080.jpg)
+
 #### 20220805 Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)
 
 ![](images/2022-08/20220805_MilitaryTattoo_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220729 Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)
 
 ![](images/2022-07/20220729_FourTigresses_1920x1080.jpg)
-
-#### 20220728 Shot of rocks in water in Tobermory, Ontario (© Reese Lassman/EyeEm/Getty Images)
-
-![](images/2022-07/20220728_TobermoryRocks_1920x1080.jpg)
-
-#### 20220728 Eichen in einem Rapsfeld bei aufziehendem Gewitter, Sachsen-Anhalt (© mauritius images GmbH/Alamy Stock Photo)
-
-![](images/2022-07/20220728_RapsEichen_1920x1080.jpg)
 
 
 
