@@ -1,4 +1,4 @@
-#### 20220806 旧金山湾的盐滩 (© Jeffrey Lewis/Tandem Stills + Motion)
+#### 20220806 Salt flats in San Francisco Bay (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](images/2022-08/20220806_SFSaltFlats_1920x1080.jpg)
 
