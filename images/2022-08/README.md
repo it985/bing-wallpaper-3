@@ -6,6 +6,10 @@
 
 ![](20220806_Hiroshima_1920x1080.jpg)
 
+#### 20220806 Luftbild der Insel Pantaleu nahe Sant Elm, Mallorca, Spanien (© Dimitri Weber/Amazing Aerial Agency)
+
+![](20220806_EsPantaleu_1920x1080.jpg)
+
 #### 20220805 Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)
 
 ![](20220805_MilitaryTattoo_1920x1080.jpg)

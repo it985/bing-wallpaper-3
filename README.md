@@ -6,6 +6,10 @@
 
 ![](images/2022-08/20220806_Hiroshima_1920x1080.jpg)
 
+#### 20220806 Luftbild der Insel Pantaleu nahe Sant Elm, Mallorca, Spanien (© Dimitri Weber/Amazing Aerial Agency)
+
+![](images/2022-08/20220806_EsPantaleu_1920x1080.jpg)
+
 #### 20220805 Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)
 
 ![](images/2022-08/20220805_MilitaryTattoo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220730 Rainforest hike near Milford Sound/Piopiotahi in New Zealand (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2022-07/20220730_FiordlandRainforest_1920x1080.jpg)
-
-#### 20220729 Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)
-
-![](images/2022-07/20220729_FourTigresses_1920x1080.jpg)
 
 
 
