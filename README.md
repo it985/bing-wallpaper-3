@@ -1,3 +1,11 @@
+#### 20220807 杭州西湖的古典中国园林 (© DANNY HU/Getty Images)
+
+![](images/2022-08/20220807_theBeginningofAutumn_1920x1080.jpg)
+
+#### 20220807 風鈴まつり (© blew_i/gettyimages)
+
+![](images/2022-08/20220807_Furin_1920x1080.jpg)
+
 #### 20220806 Salt flats in San Francisco Bay (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](images/2022-08/20220806_SFSaltFlats_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220801 An active lava tube, Hawai'i Volcanoes National Park, Hawaii (© Tom Schwabel/Tandem Stills + Motion)
 
 ![](images/2022-08/20220801_LavaTube_1920x1080.jpg)
-
-#### 20220731 Noctilucent clouds in Lithuania (© ljphoto7/Getty Images)
-
-![](images/2022-07/20220731_NoctilucentClouds_1920x1080.jpg)
-
-#### 20220730 Rainforest hike near Milford Sound/Piopiotahi in New Zealand (© Jim Patterson/Tandem Stills + Motion)
-
-![](images/2022-07/20220730_FiordlandRainforest_1920x1080.jpg)
 
 
 

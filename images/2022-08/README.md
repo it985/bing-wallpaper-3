@@ -1,3 +1,11 @@
+#### 20220807 杭州西湖的古典中国园林 (© DANNY HU/Getty Images)
+
+![](20220807_theBeginningofAutumn_1920x1080.jpg)
+
+#### 20220807 風鈴まつり (© blew_i/gettyimages)
+
+![](20220807_Furin_1920x1080.jpg)
+
 #### 20220806 Salt flats in San Francisco Bay (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](20220806_SFSaltFlats_1920x1080.jpg)
