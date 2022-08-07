@@ -6,6 +6,10 @@
 
 ![](20220807_SpringPoint_1920x1080.jpg)
 
+#### 20220807 Dusk falls over Vancouver Island viewed from an islet in Nuchatlitz Provincial Park, British Columbia (© plainpicture/Design Pics/Ron Watts)
+
+![](20220807_NuchatlitzDusk_1920x1080.jpg)
+
 #### 20220807 風鈴まつり (© blew_i/gettyimages)
 
 ![](20220807_Furin_1920x1080.jpg)

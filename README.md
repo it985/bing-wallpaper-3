@@ -6,6 +6,10 @@
 
 ![](images/2022-08/20220807_SpringPoint_1920x1080.jpg)
 
+#### 20220807 Dusk falls over Vancouver Island viewed from an islet in Nuchatlitz Provincial Park, British Columbia (© plainpicture/Design Pics/Ron Watts)
+
+![](images/2022-08/20220807_NuchatlitzDusk_1920x1080.jpg)
+
 #### 20220807 風鈴まつり (© blew_i/gettyimages)
 
 ![](images/2022-08/20220807_Furin_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220802 The Hickman Bridge at Capitol Reef National Park, Utah (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2022-08/20220802_HickmanBridge_1920x1080.jpg)
-
-#### 20220801 Le fort national de Saint-Malo à marée haute (© stevanzz/Adobe Photostock)
-
-![](images/2022-08/20220801_Malo_1920x1080.jpg)
 
 
 
