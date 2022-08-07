@@ -2,6 +2,10 @@
 
 ![](20220807_theBeginningofAutumn_1920x1080.jpg)
 
+#### 20220807 Leuchtturm Spring Point Ledge, South Portland, Maine, USA (© Haizhan Zheng/Getty Images)
+
+![](20220807_SpringPoint_1920x1080.jpg)
+
 #### 20220807 風鈴まつり (© blew_i/gettyimages)
 
 ![](20220807_Furin_1920x1080.jpg)

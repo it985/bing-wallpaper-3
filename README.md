@@ -2,6 +2,10 @@
 
 ![](images/2022-08/20220807_theBeginningofAutumn_1920x1080.jpg)
 
+#### 20220807 Leuchtturm Spring Point Ledge, South Portland, Maine, USA (© Haizhan Zheng/Getty Images)
+
+![](images/2022-08/20220807_SpringPoint_1920x1080.jpg)
+
 #### 20220807 風鈴まつり (© blew_i/gettyimages)
 
 ![](images/2022-08/20220807_Furin_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220801 Le fort national de Saint-Malo à marée haute (© stevanzz/Adobe Photostock)
 
 ![](images/2022-08/20220801_Malo_1920x1080.jpg)
-
-#### 20220801 An active lava tube, Hawai'i Volcanoes National Park, Hawaii (© Tom Schwabel/Tandem Stills + Motion)
-
-![](images/2022-08/20220801_LavaTube_1920x1080.jpg)
 
 
 
