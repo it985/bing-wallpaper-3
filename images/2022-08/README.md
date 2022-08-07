@@ -2,7 +2,7 @@
 
 ![](20220807_theBeginningofAutumn_1920x1080.jpg)
 
-#### 20220807 Leuchtturm Spring Point Ledge, South Portland, Maine, USA (© Haizhan Zheng/Getty Images)
+#### 20220807 Spring Point Ledge Light in South Portland, Maine (© Haizhan Zheng/Getty Images)
 
 ![](20220807_SpringPoint_1920x1080.jpg)
 
