@@ -26,7 +26,7 @@
 
 ![](20220806_Hiroshima_1920x1080.jpg)
 
-#### 20220806 Luftbild der Insel Pantaleu nahe Sant Elm, Mallorca, Spanien (© Dimitri Weber/Amazing Aerial Agency)
+#### 20220806 Aerial view of the island Pantaleu near Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)
 
 ![](20220806_EsPantaleu_1920x1080.jpg)
 
