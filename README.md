@@ -1,3 +1,7 @@
+#### 20220809 阿根廷圣克鲁斯的洛斯马诺斯洞穴 (© Adwo/Alamy)
+
+![](images/2022-08/20220809_CuevaManos_1920x1080.jpg)
+
 #### 20220808 Riesen-Lauch (Allium giganteum), Hamburg (© Jasmin Sander/plainpicture)
 
 ![](images/2022-08/20220808_RiesenlauchAllium_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220803 Boote im Fischereihafen, Boltenhagen, Mecklenburg-Vorpommern (© iStock/Getty Images)
 
 ![](images/2022-08/20220803_BoltenhagenBoote_1920x1080.jpg)
-
-#### 20220802 Fjord with fog, Khutzeymateen Provincial Park (© Westend61 GmbH/Alamy)
-
-![](images/2022-08/20220802_KhutzeymateenValley_1920x1080.jpg)
 
 
 

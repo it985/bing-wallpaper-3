@@ -1,3 +1,7 @@
+#### 20220809 阿根廷圣克鲁斯的洛斯马诺斯洞穴 (© Adwo/Alamy)
+
+![](20220809_CuevaManos_1920x1080.jpg)
+
 #### 20220808 Riesen-Lauch (Allium giganteum), Hamburg (© Jasmin Sander/plainpicture)
 
 ![](20220808_RiesenlauchAllium_1920x1080.jpg)
