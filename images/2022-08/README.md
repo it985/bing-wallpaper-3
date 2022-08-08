@@ -1,3 +1,7 @@
+#### 20220808 Riesen-Lauch (Allium giganteum), Hamburg (© Jasmin Sander/plainpicture)
+
+![](20220808_RiesenlauchAllium_1920x1080.jpg)
+
 #### 20220807 杭州西湖的古典中国园林 (© DANNY HU/Getty Images)
 
 ![](20220807_theBeginningofAutumn_1920x1080.jpg)

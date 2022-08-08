@@ -1,3 +1,7 @@
+#### 20220808 Riesen-Lauch (Allium giganteum), Hamburg (© Jasmin Sander/plainpicture)
+
+![](images/2022-08/20220808_RiesenlauchAllium_1920x1080.jpg)
+
 #### 20220807 杭州西湖的古典中国园林 (© DANNY HU/Getty Images)
 
 ![](images/2022-08/20220807_theBeginningofAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220802 Fjord with fog, Khutzeymateen Provincial Park (© Westend61 GmbH/Alamy)
 
 ![](images/2022-08/20220802_KhutzeymateenValley_1920x1080.jpg)
-
-#### 20220802 The Hickman Bridge at Capitol Reef National Park, Utah (© Tim Fitzharris/Minden Pictures)
-
-![](images/2022-08/20220802_HickmanBridge_1920x1080.jpg)
 
 
 
