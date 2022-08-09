@@ -1,3 +1,11 @@
+#### 20220810 ナクル湖畔の雌ライオン, ケニア (© Scott Davis/Tandem Stills + Motion)
+
+![](images/2022-08/20220810_WWDLions_1920x1080.jpg)
+
+#### 20220810 约书亚树，加利福尼亚州约书亚树国家公园 (© Tim Fitzharris/Minden Pictures)
+
+![](images/2022-08/20220810_AnniversaryJTNP_1920x1080.jpg)
+
 #### 20220809 Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)
 
 ![](images/2022-08/20220809_CuevaManos_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220804 Farmers collecting water lilies in the Satla marshland near Bagdha, Barisal, Bangladesh (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)
 
 ![](images/2022-08/20220804_BangladeshWaterLilies_1920x1080.jpg)
-
-#### 20220803 Red-necked grebes in Germany (© Edo van Uchelen/Minden Pictures)
-
-![](images/2022-08/20220803_RedneckedGrebe_1920x1080.jpg)
-
-#### 20220803 Boote im Fischereihafen, Boltenhagen, Mecklenburg-Vorpommern (© iStock/Getty Images)
-
-![](images/2022-08/20220803_BoltenhagenBoote_1920x1080.jpg)
 
 
 
