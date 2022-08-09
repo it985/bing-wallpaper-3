@@ -1,4 +1,4 @@
-#### 20220809 阿根廷圣克鲁斯的洛斯马诺斯洞穴 (© Adwo/Alamy)
+#### 20220809 Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)
 
 ![](images/2022-08/20220809_CuevaManos_1920x1080.jpg)
 
