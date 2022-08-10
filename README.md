@@ -2,6 +2,10 @@
 
 ![](images/2022-08/20220810_WWDLions_1920x1080.jpg)
 
+#### 20220810 Mont Tsubakuro près d’Azumino, Nagano, Japon (© Joshua Hawley/Getty Images)
+
+![](images/2022-08/20220810_MtTsubakuro_1920x1080.jpg)
+
 #### 20220810 约书亚树，加利福尼亚州约书亚树国家公园 (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2022-08/20220810_AnniversaryJTNP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220804 上海浦东森林心形洞穴鸟瞰图，中国 (© Yaorusheng/Getty Images)
 
 ![](images/2022-08/20220804_QiXiFestival_1920x1080.jpg)
-
-#### 20220804 Farmers collecting water lilies in the Satla marshland near Bagdha, Barisal, Bangladesh (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)
-
-![](images/2022-08/20220804_BangladeshWaterLilies_1920x1080.jpg)
 
 
 
