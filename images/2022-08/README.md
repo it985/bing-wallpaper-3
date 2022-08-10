@@ -6,7 +6,7 @@
 
 ![](20220810_MtTsubakuro_1920x1080.jpg)
 
-#### 20220810 约书亚树，加利福尼亚州约书亚树国家公园 (© Tim Fitzharris/Minden Pictures)
+#### 20220810 Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)
 
 ![](20220810_AnniversaryJTNP_1920x1080.jpg)
 
