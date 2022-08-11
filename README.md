@@ -1,3 +1,7 @@
+#### 20220812 安博塞利国家公园里的非洲象群，肯尼亚 (© Susan Portnoy/Shutterstock)
+
+![](images/2022-08/20220812_AmboseliElephants_1920x1080.jpg)
+
 #### 20220811 Détail de la façade des arènes de Dax, Landes (© Daniele Schneider/Photononstop/Alamy)
 
 ![](images/2022-08/20220811_Dax_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220805 Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)
 
 ![](images/2022-08/20220805_MilitaryTattoo_1920x1080.jpg)
-
-#### 20220805 Marina da Glória and Sugarloaf Mountain, Rio de Janeiro, Brazil (© f11photo/Getty Images)
-
-![](images/2022-08/20220805_MarinaDaGloria_1920x1080.jpg)
 
 
 
