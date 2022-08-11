@@ -1,3 +1,7 @@
+#### 20220811 Détail de la façade des arènes de Dax, Landes (© Daniele Schneider/Photononstop/Alamy)
+
+![](images/2022-08/20220811_Dax_1920x1080.jpg)
+
 #### 20220810 ナクル湖畔の雌ライオン, ケニア (© Scott Davis/Tandem Stills + Motion)
 
 ![](images/2022-08/20220810_WWDLions_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220805 Marina da Glória and Sugarloaf Mountain, Rio de Janeiro, Brazil (© f11photo/Getty Images)
 
 ![](images/2022-08/20220805_MarinaDaGloria_1920x1080.jpg)
-
-#### 20220804 上海浦东森林心形洞穴鸟瞰图，中国 (© Yaorusheng/Getty Images)
-
-![](images/2022-08/20220804_QiXiFestival_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20220811 Détail de la façade des arènes de Dax, Landes (© Daniele Schneider/Photononstop/Alamy)
+
+![](20220811_Dax_1920x1080.jpg)
+
 #### 20220810 ナクル湖畔の雌ライオン, ケニア (© Scott Davis/Tandem Stills + Motion)
 
 ![](20220810_WWDLions_1920x1080.jpg)
