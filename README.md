@@ -6,7 +6,7 @@
 
 ![](images/2022-08/20220810_WWDLions_1920x1080.jpg)
 
-#### 20220810 Mont Tsubakuro près d’Azumino, Nagano, Japon (© Joshua Hawley/Getty Images)
+#### 20220810 Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)
 
 ![](images/2022-08/20220810_MtTsubakuro_1920x1080.jpg)
 
