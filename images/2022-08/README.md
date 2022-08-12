@@ -1,4 +1,4 @@
-#### 20220812 安博塞利国家公园里的非洲象群，肯尼亚 (© Susan Portnoy/Shutterstock)
+#### 20220812 Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)
 
 ![](20220812_AmboseliElephants_1920x1080.jpg)
 
