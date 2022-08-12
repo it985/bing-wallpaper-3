@@ -1,3 +1,11 @@
+#### 20220813 阿斯佩山谷中的蒙塔尼翁湖，法国 (© thieury/Adobe photo stock)
+
+![](images/2022-08/20220813_LacMontagnon_1920x1080.jpg)
+
+#### 20220813 バウンダリー・ウォーターズ・カヌー・エリア, 米国 (© Dukas/Universal Images Group via Getty Images)
+
+![](images/2022-08/20220813_BoundaryWaters_1920x1080.jpg)
+
 #### 20220812 Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)
 
 ![](images/2022-08/20220812_AmboseliElephants_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220806 原爆ドームと元安川, 広島 (© Sean Pavone/Alamy Stock Photo)
 
 ![](images/2022-08/20220806_Hiroshima_1920x1080.jpg)
-
-#### 20220806 Aerial view of the island Pantaleu near Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)
-
-![](images/2022-08/20220806_EsPantaleu_1920x1080.jpg)
-
-#### 20220805 Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)
-
-![](images/2022-08/20220805_MilitaryTattoo_1920x1080.jpg)
 
 
 

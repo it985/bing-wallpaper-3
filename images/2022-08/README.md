@@ -1,3 +1,11 @@
+#### 20220813 阿斯佩山谷中的蒙塔尼翁湖，法国 (© thieury/Adobe photo stock)
+
+![](20220813_LacMontagnon_1920x1080.jpg)
+
+#### 20220813 バウンダリー・ウォーターズ・カヌー・エリア, 米国 (© Dukas/Universal Images Group via Getty Images)
+
+![](20220813_BoundaryWaters_1920x1080.jpg)
+
 #### 20220812 Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)
 
 ![](20220812_AmboseliElephants_1920x1080.jpg)
