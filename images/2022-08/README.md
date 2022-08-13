@@ -2,7 +2,7 @@
 
 ![](20220813_LacMontagnon_1920x1080.jpg)
 
-#### 20220813 バウンダリー・ウォーターズ・カヌー・エリア, 米国 (© Dukas/Universal Images Group via Getty Images)
+#### 20220813 Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)
 
 ![](20220813_BoundaryWaters_1920x1080.jpg)
 
