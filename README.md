@@ -1,3 +1,7 @@
+#### 20220814 琥珀山国家公园里的豹变色龙，马达加斯加 (© Christian Ziegler/Minden Pictures)
+
+![](images/2022-08/20220814_PantherChameleon_1920x1080.jpg)
+
 #### 20220813 阿斯佩山谷中的蒙塔尼翁湖，法国 (© thieury/Adobe photo stock)
 
 ![](images/2022-08/20220813_LacMontagnon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220807 風鈴まつり (© blew_i/gettyimages)
 
 ![](images/2022-08/20220807_Furin_1920x1080.jpg)
-
-#### 20220806 Salt flats in San Francisco Bay (© Jeffrey Lewis/Tandem Stills + Motion)
-
-![](images/2022-08/20220806_SFSaltFlats_1920x1080.jpg)
 
 
 
