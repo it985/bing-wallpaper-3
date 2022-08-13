@@ -6,6 +6,10 @@
 
 ![](images/2022-08/20220813_BoundaryWaters_1920x1080.jpg)
 
+#### 20220813 Unterwasseraufnahme von Wasserpflanzen und Echten Salmlern, Aquário Natural, Rio Baia Bonito, Mato Grosso do Sul, Brasilien (© Michel Roggo/Minden Pictures)
+
+![](images/2022-08/20220813_AquarioNatural_1920x1080.jpg)
+
 #### 20220812 Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)
 
 ![](images/2022-08/20220812_AmboseliElephants_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220806 Salt flats in San Francisco Bay (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](images/2022-08/20220806_SFSaltFlats_1920x1080.jpg)
-
-#### 20220806 原爆ドームと元安川, 広島 (© Sean Pavone/Alamy Stock Photo)
-
-![](images/2022-08/20220806_Hiroshima_1920x1080.jpg)
 
 
 

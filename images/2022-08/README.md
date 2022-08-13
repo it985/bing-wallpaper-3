@@ -6,6 +6,10 @@
 
 ![](20220813_BoundaryWaters_1920x1080.jpg)
 
+#### 20220813 Unterwasseraufnahme von Wasserpflanzen und Echten Salmlern, Aquário Natural, Rio Baia Bonito, Mato Grosso do Sul, Brasilien (© Michel Roggo/Minden Pictures)
+
+![](20220813_AquarioNatural_1920x1080.jpg)
+
 #### 20220812 Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)
 
 ![](20220812_AmboseliElephants_1920x1080.jpg)
