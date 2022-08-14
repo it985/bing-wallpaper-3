@@ -1,3 +1,7 @@
+#### 20220815 奇陶尔加尔堡，印度 (© Anand Purohit/Getty Images)
+
+![](20220815_ChittorgarhFort_1920x1080.jpg)
+
 #### 20220814 Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)
 
 ![](20220814_PantherChameleon_1920x1080.jpg)

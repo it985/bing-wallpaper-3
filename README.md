@@ -1,3 +1,7 @@
+#### 20220815 奇陶尔加尔堡，印度 (© Anand Purohit/Getty Images)
+
+![](images/2022-08/20220815_ChittorgarhFort_1920x1080.jpg)
+
 #### 20220814 Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)
 
 ![](images/2022-08/20220814_PantherChameleon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220807 Dusk falls over Vancouver Island viewed from an islet in Nuchatlitz Provincial Park, British Columbia (© plainpicture/Design Pics/Ron Watts)
 
 ![](images/2022-08/20220807_NuchatlitzDusk_1920x1080.jpg)
-
-#### 20220807 風鈴まつり (© blew_i/gettyimages)
-
-![](images/2022-08/20220807_Furin_1920x1080.jpg)
 
 
 
