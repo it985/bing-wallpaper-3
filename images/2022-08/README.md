@@ -1,4 +1,4 @@
-#### 20220814 琥珀山国家公园里的豹变色龙，马达加斯加 (© Christian Ziegler/Minden Pictures)
+#### 20220814 Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)
 
 ![](20220814_PantherChameleon_1920x1080.jpg)
 
