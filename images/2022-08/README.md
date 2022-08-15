@@ -1,3 +1,11 @@
+#### 20220816 夕阳下的大白鲨过山车，美国新泽西州 (© John Van Decker/Alamy)
+
+![](20220816_GreatWhiteRoller_1920x1080.jpg)
+
+#### 20220816 五山送り火, 京都 (© Hideaki Tanaka/AFLO)
+
+![](20220816_Daimonji_1920x1080.jpg)
+
 #### 20220815 Chittorgarh Fort, India (© Anand Purohit/Getty Images)
 
 ![](20220815_ChittorgarhFort_1920x1080.jpg)

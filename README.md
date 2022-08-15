@@ -1,3 +1,11 @@
+#### 20220816 夕阳下的大白鲨过山车，美国新泽西州 (© John Van Decker/Alamy)
+
+![](images/2022-08/20220816_GreatWhiteRoller_1920x1080.jpg)
+
+#### 20220816 五山送り火, 京都 (© Hideaki Tanaka/AFLO)
+
+![](images/2022-08/20220816_Daimonji_1920x1080.jpg)
+
 #### 20220815 Chittorgarh Fort, India (© Anand Purohit/Getty Images)
 
 ![](images/2022-08/20220815_ChittorgarhFort_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220807 杭州西湖的古典中国园林 (© DANNY HU/Getty Images)
 
 ![](images/2022-08/20220807_theBeginningofAutumn_1920x1080.jpg)
-
-#### 20220807 Spring Point Ledge Light in South Portland, Maine (© Haizhan Zheng/Getty Images)
-
-![](images/2022-08/20220807_SpringPoint_1920x1080.jpg)
-
-#### 20220807 Dusk falls over Vancouver Island viewed from an islet in Nuchatlitz Provincial Park, British Columbia (© plainpicture/Design Pics/Ron Watts)
-
-![](images/2022-08/20220807_NuchatlitzDusk_1920x1080.jpg)
 
 
 
