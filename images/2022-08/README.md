@@ -1,4 +1,4 @@
-#### 20220815 奇陶尔加尔堡，印度 (© Anand Purohit/Getty Images)
+#### 20220815 Chittorgarh Fort, India (© Anand Purohit/Getty Images)
 
 ![](20220815_ChittorgarhFort_1920x1080.jpg)
 
