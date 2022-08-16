@@ -2,7 +2,7 @@
 
 ![](20220816_SasquatchStream_1920x1080.jpg)
 
-#### 20220816 夕阳下的大白鲨过山车，美国新泽西州 (© John Van Decker/Alamy)
+#### 20220816 The Great White Roller Coaster at Wildwood, New Jersey (© John Van Decker/Alamy)
 
 ![](20220816_GreatWhiteRoller_1920x1080.jpg)
 
