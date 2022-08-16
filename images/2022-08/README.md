@@ -6,6 +6,10 @@
 
 ![](20220816_Daimonji_1920x1080.jpg)
 
+#### 20220816 Parc national des North Cascades, Washington, États-Unis (© Ethan Welty/Tandem Stills + Motion)
+
+![](20220816_CascadesNP_1920x1080.jpg)
+
 #### 20220815 Chittorgarh Fort, India (© Anand Purohit/Getty Images)
 
 ![](20220815_ChittorgarhFort_1920x1080.jpg)

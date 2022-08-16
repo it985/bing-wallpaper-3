@@ -6,6 +6,10 @@
 
 ![](images/2022-08/20220816_Daimonji_1920x1080.jpg)
 
+#### 20220816 Parc national des North Cascades, Washington, États-Unis (© Ethan Welty/Tandem Stills + Motion)
+
+![](images/2022-08/20220816_CascadesNP_1920x1080.jpg)
+
 #### 20220815 Chittorgarh Fort, India (© Anand Purohit/Getty Images)
 
 ![](images/2022-08/20220815_ChittorgarhFort_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220808 Riesen-Lauch (Allium giganteum), Hamburg (© Jasmin Sander/plainpicture)
 
 ![](images/2022-08/20220808_RiesenlauchAllium_1920x1080.jpg)
-
-#### 20220807 杭州西湖的古典中国园林 (© DANNY HU/Getty Images)
-
-![](images/2022-08/20220807_theBeginningofAutumn_1920x1080.jpg)
 
 
 
