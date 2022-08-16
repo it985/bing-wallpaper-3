@@ -1,3 +1,7 @@
+#### 20220816 A stream of water flows through the Sasquatch Provincial Park, Fraser Valley, B.C. (© Jason Wilde/Tandem Stills + Motion)
+
+![](images/2022-08/20220816_SasquatchStream_1920x1080.jpg)
+
 #### 20220816 夕阳下的大白鲨过山车，美国新泽西州 (© John Van Decker/Alamy)
 
 ![](images/2022-08/20220816_GreatWhiteRoller_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220809 Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)
 
 ![](images/2022-08/20220809_CuevaManos_1920x1080.jpg)
-
-#### 20220808 Riesen-Lauch (Allium giganteum), Hamburg (© Jasmin Sander/plainpicture)
-
-![](images/2022-08/20220808_RiesenlauchAllium_1920x1080.jpg)
 
 
 
