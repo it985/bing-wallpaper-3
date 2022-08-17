@@ -1,3 +1,7 @@
+#### 20220817 Reetdachhäuser bei Hörnum auf Sylt, Schleswig-Holstein (© Francesco Carovillano/eStock Photo)
+
+![](20220817_SyltNordseeHoernum_1920x1080.jpg)
+
 #### 20220816 A stream of water flows through the Sasquatch Provincial Park, Fraser Valley, B.C. (© Jason Wilde/Tandem Stills + Motion)
 
 ![](20220816_SasquatchStream_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20220817 Reetdachhäuser bei Hörnum auf Sylt, Schleswig-Holstein (© Francesco Carovillano/eStock Photo)
+
+![](images/2022-08/20220817_SyltNordseeHoernum_1920x1080.jpg)
+
 #### 20220816 A stream of water flows through the Sasquatch Provincial Park, Fraser Valley, B.C. (© Jason Wilde/Tandem Stills + Motion)
 
 ![](images/2022-08/20220816_SasquatchStream_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220810 Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2022-08/20220810_AnniversaryJTNP_1920x1080.jpg)
-
-#### 20220809 Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)
-
-![](images/2022-08/20220809_CuevaManos_1920x1080.jpg)
 
 
 
