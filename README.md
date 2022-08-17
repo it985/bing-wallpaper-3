@@ -1,3 +1,7 @@
+#### 20220818 哥德堡群岛的岸边，瑞典 (© Martin Wahlborg/Getty Images)
+
+![](images/2022-08/20220818_SourHerring_1920x1080.jpg)
+
 #### 20220817 Reetdachhäuser bei Hörnum auf Sylt, Schleswig-Holstein (© Francesco Carovillano/eStock Photo)
 
 ![](images/2022-08/20220817_SyltNordseeHoernum_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220810 Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)
 
 ![](images/2022-08/20220810_MtTsubakuro_1920x1080.jpg)
-
-#### 20220810 Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)
-
-![](images/2022-08/20220810_AnniversaryJTNP_1920x1080.jpg)
 
 
 

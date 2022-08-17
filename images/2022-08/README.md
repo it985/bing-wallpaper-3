@@ -1,3 +1,7 @@
+#### 20220818 哥德堡群岛的岸边，瑞典 (© Martin Wahlborg/Getty Images)
+
+![](20220818_SourHerring_1920x1080.jpg)
+
 #### 20220817 Reetdachhäuser bei Hörnum auf Sylt, Schleswig-Holstein (© Francesco Carovillano/eStock Photo)
 
 ![](20220817_SyltNordseeHoernum_1920x1080.jpg)
