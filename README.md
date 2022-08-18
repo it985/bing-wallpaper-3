@@ -1,4 +1,4 @@
-#### 20220818 哥德堡群岛的岸边，瑞典 (© Martin Wahlborg/Getty Images)
+#### 20220818 Källö-Knippla, an island in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)
 
 ![](images/2022-08/20220818_SourHerring_1920x1080.jpg)
 
