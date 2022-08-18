@@ -1,3 +1,7 @@
+#### 20220819 康沃尔郡的彭赞斯，英国 (© Murray Bosley Photography/Getty Images)
+
+![](20220819_PenzancePool_1920x1080.jpg)
+
 #### 20220818 Källö-Knippla, an island in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)
 
 ![](20220818_SourHerring_1920x1080.jpg)

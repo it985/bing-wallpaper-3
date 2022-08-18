@@ -1,3 +1,7 @@
+#### 20220819 康沃尔郡的彭赞斯，英国 (© Murray Bosley Photography/Getty Images)
+
+![](images/2022-08/20220819_PenzancePool_1920x1080.jpg)
+
 #### 20220818 Källö-Knippla, an island in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)
 
 ![](images/2022-08/20220818_SourHerring_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220810 ナクル湖畔の雌ライオン, ケニア (© Scott Davis/Tandem Stills + Motion)
 
 ![](images/2022-08/20220810_WWDLions_1920x1080.jpg)
-
-#### 20220810 Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)
-
-![](images/2022-08/20220810_MtTsubakuro_1920x1080.jpg)
 
 
 
