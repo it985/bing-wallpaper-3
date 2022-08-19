@@ -2,6 +2,10 @@
 
 ![](20220819_SwingEx_1920x1080.jpg)
 
+#### 20220819 Solar Impulse 2 flying over the pyramids in Giza, Egypt (© Jean Revillard/Solar Impulse2 via Getty Images)
+
+![](20220819_SolarImpulse_1920x1080.jpg)
+
 #### 20220819 康沃尔郡的彭赞斯，英国 (© Murray Bosley Photography/Getty Images)
 
 ![](20220819_PenzancePool_1920x1080.jpg)

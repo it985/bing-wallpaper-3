@@ -2,6 +2,10 @@
 
 ![](images/2022-08/20220819_SwingEx_1920x1080.jpg)
 
+#### 20220819 Solar Impulse 2 flying over the pyramids in Giza, Egypt (© Jean Revillard/Solar Impulse2 via Getty Images)
+
+![](images/2022-08/20220819_SolarImpulse_1920x1080.jpg)
+
 #### 20220819 康沃尔郡的彭赞斯，英国 (© Murray Bosley Photography/Getty Images)
 
 ![](images/2022-08/20220819_PenzancePool_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220812 Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)
 
 ![](images/2022-08/20220812_AmboseliElephants_1920x1080.jpg)
-
-#### 20220811 Détail de la façade des arènes de Dax, Landes (© Daniele Schneider/Photononstop/Alamy)
-
-![](images/2022-08/20220811_Dax_1920x1080.jpg)
 
 
 
