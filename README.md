@@ -1,3 +1,7 @@
+#### 20220820 西班牙阿斯图里亚斯省穆涅略斯自然保护区的蜂箱 (© ABB Photo/Shutterstock)
+
+![](images/2022-08/20220820_BearProof_1920x1080.jpg)
+
 #### 20220819 The Swing Tower at CNE, Toronto (© Brett Ida/Shutterstock)
 
 ![](images/2022-08/20220819_SwingEx_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220813 Freshwater plants and tetra fish, Aquário Natural, Rio Baía Bonita, Mato Grosso do Sul, Brazil (© Michel Roggo/Minden Pictures)
 
 ![](images/2022-08/20220813_AquarioNatural_1920x1080.jpg)
-
-#### 20220812 Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)
-
-![](images/2022-08/20220812_AmboseliElephants_1920x1080.jpg)
 
 
 

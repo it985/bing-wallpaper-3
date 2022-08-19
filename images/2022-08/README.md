@@ -1,3 +1,7 @@
+#### 20220820 西班牙阿斯图里亚斯省穆涅略斯自然保护区的蜂箱 (© ABB Photo/Shutterstock)
+
+![](20220820_BearProof_1920x1080.jpg)
+
 #### 20220819 The Swing Tower at CNE, Toronto (© Brett Ida/Shutterstock)
 
 ![](20220819_SwingEx_1920x1080.jpg)
