@@ -1,3 +1,7 @@
+#### 20220819 The Swing Tower at CNE, Toronto (© Brett Ida/Shutterstock)
+
+![](20220819_SwingEx_1920x1080.jpg)
+
 #### 20220819 康沃尔郡的彭赞斯，英国 (© Murray Bosley Photography/Getty Images)
 
 ![](20220819_PenzancePool_1920x1080.jpg)

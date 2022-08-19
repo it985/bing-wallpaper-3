@@ -1,3 +1,7 @@
+#### 20220819 The Swing Tower at CNE, Toronto (© Brett Ida/Shutterstock)
+
+![](images/2022-08/20220819_SwingEx_1920x1080.jpg)
+
 #### 20220819 康沃尔郡的彭赞斯，英国 (© Murray Bosley Photography/Getty Images)
 
 ![](images/2022-08/20220819_PenzancePool_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220811 Détail de la façade des arènes de Dax, Landes (© Daniele Schneider/Photononstop/Alamy)
 
 ![](images/2022-08/20220811_Dax_1920x1080.jpg)
-
-#### 20220810 ナクル湖畔の雌ライオン, ケニア (© Scott Davis/Tandem Stills + Motion)
-
-![](images/2022-08/20220810_WWDLions_1920x1080.jpg)
 
 
 
