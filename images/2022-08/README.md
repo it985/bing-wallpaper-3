@@ -1,4 +1,4 @@
-#### 20220820 西班牙阿斯图里亚斯省穆涅略斯自然保护区的蜂箱 (© ABB Photo/Shutterstock)
+#### 20220820 Beehives in the Muniellos Nature Reserve, Asturias province, Spain (© ABB Photo/Shutterstock)
 
 ![](20220820_BearProof_1920x1080.jpg)
 
