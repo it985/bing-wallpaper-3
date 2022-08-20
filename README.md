@@ -1,3 +1,7 @@
+#### 20220821 加利西亚省科斯塔达莫尔特的灯塔，西班牙 (© Carlos Fernandez/Getty Images)
+
+![](images/2022-08/20220821_CostadaMorte_1920x1080.jpg)
+
 #### 20220820 Beehives in the Muniellos Nature Reserve, Asturias province, Spain (© ABB Photo/Shutterstock)
 
 ![](images/2022-08/20220820_BearProof_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220813 Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)
 
 ![](images/2022-08/20220813_BoundaryWaters_1920x1080.jpg)
-
-#### 20220813 Freshwater plants and tetra fish, Aquário Natural, Rio Baía Bonita, Mato Grosso do Sul, Brazil (© Michel Roggo/Minden Pictures)
-
-![](images/2022-08/20220813_AquarioNatural_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20220821 加利西亚省科斯塔达莫尔特的灯塔，西班牙 (© Carlos Fernandez/Getty Images)
+
+![](20220821_CostadaMorte_1920x1080.jpg)
+
 #### 20220820 Beehives in the Muniellos Nature Reserve, Asturias province, Spain (© ABB Photo/Shutterstock)
 
 ![](20220820_BearProof_1920x1080.jpg)
