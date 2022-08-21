@@ -1,4 +1,4 @@
-#### 20220821 加利西亚省科斯塔达莫尔特的灯塔，西班牙 (© Carlos Fernandez/Getty Images)
+#### 20220821 Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)
 
 ![](images/2022-08/20220821_CostadaMorte_1920x1080.jpg)
 
