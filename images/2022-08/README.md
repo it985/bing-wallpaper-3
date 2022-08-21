@@ -1,3 +1,7 @@
+#### 20220822 南佛罗里达的一只穴小鸮雏鸟和一只成年穴小鸮，美国 (© Carlos Carreno/Getty Images)
+
+![](20220822_TenderMoment_1920x1080.jpg)
+
 #### 20220821 Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)
 
 ![](20220821_CostadaMorte_1920x1080.jpg)

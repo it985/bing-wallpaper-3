@@ -1,3 +1,7 @@
+#### 20220822 南佛罗里达的一只穴小鸮雏鸟和一只成年穴小鸮，美国 (© Carlos Carreno/Getty Images)
+
+![](images/2022-08/20220822_TenderMoment_1920x1080.jpg)
+
 #### 20220821 Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)
 
 ![](images/2022-08/20220821_CostadaMorte_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220813 阿斯佩山谷中的蒙塔尼翁湖，法国 (© thieury/Adobe photo stock)
 
 ![](images/2022-08/20220813_LacMontagnon_1920x1080.jpg)
-
-#### 20220813 Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)
-
-![](images/2022-08/20220813_BoundaryWaters_1920x1080.jpg)
 
 
 
