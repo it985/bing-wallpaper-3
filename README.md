@@ -1,4 +1,4 @@
-#### 20220822 南佛罗里达的一只穴小鸮雏鸟和一只成年穴小鸮，美国 (© Carlos Carreno/Getty Images)
+#### 20220822 A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)
 
 ![](images/2022-08/20220822_TenderMoment_1920x1080.jpg)
 
