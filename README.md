@@ -1,3 +1,7 @@
+#### 20220823 芒通，法国 (© Flavio Foglietta/Getty Images)
+
+![](images/2022-08/20220823_MentonFrance_1920x1080.jpg)
+
 #### 20220822 A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)
 
 ![](images/2022-08/20220822_TenderMoment_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220814 Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)
 
 ![](images/2022-08/20220814_PantherChameleon_1920x1080.jpg)
-
-#### 20220813 阿斯佩山谷中的蒙塔尼翁湖，法国 (© thieury/Adobe photo stock)
-
-![](images/2022-08/20220813_LacMontagnon_1920x1080.jpg)
 
 
 

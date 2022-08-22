@@ -1,3 +1,7 @@
+#### 20220823 芒通，法国 (© Flavio Foglietta/Getty Images)
+
+![](20220823_MentonFrance_1920x1080.jpg)
+
 #### 20220822 A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)
 
 ![](20220822_TenderMoment_1920x1080.jpg)
