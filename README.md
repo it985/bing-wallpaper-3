@@ -1,3 +1,11 @@
+#### 20220824 小麦畑, ウクライナ (© Yuriy Kulik/Getty Images)
+
+![](images/2022-08/20220824_WheatField_1920x1080.jpg)
+
+#### 20220824 格洛里亚附近的码头和糖面包山，巴西里约热内卢 (© f11photo/Getty Images)
+
+![](images/2022-08/20220824_MarinaDaGloria_1920x1080.jpg)
+
 #### 20220823 Menton, France (© Flavio Foglietta/Getty Images)
 
 ![](images/2022-08/20220823_MentonFrance_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220816 Parc national des North Cascades, Washington, États-Unis (© Ethan Welty/Tandem Stills + Motion)
 
 ![](images/2022-08/20220816_CascadesNP_1920x1080.jpg)
-
-#### 20220815 Chittorgarh Fort, India (© Anand Purohit/Getty Images)
-
-![](images/2022-08/20220815_ChittorgarhFort_1920x1080.jpg)
-
-#### 20220814 Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)
-
-![](images/2022-08/20220814_PantherChameleon_1920x1080.jpg)
 
 
 

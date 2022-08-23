@@ -1,3 +1,11 @@
+#### 20220824 小麦畑, ウクライナ (© Yuriy Kulik/Getty Images)
+
+![](20220824_WheatField_1920x1080.jpg)
+
+#### 20220824 格洛里亚附近的码头和糖面包山，巴西里约热内卢 (© f11photo/Getty Images)
+
+![](20220824_MarinaDaGloria_1920x1080.jpg)
+
 #### 20220823 Menton, France (© Flavio Foglietta/Getty Images)
 
 ![](20220823_MentonFrance_1920x1080.jpg)
