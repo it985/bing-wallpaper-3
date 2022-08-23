@@ -1,4 +1,4 @@
-#### 20220823 芒通，法国 (© Flavio Foglietta/Getty Images)
+#### 20220823 Menton, France (© Flavio Foglietta/Getty Images)
 
 ![](20220823_MentonFrance_1920x1080.jpg)
 
