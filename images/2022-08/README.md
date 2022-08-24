@@ -1,4 +1,8 @@
-#### 20220824 小麦畑, ウクライナ (© Yuriy Kulik/Getty Images)
+#### 20220825 Santa Bárbara Waterfall, Cavalcante, Goiás, Brazil (© Rafael Serathiuk/Getty Images)
+
+![](20220825_SantaBarbara_1920x1080.jpg)
+
+#### 20220824 Wheat field in Ukraine (© Yuriy Kulik/Getty Images)
 
 ![](20220824_WheatField_1920x1080.jpg)
 

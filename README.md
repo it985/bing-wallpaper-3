@@ -1,4 +1,8 @@
-#### 20220824 小麦畑, ウクライナ (© Yuriy Kulik/Getty Images)
+#### 20220825 Santa Bárbara Waterfall, Cavalcante, Goiás, Brazil (© Rafael Serathiuk/Getty Images)
+
+![](images/2022-08/20220825_SantaBarbara_1920x1080.jpg)
+
+#### 20220824 Wheat field in Ukraine (© Yuriy Kulik/Getty Images)
 
 ![](images/2022-08/20220824_WheatField_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20220816 五山送り火, 京都 (© Hideaki Tanaka/AFLO)
 
 ![](images/2022-08/20220816_Daimonji_1920x1080.jpg)
-
-#### 20220816 Parc national des North Cascades, Washington, États-Unis (© Ethan Welty/Tandem Stills + Motion)
-
-![](images/2022-08/20220816_CascadesNP_1920x1080.jpg)
 
 
 
