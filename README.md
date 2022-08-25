@@ -1,3 +1,7 @@
+#### 20220826 克罗地亚佩列沙茨半岛附近的风筝冲浪者和风帆冲浪者 (© helivideo/Getty Images)
+
+![](images/2022-08/20220826_PeljesacWind_1920x1080.jpg)
+
 #### 20220825 Santa Bárbara Waterfall, Cavalcante, Goiás, Brazil (© Rafael Serathiuk/Getty Images)
 
 ![](images/2022-08/20220825_SantaBarbara_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220818 Källö-Knippla, an island in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)
 
 ![](images/2022-08/20220818_SourHerring_1920x1080.jpg)
-
-#### 20220817 Reetdachhäuser bei Hörnum auf Sylt, Schleswig-Holstein (© Francesco Carovillano/eStock Photo)
-
-![](images/2022-08/20220817_SyltNordseeHoernum_1920x1080.jpg)
 
 
 

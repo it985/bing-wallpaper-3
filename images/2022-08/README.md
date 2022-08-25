@@ -1,3 +1,7 @@
+#### 20220826 克罗地亚佩列沙茨半岛附近的风筝冲浪者和风帆冲浪者 (© helivideo/Getty Images)
+
+![](20220826_PeljesacWind_1920x1080.jpg)
+
 #### 20220825 Santa Bárbara Waterfall, Cavalcante, Goiás, Brazil (© Rafael Serathiuk/Getty Images)
 
 ![](20220825_SantaBarbara_1920x1080.jpg)
