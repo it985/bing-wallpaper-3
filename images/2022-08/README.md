@@ -46,6 +46,10 @@
 
 ![](20220819_PenzancePool_1920x1080.jpg)
 
+#### 20220819 Lac du Montagnon, Aydius, Haut-Béarn, Pyrénées Atlantiques, Nouvelle Aquitaine (© thieury/Adobe photo stock)
+
+![](20220819_LacMontagnon_1920x1080.jpg)
+
 #### 20220818 Källö-Knippla, an island in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)
 
 ![](20220818_SourHerring_1920x1080.jpg)
