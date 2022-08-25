@@ -2,6 +2,14 @@
 
 ![](20220825_SantaBarbara_1920x1080.jpg)
 
+#### 20220825 Foule lors d’un concert au festival Rock en Seine le 31 août 2015, Domaine national de Saint-Cloud (© Christian Bertrand/Alamy Stock Photo)
+
+![](20220825_RockenSeine_1920x1080.jpg)
+
+#### 20220825 Skyline von Köln im Sonnenuntergang, Nordrhein-Westfalen (© SnapRapid/Offset/Shutterstock)
+
+![](20220825_KoelnRheinDom_1920x1080.jpg)
+
 #### 20220824 Wheat field in Ukraine (© Yuriy Kulik/Getty Images)
 
 ![](20220824_WheatField_1920x1080.jpg)

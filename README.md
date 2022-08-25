@@ -2,6 +2,14 @@
 
 ![](images/2022-08/20220825_SantaBarbara_1920x1080.jpg)
 
+#### 20220825 Foule lors d’un concert au festival Rock en Seine le 31 août 2015, Domaine national de Saint-Cloud (© Christian Bertrand/Alamy Stock Photo)
+
+![](images/2022-08/20220825_RockenSeine_1920x1080.jpg)
+
+#### 20220825 Skyline von Köln im Sonnenuntergang, Nordrhein-Westfalen (© SnapRapid/Offset/Shutterstock)
+
+![](images/2022-08/20220825_KoelnRheinDom_1920x1080.jpg)
+
 #### 20220824 Wheat field in Ukraine (© Yuriy Kulik/Getty Images)
 
 ![](images/2022-08/20220824_WheatField_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220816 A stream of water flows through the Sasquatch Provincial Park, Fraser Valley, B.C. (© Jason Wilde/Tandem Stills + Motion)
 
 ![](images/2022-08/20220816_SasquatchStream_1920x1080.jpg)
-
-#### 20220816 The Great White Roller Coaster at Wildwood, New Jersey (© John Van Decker/Alamy)
-
-![](images/2022-08/20220816_GreatWhiteRoller_1920x1080.jpg)
-
-#### 20220816 五山送り火, 京都 (© Hideaki Tanaka/AFLO)
-
-![](images/2022-08/20220816_Daimonji_1920x1080.jpg)
 
 
 
