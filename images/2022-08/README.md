@@ -18,6 +18,10 @@
 
 ![](20220825_KoelnRheinDom_1920x1080.jpg)
 
+#### 20220825 North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)
+
+![](20220825_CascadesNP_1920x1080.jpg)
+
 #### 20220824 Wheat field in Ukraine (© Yuriy Kulik/Getty Images)
 
 ![](20220824_WheatField_1920x1080.jpg)

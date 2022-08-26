@@ -18,6 +18,10 @@
 
 ![](images/2022-08/20220825_KoelnRheinDom_1920x1080.jpg)
 
+#### 20220825 North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)
+
+![](images/2022-08/20220825_CascadesNP_1920x1080.jpg)
+
 #### 20220824 Wheat field in Ukraine (© Yuriy Kulik/Getty Images)
 
 ![](images/2022-08/20220824_WheatField_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220819 康沃尔郡的彭赞斯，英国 (© Murray Bosley Photography/Getty Images)
 
 ![](images/2022-08/20220819_PenzancePool_1920x1080.jpg)
-
-#### 20220819 Lac du Montagnon, Aydius, Haut-Béarn, Pyrénées Atlantiques, Nouvelle Aquitaine (© thieury/Adobe photo stock)
-
-![](images/2022-08/20220819_LacMontagnon_1920x1080.jpg)
 
 
 
