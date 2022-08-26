@@ -1,4 +1,4 @@
-#### 20220826 克罗地亚佩列沙茨半岛附近的风筝冲浪者和风帆冲浪者 (© helivideo/Getty Images)
+#### 20220826 Kiteboarders and windsurfers off the Pelješac Peninsula, Croatia (© helivideo/Getty Images)
 
 ![](20220826_PeljesacWind_1920x1080.jpg)
 
