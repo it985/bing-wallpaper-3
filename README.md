@@ -1,3 +1,7 @@
+#### 20220827 圣海伦斯山国家火山纪念区的边界小径，美国华盛顿州 (© Don Geyer/Alamy)
+
+![](images/2022-08/20220827_MSHV_1920x1080.jpg)
+
 #### 20220826 Kiteboarders and windsurfers off the Pelješac Peninsula, Croatia (© helivideo/Getty Images)
 
 ![](images/2022-08/20220826_PeljesacWind_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220819 Lac du Montagnon, Aydius, Haut-Béarn, Pyrénées Atlantiques, Nouvelle Aquitaine (© thieury/Adobe photo stock)
 
 ![](images/2022-08/20220819_LacMontagnon_1920x1080.jpg)
-
-#### 20220818 Källö-Knippla, an island in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)
-
-![](images/2022-08/20220818_SourHerring_1920x1080.jpg)
 
 
 
