@@ -1,3 +1,7 @@
+#### 20220828 荷兰弗莱福兰湿地的文须雀 (© Gert-Jan IJzerman/Minden Pictures)
+
+![](20220828_BeardedTit_1920x1080.jpg)
+
 #### 20220827 Boundary Trail in Mount St. Helens National Volcanic Monument, Washington (© Don Geyer/Alamy)
 
 ![](20220827_MSHV_1920x1080.jpg)
