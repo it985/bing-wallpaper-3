@@ -1,4 +1,4 @@
-#### 20220827 圣海伦斯山国家火山纪念区的边界小径，美国华盛顿州 (© Don Geyer/Alamy)
+#### 20220827 Boundary Trail in Mount St. Helens National Volcanic Monument, Washington (© Don Geyer/Alamy)
 
 ![](20220827_MSHV_1920x1080.jpg)
 
