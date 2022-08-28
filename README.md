@@ -1,3 +1,7 @@
+#### 20220828 Ostseeküste, Estland (© fotoman-kharkov/Getty Images)
+
+![](images/2022-08/20220828_EstoniaBaltic_1920x1080.jpg)
+
 #### 20220828 荷兰弗莱福兰湿地的文须雀 (© Gert-Jan IJzerman/Minden Pictures)
 
 ![](images/2022-08/20220828_BeardedTit_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220819 The Swing Tower at CNE, Toronto (© Brett Ida/Shutterstock)
 
 ![](images/2022-08/20220819_SwingEx_1920x1080.jpg)
-
-#### 20220819 Solar Impulse 2 flying over the pyramids in Giza, Egypt (© Jean Revillard/Solar Impulse2 via Getty Images)
-
-![](images/2022-08/20220819_SolarImpulse_1920x1080.jpg)
 
 
 

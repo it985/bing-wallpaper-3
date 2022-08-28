@@ -1,3 +1,7 @@
+#### 20220828 Ostseeküste, Estland (© fotoman-kharkov/Getty Images)
+
+![](20220828_EstoniaBaltic_1920x1080.jpg)
+
 #### 20220828 荷兰弗莱福兰湿地的文须雀 (© Gert-Jan IJzerman/Minden Pictures)
 
 ![](20220828_BeardedTit_1920x1080.jpg)
