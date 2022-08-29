@@ -1,3 +1,7 @@
+#### 20220829 Hausboote auf dem Eilbekkanal, Hamburg (© Kerstin Bittner/Offset)
+
+![](20220829_HausbooteHamburg_1920x1080.jpg)
+
 #### 20220828 Ostseeküste, Estland (© fotoman-kharkov/Getty Images)
 
 ![](20220828_EstoniaBaltic_1920x1080.jpg)

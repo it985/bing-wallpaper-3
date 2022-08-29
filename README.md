@@ -1,3 +1,7 @@
+#### 20220829 Hausboote auf dem Eilbekkanal, Hamburg (© Kerstin Bittner/Offset)
+
+![](images/2022-08/20220829_HausbooteHamburg_1920x1080.jpg)
+
 #### 20220828 Ostseeküste, Estland (© fotoman-kharkov/Getty Images)
 
 ![](images/2022-08/20220828_EstoniaBaltic_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220820 Beehives in the Muniellos Nature Reserve, Asturias province, Spain (© ABB Photo/Shutterstock)
 
 ![](images/2022-08/20220820_BearProof_1920x1080.jpg)
-
-#### 20220819 The Swing Tower at CNE, Toronto (© Brett Ida/Shutterstock)
-
-![](images/2022-08/20220819_SwingEx_1920x1080.jpg)
 
 
 
