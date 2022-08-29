@@ -1,3 +1,7 @@
+#### 20220830 米利亚里诺自然公园，圣罗索尔，意大利马萨西犹可利 (© Stefano Valeri/Alamy)
+
+![](images/2022-08/20220830_Migliarino_1920x1080.jpg)
+
 #### 20220829 Hausboote auf dem Eilbekkanal, Hamburg (© Kerstin Bittner/Offset)
 
 ![](images/2022-08/20220829_HausbooteHamburg_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220821 Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)
 
 ![](images/2022-08/20220821_CostadaMorte_1920x1080.jpg)
-
-#### 20220820 Beehives in the Muniellos Nature Reserve, Asturias province, Spain (© ABB Photo/Shutterstock)
-
-![](images/2022-08/20220820_BearProof_1920x1080.jpg)
 
 
 

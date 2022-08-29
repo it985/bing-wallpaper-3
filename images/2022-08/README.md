@@ -1,3 +1,7 @@
+#### 20220830 米利亚里诺自然公园，圣罗索尔，意大利马萨西犹可利 (© Stefano Valeri/Alamy)
+
+![](20220830_Migliarino_1920x1080.jpg)
+
 #### 20220829 Hausboote auf dem Eilbekkanal, Hamburg (© Kerstin Bittner/Offset)
 
 ![](20220829_HausbooteHamburg_1920x1080.jpg)
