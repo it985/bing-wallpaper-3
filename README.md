@@ -2,7 +2,7 @@
 
 ![](images/2022-08/20220829_HausbooteHamburg_1920x1080.jpg)
 
-#### 20220828 Ostseeküste, Estland (© fotoman-kharkov/Getty Images)
+#### 20220828 Baltic Sea in Estonia (© fotoman-kharkov/Getty Images)
 
 ![](images/2022-08/20220828_EstoniaBaltic_1920x1080.jpg)
 
