@@ -1,4 +1,4 @@
-#### 20220830 米利亚里诺自然公园，圣罗索尔，意大利马萨西犹可利 (© Stefano Valeri/Alamy)
+#### 20220830 Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)
 
 ![](images/2022-08/20220830_Migliarino_1920x1080.jpg)
 
