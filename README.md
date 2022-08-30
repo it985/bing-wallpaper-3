@@ -38,6 +38,10 @@
 
 ![](images/2022-08/20220825_RockenSeine_1920x1080.jpg)
 
+#### 20220825 Penzance in Cornwall, England (© Murray Bosley Photography/Getty Images)
+
+![](images/2022-08/20220825_PenzancePool_1920x1080.jpg)
+
 #### 20220825 Skyline von Köln im Sonnenuntergang, Nordrhein-Westfalen (© SnapRapid/Offset/Shutterstock)
 
 ![](images/2022-08/20220825_KoelnRheinDom_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220824 格洛里亚附近的码头和糖面包山，巴西里约热内卢 (© f11photo/Getty Images)
 
 ![](images/2022-08/20220824_MarinaDaGloria_1920x1080.jpg)
-
-#### 20220823 Menton, France (© Flavio Foglietta/Getty Images)
-
-![](images/2022-08/20220823_MentonFrance_1920x1080.jpg)
 
 
 

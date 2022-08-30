@@ -38,6 +38,10 @@
 
 ![](20220825_RockenSeine_1920x1080.jpg)
 
+#### 20220825 Penzance in Cornwall, England (© Murray Bosley Photography/Getty Images)
+
+![](20220825_PenzancePool_1920x1080.jpg)
+
 #### 20220825 Skyline von Köln im Sonnenuntergang, Nordrhein-Westfalen (© SnapRapid/Offset/Shutterstock)
 
 ![](20220825_KoelnRheinDom_1920x1080.jpg)
