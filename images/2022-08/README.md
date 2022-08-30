@@ -1,3 +1,11 @@
+#### 20220831 エコダクト, オランダ ウィールデン (© Frans Lemmens/Alamy)
+
+![](20220831_WildlifeCrossing_1920x1080.jpg)
+
+#### 20220831 新爱尔兰岛上的蓝指海星，巴布亚新几内亚 (© Jurgen Freund/Minden Pictures)
+
+![](20220831_BlueLinckia_1920x1080.jpg)
+
 #### 20220830 Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)
 
 ![](20220830_Migliarino_1920x1080.jpg)

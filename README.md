@@ -1,3 +1,11 @@
+#### 20220831 エコダクト, オランダ ウィールデン (© Frans Lemmens/Alamy)
+
+![](images/2022-08/20220831_WildlifeCrossing_1920x1080.jpg)
+
+#### 20220831 新爱尔兰岛上的蓝指海星，巴布亚新几内亚 (© Jurgen Freund/Minden Pictures)
+
+![](images/2022-08/20220831_BlueLinckia_1920x1080.jpg)
+
 #### 20220830 Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)
 
 ![](images/2022-08/20220830_Migliarino_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220823 Menton, France (© Flavio Foglietta/Getty Images)
 
 ![](images/2022-08/20220823_MentonFrance_1920x1080.jpg)
-
-#### 20220822 A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)
-
-![](images/2022-08/20220822_TenderMoment_1920x1080.jpg)
-
-#### 20220821 Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)
-
-![](images/2022-08/20220821_CostadaMorte_1920x1080.jpg)
 
 
 
