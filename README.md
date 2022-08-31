@@ -1,3 +1,7 @@
+#### 20220901 セイタン・リマニア・ビーチ, ギリシャ クレタ島 (© Georgios Tsichlis/Alamy)
+
+![](images/2022-09/20220901_SeitanLimania_1920x1080.jpg)
+
 #### 20220831 エコダクト, オランダ ウィールデン (© Frans Lemmens/Alamy)
 
 ![](images/2022-08/20220831_WildlifeCrossing_1920x1080.jpg)
@@ -54,10 +58,6 @@
 
 ![](images/2022-08/20220824_WheatField_1920x1080.jpg)
 
-#### 20220824 格洛里亚附近的码头和糖面包山，巴西里约热内卢 (© f11photo/Getty Images)
-
-![](images/2022-08/20220824_MarinaDaGloria_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2022&emsp;&emsp;[08](images/2022-08/README.md) &emsp;&emsp;[07](images/2022-07/README.md) &emsp;&emsp;[06](images/2022-06/README.md) &emsp;&emsp;[05](images/2022-05/README.md) &emsp;&emsp;[04](images/2022-04/README.md) &emsp;&emsp;[03](images/2022-03/README.md) &emsp;&emsp;[02](images/2022-02/README.md) &emsp;&emsp;[01](images/2022-01/README.md) 
+- 2022&emsp;&emsp;[09](images/2022-09/README.md) &emsp;&emsp;[08](images/2022-08/README.md) &emsp;&emsp;[07](images/2022-07/README.md) &emsp;&emsp;[06](images/2022-06/README.md) &emsp;&emsp;[05](images/2022-05/README.md) &emsp;&emsp;[04](images/2022-04/README.md) &emsp;&emsp;[03](images/2022-03/README.md) &emsp;&emsp;[02](images/2022-02/README.md) &emsp;&emsp;[01](images/2022-01/README.md) 
 
 - 2021&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2021/images/2021-01/README.md) 
 
