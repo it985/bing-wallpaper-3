@@ -2,7 +2,7 @@
 
 ![](images/2022-08/20220831_WildlifeCrossing_1920x1080.jpg)
 
-#### 20220831 新爱尔兰岛上的蓝指海星，巴布亚新几内亚 (© Jurgen Freund/Minden Pictures)
+#### 20220831 Blue linckia sea stars off New Ireland in Papua New Guinea (© Jurgen Freund/Minden Pictures)
 
 ![](images/2022-08/20220831_BlueLinckia_1920x1080.jpg)
 
