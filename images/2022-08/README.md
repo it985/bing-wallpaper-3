@@ -1,4 +1,4 @@
-#### 20220831 エコダクト, オランダ ウィールデン (© Frans Lemmens/Alamy)
+#### 20220831 Wildlife crossing in Wierden, Netherlands (© Frans Lemmens/Alamy)
 
 ![](20220831_WildlifeCrossing_1920x1080.jpg)
 

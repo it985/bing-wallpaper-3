@@ -6,7 +6,7 @@
 
 ![](images/2022-09/20220901_LearningTime_1920x1080.jpg)
 
-#### 20220831 エコダクト, オランダ ウィールデン (© Frans Lemmens/Alamy)
+#### 20220831 Wildlife crossing in Wierden, Netherlands (© Frans Lemmens/Alamy)
 
 ![](images/2022-08/20220831_WildlifeCrossing_1920x1080.jpg)
 
