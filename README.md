@@ -1,3 +1,7 @@
+#### 20220902 ペトロナスツインタワー, マレーシア クアラルンプール (© tampatra/Getty Images)
+
+![](images/2022-09/20220902_MalaysiaTwinTowers_1920x1080.jpg)
+
 #### 20220901 セイタン・リマニア・ビーチ, ギリシャ クレタ島 (© Georgios Tsichlis/Alamy)
 
 ![](images/2022-09/20220901_SeitanLimania_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220825 Skyline von Köln im Sonnenuntergang, Nordrhein-Westfalen (© SnapRapid/Offset/Shutterstock)
 
 ![](images/2022-08/20220825_KoelnRheinDom_1920x1080.jpg)
-
-#### 20220825 North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)
-
-![](images/2022-08/20220825_CascadesNP_1920x1080.jpg)
 
 
 
