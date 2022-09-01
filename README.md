@@ -2,6 +2,10 @@
 
 ![](images/2022-09/20220901_SeitanLimania_1920x1080.jpg)
 
+#### 20220901 Clôture en bois en forme de crayons de couleur devant une école de Bretagne (© PeterAprahamian/Getty Images)
+
+![](images/2022-09/20220901_LearningTime_1920x1080.jpg)
+
 #### 20220831 エコダクト, オランダ ウィールデン (© Frans Lemmens/Alamy)
 
 ![](images/2022-08/20220831_WildlifeCrossing_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220825 North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)
 
 ![](images/2022-08/20220825_CascadesNP_1920x1080.jpg)
-
-#### 20220824 Wheat field in Ukraine (© Yuriy Kulik/Getty Images)
-
-![](images/2022-08/20220824_WheatField_1920x1080.jpg)
 
 
 
