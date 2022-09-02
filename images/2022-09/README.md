@@ -1,3 +1,7 @@
+#### 20220903 Lake Braies, Prags Dolomites, South Tyrol, Italy  (© Daniel Dickman/Getty Images)
+
+![](20220903_LagoBraies_1920x1080.jpg)
+
 #### 20220902 Les planches de Deauville et les cabines aux noms de personnalités du cinéma américain, Calvados (© Rene Mattes/mauritius images GmbH/Alamy Stock Photo)
 
 ![](20220902_USFilmFestival_1920x1080.jpg)
@@ -10,7 +14,7 @@
 
 ![](20220902_FernsehturmNah_1920x1080.jpg)
 
-#### 20220901 セイタン・リマニア・ビーチ, ギリシャ クレタ島 (© Georgios Tsichlis/Alamy)
+#### 20220901 Seitan Limania Beach in Crete, Greece (© Georgios Tsichlis/Alamy)
 
 ![](20220901_SeitanLimania_1920x1080.jpg)
 
