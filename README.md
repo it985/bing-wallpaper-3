@@ -1,6 +1,14 @@
+#### 20220902 Les planches de Deauville et les cabines aux noms de personnalités du cinéma américain, Calvados (© Rene Mattes/mauritius images GmbH/Alamy Stock Photo)
+
+![](images/2022-09/20220902_USFilmFestival_1920x1080.jpg)
+
 #### 20220902 ペトロナスツインタワー, マレーシア クアラルンプール (© tampatra/Getty Images)
 
 ![](images/2022-09/20220902_MalaysiaTwinTowers_1920x1080.jpg)
+
+#### 20220902 Nahaufnahme des Berliner Fernsehturms (© Nico Gel/Getty Images)
+
+![](images/2022-09/20220902_FernsehturmNah_1920x1080.jpg)
 
 #### 20220901 セイタン・リマニア・ビーチ, ギリシャ クレタ島 (© Georgios Tsichlis/Alamy)
 
@@ -49,14 +57,6 @@
 #### 20220825 Foule lors d’un concert au festival Rock en Seine le 31 août 2015, Domaine national de Saint-Cloud (© Christian Bertrand/Alamy Stock Photo)
 
 ![](images/2022-08/20220825_RockenSeine_1920x1080.jpg)
-
-#### 20220825 Penzance in Cornwall, England (© Murray Bosley Photography/Getty Images)
-
-![](images/2022-08/20220825_PenzancePool_1920x1080.jpg)
-
-#### 20220825 Skyline von Köln im Sonnenuntergang, Nordrhein-Westfalen (© SnapRapid/Offset/Shutterstock)
-
-![](images/2022-08/20220825_KoelnRheinDom_1920x1080.jpg)
 
 
 
