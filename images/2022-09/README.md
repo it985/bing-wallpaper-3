@@ -2,6 +2,10 @@
 
 ![](20220903_LagoBraies_1920x1080.jpg)
 
+#### 20220903 眠るタテゴトアザラシ, 米国 ニューヨーク州  (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](20220903_JonesBeachHarpSeal_1920x1080.jpg)
+
 #### 20220902 Les planches de Deauville et les cabines aux noms de personnalités du cinéma américain, Calvados (© Rene Mattes/mauritius images GmbH/Alamy Stock Photo)
 
 ![](20220902_USFilmFestival_1920x1080.jpg)

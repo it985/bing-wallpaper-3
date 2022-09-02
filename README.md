@@ -2,6 +2,10 @@
 
 ![](images/2022-09/20220903_LagoBraies_1920x1080.jpg)
 
+#### 20220903 眠るタテゴトアザラシ, 米国 ニューヨーク州  (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](images/2022-09/20220903_JonesBeachHarpSeal_1920x1080.jpg)
+
 #### 20220902 Les planches de Deauville et les cabines aux noms de personnalités du cinéma américain, Calvados (© Rene Mattes/mauritius images GmbH/Alamy Stock Photo)
 
 ![](images/2022-09/20220902_USFilmFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220826 Kiteboarders and windsurfers off the Pelješac Peninsula, Croatia (© helivideo/Getty Images)
 
 ![](images/2022-08/20220826_PeljesacWind_1920x1080.jpg)
-
-#### 20220825 Santa Bárbara Waterfall, Cavalcante, Goiás, Brazil (© Rafael Serathiuk/Getty Images)
-
-![](images/2022-08/20220825_SantaBarbara_1920x1080.jpg)
 
 
 
