@@ -10,7 +10,7 @@
 
 ![](20220902_USFilmFestival_1920x1080.jpg)
 
-#### 20220902 ペトロナスツインタワー, マレーシア クアラルンプール (© tampatra/Getty Images)
+#### 20220902 Petronas Twin Towers, Kuala Lumpur, Malaysia (© tampatra/Getty Images)
 
 ![](20220902_MalaysiaTwinTowers_1920x1080.jpg)
 
