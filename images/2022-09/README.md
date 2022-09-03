@@ -1,3 +1,7 @@
+#### 20220904 果阿邦的阿兰博尔海滩，印度 (© Ben Pipe/Alamy)
+
+![](20220904_ArambolBeach_1920x1080.jpg)
+
 #### 20220903 Lake Braies, Prags Dolomites, South Tyrol, Italy  (© Daniel Dickman/Getty Images)
 
 ![](20220903_LagoBraies_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20220904 果阿邦的阿兰博尔海滩，印度 (© Ben Pipe/Alamy)
+
+![](images/2022-09/20220904_ArambolBeach_1920x1080.jpg)
+
 #### 20220903 Lake Braies, Prags Dolomites, South Tyrol, Italy  (© Daniel Dickman/Getty Images)
 
 ![](images/2022-09/20220903_LagoBraies_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220827 Boundary Trail in Mount St. Helens National Volcanic Monument, Washington (© Don Geyer/Alamy)
 
 ![](images/2022-08/20220827_MSHV_1920x1080.jpg)
-
-#### 20220826 Kiteboarders and windsurfers off the Pelješac Peninsula, Croatia (© helivideo/Getty Images)
-
-![](images/2022-08/20220826_PeljesacWind_1920x1080.jpg)
 
 
 
