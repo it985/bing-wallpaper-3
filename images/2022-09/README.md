@@ -1,3 +1,7 @@
+#### 20220905 北魁北克的公路，加拿大 (© Posnov/Getty Images)
+
+![](20220905_TaigaRoad_1920x1080.jpg)
+
 #### 20220904 Arambol Beach in Goa, India (© Ben Pipe/Alamy)
 
 ![](20220904_ArambolBeach_1920x1080.jpg)
