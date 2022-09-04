@@ -1,4 +1,4 @@
-#### 20220904 果阿邦的阿兰博尔海滩，印度 (© Ben Pipe/Alamy)
+#### 20220904 Arambol Beach in Goa, India (© Ben Pipe/Alamy)
 
 ![](20220904_ArambolBeach_1920x1080.jpg)
 
