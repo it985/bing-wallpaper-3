@@ -2,6 +2,10 @@
 
 ![](images/2022-09/20220905_TaigaRoad_1920x1080.jpg)
 
+#### 20220905 Labor Day parade in 1934, Gastonia, North Carolina (© Bettmann/Getty Images)
+
+![](images/2022-09/20220905_GastoniaParade_1920x1080.jpg)
+
 #### 20220905 Luftaufnahme der Bréhat-Inseln im Ärmelkanal, Bretagne, Frankreich (© LECLERCQ Olivier/hemis.fr/Alamy)
 
 ![](images/2022-09/20220905_BrehatIsland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220829 Hausboote auf dem Eilbekkanal, Hamburg (© Kerstin Bittner/Offset)
 
 ![](images/2022-08/20220829_HausbooteHamburg_1920x1080.jpg)
-
-#### 20220828 Baltic Sea in Estonia (© fotoman-kharkov/Getty Images)
-
-![](images/2022-08/20220828_EstoniaBaltic_1920x1080.jpg)
 
 
 

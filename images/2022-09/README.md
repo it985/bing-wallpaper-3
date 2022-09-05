@@ -2,6 +2,10 @@
 
 ![](20220905_TaigaRoad_1920x1080.jpg)
 
+#### 20220905 Labor Day parade in 1934, Gastonia, North Carolina (© Bettmann/Getty Images)
+
+![](20220905_GastoniaParade_1920x1080.jpg)
+
 #### 20220905 Luftaufnahme der Bréhat-Inseln im Ärmelkanal, Bretagne, Frankreich (© LECLERCQ Olivier/hemis.fr/Alamy)
 
 ![](20220905_BrehatIsland_1920x1080.jpg)
