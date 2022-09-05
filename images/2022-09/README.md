@@ -2,6 +2,10 @@
 
 ![](20220905_TaigaRoad_1920x1080.jpg)
 
+#### 20220905 Luftaufnahme der Bréhat-Inseln im Ärmelkanal, Bretagne, Frankreich (© LECLERCQ Olivier/hemis.fr/Alamy)
+
+![](20220905_BrehatIsland_1920x1080.jpg)
+
 #### 20220904 Arambol Beach in Goa, India (© Ben Pipe/Alamy)
 
 ![](20220904_ArambolBeach_1920x1080.jpg)
