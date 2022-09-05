@@ -1,3 +1,7 @@
+#### 20220906 叼着蘑菇的红松鼠 (© Michael Quinton/Minden Pictures)
+
+![](20220906_SquirrelMushroom_1920x1080.jpg)
+
 #### 20220905 北魁北克的公路，加拿大 (© Posnov/Getty Images)
 
 ![](20220905_TaigaRoad_1920x1080.jpg)

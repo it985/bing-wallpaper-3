@@ -1,3 +1,7 @@
+#### 20220906 叼着蘑菇的红松鼠 (© Michael Quinton/Minden Pictures)
+
+![](images/2022-09/20220906_SquirrelMushroom_1920x1080.jpg)
+
 #### 20220905 北魁北克的公路，加拿大 (© Posnov/Getty Images)
 
 ![](images/2022-09/20220905_TaigaRoad_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220830 Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)
 
 ![](images/2022-08/20220830_Migliarino_1920x1080.jpg)
-
-#### 20220829 Hausboote auf dem Eilbekkanal, Hamburg (© Kerstin Bittner/Offset)
-
-![](images/2022-08/20220829_HausbooteHamburg_1920x1080.jpg)
 
 
 
