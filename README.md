@@ -1,4 +1,4 @@
-#### 20220906 叼着蘑菇的红松鼠 (© Michael Quinton/Minden Pictures)
+#### 20220906 Red squirrel carrying a mushroom (© Michael Quinton/Minden Pictures)
 
 ![](images/2022-09/20220906_SquirrelMushroom_1920x1080.jpg)
 
