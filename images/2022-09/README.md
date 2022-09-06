@@ -2,6 +2,10 @@
 
 ![](20220906_SquirrelMushroom_1920x1080.jpg)
 
+#### 20220906 Emerald Lake, Yoho National Park, B.C. (© Cavan Images/Offset)
+
+![](20220906_EmeraldYoho_1920x1080.jpg)
+
 #### 20220905 北魁北克的公路，加拿大 (© Posnov/Getty Images)
 
 ![](20220905_TaigaRoad_1920x1080.jpg)

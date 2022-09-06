@@ -2,6 +2,10 @@
 
 ![](images/2022-09/20220906_SquirrelMushroom_1920x1080.jpg)
 
+#### 20220906 Emerald Lake, Yoho National Park, B.C. (© Cavan Images/Offset)
+
+![](images/2022-09/20220906_EmeraldYoho_1920x1080.jpg)
+
 #### 20220905 北魁北克的公路，加拿大 (© Posnov/Getty Images)
 
 ![](images/2022-09/20220905_TaigaRoad_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220831 Blue linckia sea stars off New Ireland in Papua New Guinea (© Jurgen Freund/Minden Pictures)
 
 ![](images/2022-08/20220831_BlueLinckia_1920x1080.jpg)
-
-#### 20220830 Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)
-
-![](images/2022-08/20220830_Migliarino_1920x1080.jpg)
 
 
 
