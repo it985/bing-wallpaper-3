@@ -1,3 +1,11 @@
+#### 20220907 英格兰怀特岛上的尼德尔斯白垩岩石和19世纪的灯塔。 (© CBCK Christine/iStock/Getty Images Plus)
+
+![](images/2022-09/20220907_TheNeedles_1920x1080.jpg)
+
+#### 20220907 明日の博物館, ブラジル リオデジャネイロ (© Nido Huebl/Shutterstock)
+
+![](images/2022-09/20220907_MuseudoAmanha_1920x1080.jpg)
+
 #### 20220906 Red squirrel carrying a mushroom (© Michael Quinton/Minden Pictures)
 
 ![](images/2022-09/20220906_SquirrelMushroom_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220901 Clôture en bois en forme de crayons de couleur devant une école de Bretagne (© PeterAprahamian/Getty Images)
 
 ![](images/2022-09/20220901_LearningTime_1920x1080.jpg)
-
-#### 20220831 Wildlife crossing in Wierden, Netherlands (© Frans Lemmens/Alamy)
-
-![](images/2022-08/20220831_WildlifeCrossing_1920x1080.jpg)
-
-#### 20220831 Blue linckia sea stars off New Ireland in Papua New Guinea (© Jurgen Freund/Minden Pictures)
-
-![](images/2022-08/20220831_BlueLinckia_1920x1080.jpg)
 
 
 

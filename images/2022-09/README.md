@@ -1,3 +1,11 @@
+#### 20220907 英格兰怀特岛上的尼德尔斯白垩岩石和19世纪的灯塔。 (© CBCK Christine/iStock/Getty Images Plus)
+
+![](20220907_TheNeedles_1920x1080.jpg)
+
+#### 20220907 明日の博物館, ブラジル リオデジャネイロ (© Nido Huebl/Shutterstock)
+
+![](20220907_MuseudoAmanha_1920x1080.jpg)
+
 #### 20220906 Red squirrel carrying a mushroom (© Michael Quinton/Minden Pictures)
 
 ![](20220906_SquirrelMushroom_1920x1080.jpg)
