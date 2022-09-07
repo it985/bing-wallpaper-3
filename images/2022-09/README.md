@@ -1,3 +1,7 @@
+#### 20220908 从塞维利亚的都市阳伞俯瞰城市，西班牙 (© LucVi/Shutterstock)
+
+![](20220908_CircumnavigationAnni_1920x1080.jpg)
+
 #### 20220907 英格兰怀特岛上的尼德尔斯白垩岩石和19世纪的灯塔。 (© CBCK Christine/iStock/Getty Images Plus)
 
 ![](20220907_TheNeedles_1920x1080.jpg)

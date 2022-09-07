@@ -1,3 +1,7 @@
+#### 20220908 从塞维利亚的都市阳伞俯瞰城市，西班牙 (© LucVi/Shutterstock)
+
+![](images/2022-09/20220908_CircumnavigationAnni_1920x1080.jpg)
+
 #### 20220907 英格兰怀特岛上的尼德尔斯白垩岩石和19世纪的灯塔。 (© CBCK Christine/iStock/Getty Images Plus)
 
 ![](images/2022-09/20220907_TheNeedles_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220901 Seitan Limania Beach in Crete, Greece (© Georgios Tsichlis/Alamy)
 
 ![](images/2022-09/20220901_SeitanLimania_1920x1080.jpg)
-
-#### 20220901 Clôture en bois en forme de crayons de couleur devant une école de Bretagne (© PeterAprahamian/Getty Images)
-
-![](images/2022-09/20220901_LearningTime_1920x1080.jpg)
 
 
 
