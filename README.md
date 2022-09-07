@@ -2,7 +2,7 @@
 
 ![](images/2022-09/20220907_TheNeedles_1920x1080.jpg)
 
-#### 20220907 明日の博物館, ブラジル リオデジャネイロ (© Nido Huebl/Shutterstock)
+#### 20220907 Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)
 
 ![](images/2022-09/20220907_MuseudoAmanha_1920x1080.jpg)
 
