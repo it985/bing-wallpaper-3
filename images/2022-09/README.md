@@ -1,4 +1,4 @@
-#### 20220908 从塞维利亚的都市阳伞俯瞰城市，西班牙 (© LucVi/Shutterstock)
+#### 20220908 View of the city from the Setas de Sevilla (Metropol Parasol) in Seville, Spain (© LucVi/Shutterstock)
 
 ![](20220908_CircumnavigationAnni_1920x1080.jpg)
 
