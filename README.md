@@ -1,3 +1,7 @@
+#### 20220909 伯利兹堡礁保护区, 伯利兹 (© Tom Till/Alamy)
+
+![](images/2022-09/20220909_BHNMBelize_1920x1080.jpg)
+
 #### 20220908 View of the city from the Setas de Sevilla (Metropol Parasol) in Seville, Spain (© LucVi/Shutterstock)
 
 ![](images/2022-09/20220908_CircumnavigationAnni_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220902 Nahaufnahme des Berliner Fernsehturms (© Nico Gel/Getty Images)
 
 ![](images/2022-09/20220902_FernsehturmNah_1920x1080.jpg)
-
-#### 20220901 Seitan Limania Beach in Crete, Greece (© Georgios Tsichlis/Alamy)
-
-![](images/2022-09/20220901_SeitanLimania_1920x1080.jpg)
 
 
 
