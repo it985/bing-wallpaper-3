@@ -1,3 +1,11 @@
+#### 20220910 東京スカイツリー, 東京 墨田区 (© Krzysztof Baranowski/Getty Images)
+
+![](images/2022-09/20220910_SkyTreeMoon_1920x1080.jpg)
+
+#### 20220910 中秋之夜, 上海豫园 (© Zyxeos30/Getty images)
+
+![](images/2022-09/20220910_MidAutumn_1920x1080.jpg)
+
 #### 20220909 Toronto skyline and its reflection, Toronto (© Istvan Kadar Photography/Getty Images)
 
 ![](images/2022-09/20220909_TorontoTIFF_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220903 眠るタテゴトアザラシ, 米国 ニューヨーク州  (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2022-09/20220903_JonesBeachHarpSeal_1920x1080.jpg)
-
-#### 20220902 Les planches de Deauville et les cabines aux noms de personnalités du cinéma américain, Calvados (© Rene Mattes/mauritius images GmbH/Alamy Stock Photo)
-
-![](images/2022-09/20220902_USFilmFestival_1920x1080.jpg)
-
-#### 20220902 Petronas Twin Towers, Kuala Lumpur, Malaysia (© tampatra/Getty Images)
-
-![](images/2022-09/20220902_MalaysiaTwinTowers_1920x1080.jpg)
 
 
 

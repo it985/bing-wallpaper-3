@@ -1,3 +1,11 @@
+#### 20220910 東京スカイツリー, 東京 墨田区 (© Krzysztof Baranowski/Getty Images)
+
+![](20220910_SkyTreeMoon_1920x1080.jpg)
+
+#### 20220910 中秋之夜, 上海豫园 (© Zyxeos30/Getty images)
+
+![](20220910_MidAutumn_1920x1080.jpg)
+
 #### 20220909 Toronto skyline and its reflection, Toronto (© Istvan Kadar Photography/Getty Images)
 
 ![](20220909_TorontoTIFF_1920x1080.jpg)
