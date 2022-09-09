@@ -2,7 +2,7 @@
 
 ![](20220909_TorontoTIFF_1920x1080.jpg)
 
-#### 20220909 伯利兹堡礁保护区, 伯利兹 (© Tom Till/Alamy)
+#### 20220909 Lighthouse Reef, Blue Hole Natural Monument, Belize (© Tom Till/Alamy)
 
 ![](20220909_BHNMBelize_1920x1080.jpg)
 
