@@ -6,7 +6,7 @@
 
 ![](20220910_MidAutumn_1920x1080.jpg)
 
-#### 20220910 Mond-Installation während der Feierlichkeiten zum Mondfest in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)
+#### 20220910 Moon installation for the Mid-Autumn Festival in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)
 
 ![](20220910_KLMidAutumn_1920x1080.jpg)
 
