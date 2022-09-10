@@ -1,3 +1,7 @@
+#### 20220911 在喀拉拉邦河流中行驶的一艘小船，印度 (© Shutterstock)
+
+![](20220911_KeralaIndia_1920x1080.jpg)
+
 #### 20220910 東京スカイツリー, 東京 墨田区 (© Krzysztof Baranowski/Getty Images)
 
 ![](20220910_SkyTreeMoon_1920x1080.jpg)

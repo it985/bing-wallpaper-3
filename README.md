@@ -1,3 +1,7 @@
+#### 20220911 在喀拉拉邦河流中行驶的一艘小船，印度 (© Shutterstock)
+
+![](images/2022-09/20220911_KeralaIndia_1920x1080.jpg)
+
 #### 20220910 東京スカイツリー, 東京 墨田区 (© Krzysztof Baranowski/Getty Images)
 
 ![](images/2022-09/20220910_SkyTreeMoon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220904 Arambol Beach in Goa, India (© Ben Pipe/Alamy)
 
 ![](images/2022-09/20220904_ArambolBeach_1920x1080.jpg)
-
-#### 20220903 Lake Braies, Prags Dolomites, South Tyrol, Italy  (© Daniel Dickman/Getty Images)
-
-![](images/2022-09/20220903_LagoBraies_1920x1080.jpg)
 
 
 
