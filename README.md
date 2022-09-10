@@ -6,6 +6,10 @@
 
 ![](images/2022-09/20220910_MidAutumn_1920x1080.jpg)
 
+#### 20220910 Mond-Installation während der Feierlichkeiten zum Mondfest in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)
+
+![](images/2022-09/20220910_KLMidAutumn_1920x1080.jpg)
+
 #### 20220909 Toronto skyline and its reflection, Toronto (© Istvan Kadar Photography/Getty Images)
 
 ![](images/2022-09/20220909_TorontoTIFF_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220903 Lake Braies, Prags Dolomites, South Tyrol, Italy  (© Daniel Dickman/Getty Images)
 
 ![](images/2022-09/20220903_LagoBraies_1920x1080.jpg)
-
-#### 20220903 眠るタテゴトアザラシ, 米国 ニューヨーク州  (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
-
-![](images/2022-09/20220903_JonesBeachHarpSeal_1920x1080.jpg)
 
 
 

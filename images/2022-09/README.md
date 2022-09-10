@@ -6,6 +6,10 @@
 
 ![](20220910_MidAutumn_1920x1080.jpg)
 
+#### 20220910 Mond-Installation während der Feierlichkeiten zum Mondfest in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)
+
+![](20220910_KLMidAutumn_1920x1080.jpg)
+
 #### 20220909 Toronto skyline and its reflection, Toronto (© Istvan Kadar Photography/Getty Images)
 
 ![](20220909_TorontoTIFF_1920x1080.jpg)
