@@ -46,6 +46,10 @@
 
 ![](20220905_TaigaRoad_1920x1080.jpg)
 
+#### 20220905 Plage de Seitan Limania en Crète, Grèce (© Georgios Tsichlis/Alamy)
+
+![](20220905_SeitanLimania_1920x1080.jpg)
+
 #### 20220905 Labor Day parade in 1934, Gastonia, North Carolina (© Bettmann/Getty Images)
 
 ![](20220905_GastoniaParade_1920x1080.jpg)

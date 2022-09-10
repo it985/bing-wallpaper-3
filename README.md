@@ -46,6 +46,10 @@
 
 ![](images/2022-09/20220905_TaigaRoad_1920x1080.jpg)
 
+#### 20220905 Plage de Seitan Limania en Crète, Grèce (© Georgios Tsichlis/Alamy)
+
+![](images/2022-09/20220905_SeitanLimania_1920x1080.jpg)
+
 #### 20220905 Labor Day parade in 1934, Gastonia, North Carolina (© Bettmann/Getty Images)
 
 ![](images/2022-09/20220905_GastoniaParade_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220905 Luftaufnahme der Bréhat-Inseln im Ärmelkanal, Bretagne, Frankreich (© LECLERCQ Olivier/hemis.fr/Alamy)
 
 ![](images/2022-09/20220905_BrehatIsland_1920x1080.jpg)
-
-#### 20220904 Arambol Beach in Goa, India (© Ben Pipe/Alamy)
-
-![](images/2022-09/20220904_ArambolBeach_1920x1080.jpg)
 
 
 
