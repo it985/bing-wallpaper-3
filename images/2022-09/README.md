@@ -1,3 +1,11 @@
+#### 20220912 H-IIB ロケット打ち上げ, 鹿児島 (© The Asahi Shimbun/Getty Images)
+
+![](20220912_SpaceDay_1920x1080.jpg)
+
+#### 20220912 栗耳簇舌巨嘴鸟，巴西潘塔纳尔保护区里 (© Ana Gram/Shutterstock)
+
+![](20220912_Aracari_1920x1080.jpg)
+
 #### 20220911 Statue of Liberty seen behind US flags at half-staff for the anniversary of September 11 in 2014, New York City (© Adam Parent/Shutterstock)
 
 ![](20220911_SOLHalfStaff_1920x1080.jpg)
