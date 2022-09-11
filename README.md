@@ -1,3 +1,7 @@
+#### 20220911 Statue of Liberty seen behind US flags at half-staff for the anniversary of September 11 in 2014, New York City (© Adam Parent/Shutterstock)
+
+![](images/2022-09/20220911_SOLHalfStaff_1920x1080.jpg)
+
 #### 20220911 Massif du Mont Blanc au coucher du soleil se reflétant sur l’un des lacs de Chéserys, Chamonix, France (© Stefan Huwiler/imageBROKER/Alamy)
 
 ![](images/2022-09/20220911_LacChesserys_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220905 北魁北克的公路，加拿大 (© Posnov/Getty Images)
 
 ![](images/2022-09/20220905_TaigaRoad_1920x1080.jpg)
-
-#### 20220905 Plage de Seitan Limania en Crète, Grèce (© Georgios Tsichlis/Alamy)
-
-![](images/2022-09/20220905_SeitanLimania_1920x1080.jpg)
 
 
 
