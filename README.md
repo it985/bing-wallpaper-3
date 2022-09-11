@@ -1,6 +1,14 @@
+#### 20220911 Massif du Mont Blanc au coucher du soleil se reflétant sur l’un des lacs de Chéserys, Chamonix, France (© Stefan Huwiler/imageBROKER/Alamy)
+
+![](images/2022-09/20220911_LacChesserys_1920x1080.jpg)
+
 #### 20220911 在喀拉拉邦河流中行驶的一艘小船，印度 (© Shutterstock)
 
 ![](images/2022-09/20220911_KeralaIndia_1920x1080.jpg)
+
+#### 20220911 Treppenhaus im Schloss Augustusburg, Brühl, Nordrhein-Westfalen (© Florian Monheim/age fotostock)
+
+![](images/2022-09/20220911_AugustusburgBruehl_1920x1080.jpg)
 
 #### 20220910 東京スカイツリー, 東京 墨田区 (© Krzysztof Baranowski/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20220905 Plage de Seitan Limania en Crète, Grèce (© Georgios Tsichlis/Alamy)
 
 ![](images/2022-09/20220905_SeitanLimania_1920x1080.jpg)
-
-#### 20220905 Labor Day parade in 1934, Gastonia, North Carolina (© Bettmann/Getty Images)
-
-![](images/2022-09/20220905_GastoniaParade_1920x1080.jpg)
-
-#### 20220905 Luftaufnahme der Bréhat-Inseln im Ärmelkanal, Bretagne, Frankreich (© LECLERCQ Olivier/hemis.fr/Alamy)
-
-![](images/2022-09/20220905_BrehatIsland_1920x1080.jpg)
 
 
 

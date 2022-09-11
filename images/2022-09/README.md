@@ -1,6 +1,14 @@
+#### 20220911 Massif du Mont Blanc au coucher du soleil se reflétant sur l’un des lacs de Chéserys, Chamonix, France (© Stefan Huwiler/imageBROKER/Alamy)
+
+![](20220911_LacChesserys_1920x1080.jpg)
+
 #### 20220911 在喀拉拉邦河流中行驶的一艘小船，印度 (© Shutterstock)
 
 ![](20220911_KeralaIndia_1920x1080.jpg)
+
+#### 20220911 Treppenhaus im Schloss Augustusburg, Brühl, Nordrhein-Westfalen (© Florian Monheim/age fotostock)
+
+![](20220911_AugustusburgBruehl_1920x1080.jpg)
 
 #### 20220910 東京スカイツリー, 東京 墨田区 (© Krzysztof Baranowski/Getty Images)
 
