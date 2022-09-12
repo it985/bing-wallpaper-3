@@ -2,7 +2,7 @@
 
 ![](images/2022-09/20220912_SpaceDay_1920x1080.jpg)
 
-#### 20220912 栗耳簇舌巨嘴鸟，巴西潘塔纳尔保护区里 (© Ana Gram/Shutterstock)
+#### 20220912 Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)
 
 ![](images/2022-09/20220912_Aracari_1920x1080.jpg)
 
