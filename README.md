@@ -1,3 +1,7 @@
+#### 20220913 大沙丘国家公园和保护区，美国科罗拉多州 (© Y Paudel/Getty Images)
+
+![](images/2022-09/20220913_GSDNPest_1920x1080.jpg)
+
 #### 20220912 H-IIB ロケット打ち上げ, 鹿児島 (© The Asahi Shimbun/Getty Images)
 
 ![](images/2022-09/20220912_SpaceDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220907 Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)
 
 ![](images/2022-09/20220907_MuseudoAmanha_1920x1080.jpg)
-
-#### 20220906 Red squirrel carrying a mushroom (© Michael Quinton/Minden Pictures)
-
-![](images/2022-09/20220906_SquirrelMushroom_1920x1080.jpg)
 
 
 

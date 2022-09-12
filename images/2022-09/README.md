@@ -1,3 +1,7 @@
+#### 20220913 大沙丘国家公园和保护区，美国科罗拉多州 (© Y Paudel/Getty Images)
+
+![](20220913_GSDNPest_1920x1080.jpg)
+
 #### 20220912 H-IIB ロケット打ち上げ, 鹿児島 (© The Asahi Shimbun/Getty Images)
 
 ![](20220912_SpaceDay_1920x1080.jpg)
