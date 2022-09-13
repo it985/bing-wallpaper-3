@@ -1,4 +1,4 @@
-#### 20220913 大沙丘国家公园和保护区，美国科罗拉多州 (© Y Paudel/Getty Images)
+#### 20220913 Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)
 
 ![](images/2022-09/20220913_GSDNPest_1920x1080.jpg)
 
