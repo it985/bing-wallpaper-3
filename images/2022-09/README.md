@@ -1,3 +1,7 @@
+#### 20220914 大理石峡谷中横跨科罗拉多河的纳瓦霍桥，美国亚利桑那州北部  (© trekandshoot/Alamy)
+
+![](20220914_MarbleCanyon_1920x1080.jpg)
+
 #### 20220913 Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)
 
 ![](20220913_GSDNPest_1920x1080.jpg)

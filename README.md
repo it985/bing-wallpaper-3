@@ -1,3 +1,7 @@
+#### 20220914 大理石峡谷中横跨科罗拉多河的纳瓦霍桥，美国亚利桑那州北部  (© trekandshoot/Alamy)
+
+![](images/2022-09/20220914_MarbleCanyon_1920x1080.jpg)
+
 #### 20220913 Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)
 
 ![](images/2022-09/20220913_GSDNPest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220907 英格兰怀特岛上的尼德尔斯白垩岩石和19世纪的灯塔。 (© CBCK Christine/iStock/Getty Images Plus)
 
 ![](images/2022-09/20220907_TheNeedles_1920x1080.jpg)
-
-#### 20220907 Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)
-
-![](images/2022-09/20220907_MuseudoAmanha_1920x1080.jpg)
 
 
 
