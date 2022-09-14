@@ -1,4 +1,4 @@
-#### 20220914 大理石峡谷中横跨科罗拉多河的纳瓦霍桥，美国亚利桑那州北部  (© trekandshoot/Alamy)
+#### 20220914 Navajo Bridge over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)
 
 ![](images/2022-09/20220914_MarbleCanyon_1920x1080.jpg)
 
