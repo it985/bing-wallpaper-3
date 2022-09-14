@@ -1,3 +1,11 @@
+#### 20220915 カステルメッツァーノ, イタリア バシリカータ州 (© Roberto Moiola/Getty Images)
+
+![](images/2022-09/20220915_SanMartinoVillage_1920x1080.jpg)
+
+#### 20220915 罗兰豁口上空的银河，法国上比利牛斯省 (© SPANI Arnaud/Alamy)
+
+![](images/2022-09/20220915_PyreneesPark_1920x1080.jpg)
+
 #### 20220914 Navajo Bridge over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)
 
 ![](images/2022-09/20220914_MarbleCanyon_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220909 Lighthouse Reef, Blue Hole Natural Monument, Belize (© Tom Till/Alamy)
 
 ![](images/2022-09/20220909_BHNMBelize_1920x1080.jpg)
-
-#### 20220908 View of the city from the Setas de Sevilla (Metropol Parasol) in Seville, Spain (© LucVi/Shutterstock)
-
-![](images/2022-09/20220908_CircumnavigationAnni_1920x1080.jpg)
-
-#### 20220907 英格兰怀特岛上的尼德尔斯白垩岩石和19世纪的灯塔。 (© CBCK Christine/iStock/Getty Images Plus)
-
-![](images/2022-09/20220907_TheNeedles_1920x1080.jpg)
 
 
 

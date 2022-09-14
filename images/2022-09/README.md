@@ -1,3 +1,11 @@
+#### 20220915 カステルメッツァーノ, イタリア バシリカータ州 (© Roberto Moiola/Getty Images)
+
+![](20220915_SanMartinoVillage_1920x1080.jpg)
+
+#### 20220915 罗兰豁口上空的银河，法国上比利牛斯省 (© SPANI Arnaud/Alamy)
+
+![](20220915_PyreneesPark_1920x1080.jpg)
+
 #### 20220914 Navajo Bridge over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)
 
 ![](20220914_MarbleCanyon_1920x1080.jpg)
