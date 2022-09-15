@@ -6,6 +6,10 @@
 
 ![](images/2022-09/20220915_PyreneesPark_1920x1080.jpg)
 
+#### 20220915 Water flows through Johnston Canyon in Banff National Park (© Jason Hatfield/TANDEM Stills + Motion)
+
+![](images/2022-09/20220915_JohnstonWater_1920x1080.jpg)
+
 #### 20220914 Navajo Bridge over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)
 
 ![](images/2022-09/20220914_MarbleCanyon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220909 Toronto skyline and its reflection, Toronto (© Istvan Kadar Photography/Getty Images)
 
 ![](images/2022-09/20220909_TorontoTIFF_1920x1080.jpg)
-
-#### 20220909 Lighthouse Reef, Blue Hole Natural Monument, Belize (© Tom Till/Alamy)
-
-![](images/2022-09/20220909_BHNMBelize_1920x1080.jpg)
 
 
 
