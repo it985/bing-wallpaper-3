@@ -10,6 +10,10 @@
 
 ![](images/2022-09/20220915_JohnstonWater_1920x1080.jpg)
 
+#### 20220915 Mural by Betsy Casañas in Buffalo, New York (© Tom Loonan)
+
+![](images/2022-09/20220915_BuffaloMural_1920x1080.jpg)
+
 #### 20220914 Navajo Bridge over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)
 
 ![](images/2022-09/20220914_MarbleCanyon_1920x1080.jpg)
@@ -38,6 +42,10 @@
 
 ![](images/2022-09/20220911_KeralaIndia_1920x1080.jpg)
 
+#### 20220911 Emerald Lake, Yoho National Park, British Columbia, Canada (© Cavan Images/Offset)
+
+![](images/2022-09/20220911_EmeraldYoho_1920x1080.jpg)
+
 #### 20220911 Treppenhaus im Schloss Augustusburg, Brühl, Nordrhein-Westfalen (© Florian Monheim/age fotostock)
 
 ![](images/2022-09/20220911_AugustusburgBruehl_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220910 中秋之夜, 上海豫园 (© Zyxeos30/Getty images)
 
 ![](images/2022-09/20220910_MidAutumn_1920x1080.jpg)
-
-#### 20220910 Moon installation for the Mid-Autumn Festival in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)
-
-![](images/2022-09/20220910_KLMidAutumn_1920x1080.jpg)
-
-#### 20220909 Toronto skyline and its reflection, Toronto (© Istvan Kadar Photography/Getty Images)
-
-![](images/2022-09/20220909_TorontoTIFF_1920x1080.jpg)
 
 
 

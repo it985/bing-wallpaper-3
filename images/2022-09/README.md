@@ -10,6 +10,10 @@
 
 ![](20220915_JohnstonWater_1920x1080.jpg)
 
+#### 20220915 Mural by Betsy Casañas in Buffalo, New York (© Tom Loonan)
+
+![](20220915_BuffaloMural_1920x1080.jpg)
+
 #### 20220914 Navajo Bridge over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)
 
 ![](20220914_MarbleCanyon_1920x1080.jpg)
@@ -37,6 +41,10 @@
 #### 20220911 在喀拉拉邦河流中行驶的一艘小船，印度 (© Shutterstock)
 
 ![](20220911_KeralaIndia_1920x1080.jpg)
+
+#### 20220911 Emerald Lake, Yoho National Park, British Columbia, Canada (© Cavan Images/Offset)
+
+![](20220911_EmeraldYoho_1920x1080.jpg)
 
 #### 20220911 Treppenhaus im Schloss Augustusburg, Brühl, Nordrhein-Westfalen (© Florian Monheim/age fotostock)
 
