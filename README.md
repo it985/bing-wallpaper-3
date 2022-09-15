@@ -1,3 +1,7 @@
+#### 20220916 百内国家公园中的一头美洲狮，智利巴塔哥尼亚 (© Ingo Arndt/Minden Pictures)
+
+![](images/2022-09/20220916_PianePuma_1920x1080.jpg)
+
 #### 20220915 カステルメッツァーノ, イタリア バシリカータ州 (© Roberto Moiola/Getty Images)
 
 ![](images/2022-09/20220915_SanMartinoVillage_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220910 東京スカイツリー, 東京 墨田区 (© Krzysztof Baranowski/Getty Images)
 
 ![](images/2022-09/20220910_SkyTreeMoon_1920x1080.jpg)
-
-#### 20220910 中秋之夜, 上海豫园 (© Zyxeos30/Getty images)
-
-![](images/2022-09/20220910_MidAutumn_1920x1080.jpg)
 
 
 

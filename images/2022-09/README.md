@@ -1,3 +1,7 @@
+#### 20220916 百内国家公园中的一头美洲狮，智利巴塔哥尼亚 (© Ingo Arndt/Minden Pictures)
+
+![](20220916_PianePuma_1920x1080.jpg)
+
 #### 20220915 カステルメッツァーノ, イタリア バシリカータ州 (© Roberto Moiola/Getty Images)
 
 ![](20220915_SanMartinoVillage_1920x1080.jpg)
