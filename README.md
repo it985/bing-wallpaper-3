@@ -34,6 +34,10 @@
 
 ![](images/2022-09/20220913_GSDNPest_1920x1080.jpg)
 
+#### 20220913 Forested reef, Blue Hole National Monument, Belize (© Tom Till/Alamy)
+
+![](images/2022-09/20220913_BHNMBelize_1920x1080.jpg)
+
 #### 20220912 H-IIB ロケット打ち上げ, 鹿児島 (© The Asahi Shimbun/Getty Images)
 
 ![](images/2022-09/20220912_SpaceDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220911 在喀拉拉邦河流中行驶的一艘小船，印度 (© Shutterstock)
 
 ![](images/2022-09/20220911_KeralaIndia_1920x1080.jpg)
-
-#### 20220911 Emerald Lake, Yoho National Park, British Columbia, Canada (© Cavan Images/Offset)
-
-![](images/2022-09/20220911_EmeraldYoho_1920x1080.jpg)
 
 
 
