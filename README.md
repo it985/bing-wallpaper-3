@@ -1,3 +1,11 @@
+#### 20220917 オクトーバーフェスト, ドイツ ミュンヘン (© Karl-Josef Hildenbrand/Getty Images)
+
+![](images/2022-09/20220917_Wellenflug_1920x1080.jpg)
+
+#### 20220917 布莱克浦塔和中央码头，英国兰开夏郡 (© Bailey-Cooper Photography/Alamy)
+
+![](images/2022-09/20220917_BlackpoolBeach_1920x1080.jpg)
+
 #### 20220916 Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)
 
 ![](images/2022-09/20220916_PianePuma_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220911 Emerald Lake, Yoho National Park, British Columbia, Canada (© Cavan Images/Offset)
 
 ![](images/2022-09/20220911_EmeraldYoho_1920x1080.jpg)
-
-#### 20220911 Treppenhaus im Schloss Augustusburg, Brühl, Nordrhein-Westfalen (© Florian Monheim/age fotostock)
-
-![](images/2022-09/20220911_AugustusburgBruehl_1920x1080.jpg)
-
-#### 20220910 東京スカイツリー, 東京 墨田区 (© Krzysztof Baranowski/Getty Images)
-
-![](images/2022-09/20220910_SkyTreeMoon_1920x1080.jpg)
 
 
 

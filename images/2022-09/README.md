@@ -1,3 +1,11 @@
+#### 20220917 オクトーバーフェスト, ドイツ ミュンヘン (© Karl-Josef Hildenbrand/Getty Images)
+
+![](20220917_Wellenflug_1920x1080.jpg)
+
+#### 20220917 布莱克浦塔和中央码头，英国兰开夏郡 (© Bailey-Cooper Photography/Alamy)
+
+![](20220917_BlackpoolBeach_1920x1080.jpg)
+
 #### 20220916 Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)
 
 ![](20220916_PianePuma_1920x1080.jpg)
