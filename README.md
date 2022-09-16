@@ -1,4 +1,4 @@
-#### 20220916 百内国家公园中的一头美洲狮，智利巴塔哥尼亚 (© Ingo Arndt/Minden Pictures)
+#### 20220916 Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)
 
 ![](images/2022-09/20220916_PianePuma_1920x1080.jpg)
 
