@@ -2,6 +2,10 @@
 
 ![](images/2022-09/20220917_Wellenflug_1920x1080.jpg)
 
+#### 20220917 Lebkuchenherzen, Oktoberfest München, Bayern (© filmfoto-03edit/Alamy)
+
+![](images/2022-09/20220917_LebkuchenOktoberfest_1920x1080.jpg)
+
 #### 20220917 布莱克浦塔和中央码头，英国兰开夏郡 (© Bailey-Cooper Photography/Alamy)
 
 ![](images/2022-09/20220917_BlackpoolBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220911 Massif du Mont Blanc au coucher du soleil se reflétant sur l’un des lacs de Chéserys, Chamonix, France (© Stefan Huwiler/imageBROKER/Alamy)
 
 ![](images/2022-09/20220911_LacChesserys_1920x1080.jpg)
-
-#### 20220911 在喀拉拉邦河流中行驶的一艘小船，印度 (© Shutterstock)
-
-![](images/2022-09/20220911_KeralaIndia_1920x1080.jpg)
 
 
 

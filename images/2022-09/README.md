@@ -2,6 +2,10 @@
 
 ![](20220917_Wellenflug_1920x1080.jpg)
 
+#### 20220917 Lebkuchenherzen, Oktoberfest München, Bayern (© filmfoto-03edit/Alamy)
+
+![](20220917_LebkuchenOktoberfest_1920x1080.jpg)
+
 #### 20220917 布莱克浦塔和中央码头，英国兰开夏郡 (© Bailey-Cooper Photography/Alamy)
 
 ![](20220917_BlackpoolBeach_1920x1080.jpg)
