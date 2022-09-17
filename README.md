@@ -1,4 +1,4 @@
-#### 20220917 オクトーバーフェスト, ドイツ ミュンヘン (© Karl-Josef Hildenbrand/Getty Images)
+#### 20220917 Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)
 
 ![](images/2022-09/20220917_Wellenflug_1920x1080.jpg)
 
