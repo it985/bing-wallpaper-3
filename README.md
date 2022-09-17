@@ -1,3 +1,7 @@
+#### 20220918 竹林の小径, 京都 嵐山 (© Razvan Ciuca/Getty Images)
+
+![](images/2022-09/20220918_ArashiyamaBamboo_1920x1080.jpg)
+
 #### 20220917 Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)
 
 ![](images/2022-09/20220917_Wellenflug_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220911 Statue of Liberty seen behind US flags at half-staff for the anniversary of September 11 in 2014, New York City (© Adam Parent/Shutterstock)
 
 ![](images/2022-09/20220911_SOLHalfStaff_1920x1080.jpg)
-
-#### 20220911 Massif du Mont Blanc au coucher du soleil se reflétant sur l’un des lacs de Chéserys, Chamonix, France (© Stefan Huwiler/imageBROKER/Alamy)
-
-![](images/2022-09/20220911_LacChesserys_1920x1080.jpg)
 
 
 

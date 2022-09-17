@@ -1,3 +1,7 @@
+#### 20220918 竹林の小径, 京都 嵐山 (© Razvan Ciuca/Getty Images)
+
+![](20220918_ArashiyamaBamboo_1920x1080.jpg)
+
 #### 20220917 Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)
 
 ![](20220917_Wellenflug_1920x1080.jpg)
