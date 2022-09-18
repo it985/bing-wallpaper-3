@@ -1,4 +1,4 @@
-#### 20220918 竹林の小径, 京都 嵐山 (© Razvan Ciuca/Getty Images)
+#### 20220918 Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)
 
 ![](20220918_ArashiyamaBamboo_1920x1080.jpg)
 
