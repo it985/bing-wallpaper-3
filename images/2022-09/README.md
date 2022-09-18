@@ -1,3 +1,7 @@
+#### 20220919 樹木に溶け込むフクロウ (© Shin Yoshino/Minden)
+
+![](20220919_OldOwl_1920x1080.jpg)
+
 #### 20220918 Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)
 
 ![](20220918_ArashiyamaBamboo_1920x1080.jpg)

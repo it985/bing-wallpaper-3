@@ -1,3 +1,7 @@
+#### 20220919 樹木に溶け込むフクロウ (© Shin Yoshino/Minden)
+
+![](images/2022-09/20220919_OldOwl_1920x1080.jpg)
+
 #### 20220918 Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)
 
 ![](images/2022-09/20220918_ArashiyamaBamboo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220912 Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)
 
 ![](images/2022-09/20220912_Aracari_1920x1080.jpg)
-
-#### 20220911 Statue of Liberty seen behind US flags at half-staff for the anniversary of September 11 in 2014, New York City (© Adam Parent/Shutterstock)
-
-![](images/2022-09/20220911_SOLHalfStaff_1920x1080.jpg)
 
 
 
