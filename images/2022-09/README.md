@@ -10,6 +10,10 @@
 
 ![](20220919_OldOwl_1920x1080.jpg)
 
+#### 20220918 幽鹤国家公园的翡翠湖, 加拿大不列颠哥伦比亚省 (© Cavan Images/Offset)
+
+![](20220918_EmeraldYoho_1920x1080.jpg)
+
 #### 20220918 Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)
 
 ![](20220918_ArashiyamaBamboo_1920x1080.jpg)
