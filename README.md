@@ -1,3 +1,7 @@
+#### 20220920 阿拉斯加州锡特卡海峡的海獭，美国 (© Robert Harding/Offset/Shutterstock)
+
+![](images/2022-09/20220920_SitkaOtters_1920x1080.jpg)
+
 #### 20220919 Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)
 
 ![](images/2022-09/20220919_QueenFuneral_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220913 Forested reef, Blue Hole National Monument, Belize (© Tom Till/Alamy)
 
 ![](images/2022-09/20220913_BHNMBelize_1920x1080.jpg)
-
-#### 20220912 H-IIB ロケット打ち上げ, 鹿児島 (© The Asahi Shimbun/Getty Images)
-
-![](images/2022-09/20220912_SpaceDay_1920x1080.jpg)
 
 
 
