@@ -1,4 +1,4 @@
-#### 20220919 Blumengaben als Zeichen der Anteilnahme zum Tod von Königin Elisabeth II., London, England, Vereinigtes Königreich (© Maja Smiejkowska/Reuters)
+#### 20220919 Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)
 
 ![](images/2022-09/20220919_QueenFuneral_1920x1080.jpg)
 
