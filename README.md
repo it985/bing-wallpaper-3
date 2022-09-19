@@ -1,3 +1,7 @@
+#### 20220919 Blumengaben als Zeichen der Anteilnahme zum Tod von Königin Elisabeth II., London, England, Vereinigtes Königreich (© Maja Smiejkowska/Reuters)
+
+![](images/2022-09/20220919_QueenFuneral_1920x1080.jpg)
+
 #### 20220919 樹木に溶け込むフクロウ (© Shin Yoshino/Minden)
 
 ![](images/2022-09/20220919_OldOwl_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220912 H-IIB ロケット打ち上げ, 鹿児島 (© The Asahi Shimbun/Getty Images)
 
 ![](images/2022-09/20220912_SpaceDay_1920x1080.jpg)
-
-#### 20220912 Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)
-
-![](images/2022-09/20220912_Aracari_1920x1080.jpg)
 
 
 
