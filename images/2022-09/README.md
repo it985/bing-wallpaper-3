@@ -1,3 +1,11 @@
+#### 20220921 赫努姆的茅草屋顶, 德国叙尔特岛 (© Francesco Carovillano/eStock Photo)
+
+![](20220921_SyltNordseeHoernum_1920x1080.jpg)
+
+#### 20220921 ”Peace Doves” ピーター・ウォーカー,  イギリス リヴァプール (© PAUL ELLIS/AFP via Getty Images)
+
+![](20220921_PWPeaceDoves_1920x1080.jpg)
+
 #### 20220920 Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)
 
 ![](20220920_SitkaOtters_1920x1080.jpg)

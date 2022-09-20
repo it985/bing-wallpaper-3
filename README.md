@@ -1,3 +1,11 @@
+#### 20220921 赫努姆的茅草屋顶, 德国叙尔特岛 (© Francesco Carovillano/eStock Photo)
+
+![](images/2022-09/20220921_SyltNordseeHoernum_1920x1080.jpg)
+
+#### 20220921 ”Peace Doves” ピーター・ウォーカー,  イギリス リヴァプール (© PAUL ELLIS/AFP via Getty Images)
+
+![](images/2022-09/20220921_PWPeaceDoves_1920x1080.jpg)
+
 #### 20220920 Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)
 
 ![](images/2022-09/20220920_SitkaOtters_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220915 Mural by Betsy Casañas in Buffalo, New York (© Tom Loonan)
 
 ![](images/2022-09/20220915_BuffaloMural_1920x1080.jpg)
-
-#### 20220914 Navajo Bridge over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)
-
-![](images/2022-09/20220914_MarbleCanyon_1920x1080.jpg)
-
-#### 20220913 Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)
-
-![](images/2022-09/20220913_GSDNPest_1920x1080.jpg)
 
 
 
