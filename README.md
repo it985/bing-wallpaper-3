@@ -1,4 +1,4 @@
-#### 20220920 阿拉斯加州锡特卡海峡的海獭，美国 (© Robert Harding/Offset/Shutterstock)
+#### 20220920 Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)
 
 ![](images/2022-09/20220920_SitkaOtters_1920x1080.jpg)
 
