@@ -2,7 +2,7 @@
 
 ![](20220921_SyltNordseeHoernum_1920x1080.jpg)
 
-#### 20220921 ”Peace Doves” ピーター・ウォーカー,  イギリス リヴァプール (© PAUL ELLIS/AFP via Getty Images)
+#### 20220921 'Peace Doves' by artist Peter Walker in Liverpool Cathedral, Liverpool, England (© PAUL ELLIS/AFP via Getty Images)
 
 ![](20220921_PWPeaceDoves_1920x1080.jpg)
 
