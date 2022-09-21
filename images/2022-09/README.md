@@ -1,3 +1,11 @@
+#### 20220922 春角礁灯塔，缅因州南波特兰 (© Haizhan Zheng/Getty Images)
+
+![](20220922_SpringPoint_1920x1080.jpg)
+
+#### 20220922 インドサイ, インド アッサム州 (© Robert Harding World Imagery/Shutterstock)
+
+![](20220922_RhinocerosUnicornis_1920x1080.jpg)
+
 #### 20220921 赫努姆的茅草屋顶, 德国叙尔特岛 (© Francesco Carovillano/eStock Photo)
 
 ![](20220921_SyltNordseeHoernum_1920x1080.jpg)

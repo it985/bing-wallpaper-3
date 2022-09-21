@@ -1,3 +1,11 @@
+#### 20220922 春角礁灯塔，缅因州南波特兰 (© Haizhan Zheng/Getty Images)
+
+![](images/2022-09/20220922_SpringPoint_1920x1080.jpg)
+
+#### 20220922 インドサイ, インド アッサム州 (© Robert Harding World Imagery/Shutterstock)
+
+![](images/2022-09/20220922_RhinocerosUnicornis_1920x1080.jpg)
+
 #### 20220921 赫努姆的茅草屋顶, 德国叙尔特岛 (© Francesco Carovillano/eStock Photo)
 
 ![](images/2022-09/20220921_SyltNordseeHoernum_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220915 罗兰豁口上空的银河，法国上比利牛斯省 (© SPANI Arnaud/Alamy)
 
 ![](images/2022-09/20220915_PyreneesPark_1920x1080.jpg)
-
-#### 20220915 Water flows through Johnston Canyon in Banff National Park (© Jason Hatfield/TANDEM Stills + Motion)
-
-![](images/2022-09/20220915_JohnstonWater_1920x1080.jpg)
-
-#### 20220915 Mural by Betsy Casañas in Buffalo, New York (© Tom Loonan)
-
-![](images/2022-09/20220915_BuffaloMural_1920x1080.jpg)
 
 
 
