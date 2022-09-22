@@ -6,7 +6,7 @@
 
 ![](20220922_RhinocerosUnicornis_1920x1080.jpg)
 
-#### 20220922 Kronendach der Espen entlang der Last Dollar Road nahe Telluride, Colorado, USA (© Grant Ordelheide/Tandem Stills + Motion)
+#### 20220922 The aspen canopy along the Last Dollar Road near Telluride, Colorado (© Grant Ordelheide/Tandem Stills + Motion)
 
 ![](20220922_LastDollarRoad_1920x1080.jpg)
 
