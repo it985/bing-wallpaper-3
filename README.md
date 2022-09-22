@@ -6,6 +6,10 @@
 
 ![](images/2022-09/20220922_RhinocerosUnicornis_1920x1080.jpg)
 
+#### 20220922 Kronendach der Espen entlang der Last Dollar Road nahe Telluride, Colorado, USA (© Grant Ordelheide/Tandem Stills + Motion)
+
+![](images/2022-09/20220922_LastDollarRoad_1920x1080.jpg)
+
 #### 20220921 赫努姆的茅草屋顶, 德国叙尔特岛 (© Francesco Carovillano/eStock Photo)
 
 ![](images/2022-09/20220921_SyltNordseeHoernum_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220915 カステルメッツァーノ, イタリア バシリカータ州 (© Roberto Moiola/Getty Images)
 
 ![](images/2022-09/20220915_SanMartinoVillage_1920x1080.jpg)
-
-#### 20220915 罗兰豁口上空的银河，法国上比利牛斯省 (© SPANI Arnaud/Alamy)
-
-![](images/2022-09/20220915_PyreneesPark_1920x1080.jpg)
 
 
 
