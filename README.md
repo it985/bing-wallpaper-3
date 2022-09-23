@@ -2,6 +2,10 @@
 
 ![](images/2022-09/20220923_WintersteinHerbst_1920x1080.jpg)
 
+#### 20220923 Golden jellyfish in Jellyfish Lake on the island of Eil Malk, Palau (© Nature Picture Library/Alamy)
+
+![](images/2022-09/20220923_GoldenJellyfish_1920x1080.jpg)
+
 #### 20220923 Soleil traversant les arbres d’une forêt tapissée de cyclamens roses et blancs en Bretagne (© Rosemary Calvert/Getty Images)
 
 ![](images/2022-09/20220923_FirstDayFall_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220917 Lebkuchenherzen, Oktoberfest München, Bayern (© filmfoto-03edit/Alamy)
 
 ![](images/2022-09/20220917_LebkuchenOktoberfest_1920x1080.jpg)
-
-#### 20220917 布莱克浦塔和中央码头，英国兰开夏郡 (© Bailey-Cooper Photography/Alamy)
-
-![](images/2022-09/20220917_BlackpoolBeach_1920x1080.jpg)
 
 
 
