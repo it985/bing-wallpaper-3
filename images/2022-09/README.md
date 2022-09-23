@@ -1,3 +1,7 @@
+#### 20220924 阿卡迪亚国家公园上空的银河系，美国缅因州 (© Harry Collins/Getty Images)
+
+![](20220924_DarkSkyAcadia_1920x1080.jpg)
+
 #### 20220923 Winterstein, Nationalpark Sächsische Schweiz, Sachsen (© Frank Bienewald/Getty Images)
 
 ![](20220923_WintersteinHerbst_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20220924 阿卡迪亚国家公园上空的银河系，美国缅因州 (© Harry Collins/Getty Images)
+
+![](images/2022-09/20220924_DarkSkyAcadia_1920x1080.jpg)
+
 #### 20220923 Winterstein, Nationalpark Sächsische Schweiz, Sachsen (© Frank Bienewald/Getty Images)
 
 ![](images/2022-09/20220923_WintersteinHerbst_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220917 Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)
 
 ![](images/2022-09/20220917_Wellenflug_1920x1080.jpg)
-
-#### 20220917 Lebkuchenherzen, Oktoberfest München, Bayern (© filmfoto-03edit/Alamy)
-
-![](images/2022-09/20220917_LebkuchenOktoberfest_1920x1080.jpg)
 
 
 
