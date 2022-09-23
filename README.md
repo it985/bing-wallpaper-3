@@ -1,3 +1,11 @@
+#### 20220923 Winterstein, Nationalpark Sächsische Schweiz, Sachsen (© Frank Bienewald/Getty Images)
+
+![](images/2022-09/20220923_WintersteinHerbst_1920x1080.jpg)
+
+#### 20220923 Soleil traversant les arbres d’une forêt tapissée de cyclamens roses et blancs en Bretagne (© Rosemary Calvert/Getty Images)
+
+![](images/2022-09/20220923_FirstDayFall_1920x1080.jpg)
+
 #### 20220922 春角礁灯塔，缅因州南波特兰 (© Haizhan Zheng/Getty Images)
 
 ![](images/2022-09/20220922_SpringPoint_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220917 布莱克浦塔和中央码头，英国兰开夏郡 (© Bailey-Cooper Photography/Alamy)
 
 ![](images/2022-09/20220917_BlackpoolBeach_1920x1080.jpg)
-
-#### 20220916 Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)
-
-![](images/2022-09/20220916_PianePuma_1920x1080.jpg)
-
-#### 20220915 カステルメッツァーノ, イタリア バシリカータ州 (© Roberto Moiola/Getty Images)
-
-![](images/2022-09/20220915_SanMartinoVillage_1920x1080.jpg)
 
 
 

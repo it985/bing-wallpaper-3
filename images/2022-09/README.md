@@ -1,3 +1,11 @@
+#### 20220923 Winterstein, Nationalpark Sächsische Schweiz, Sachsen (© Frank Bienewald/Getty Images)
+
+![](20220923_WintersteinHerbst_1920x1080.jpg)
+
+#### 20220923 Soleil traversant les arbres d’une forêt tapissée de cyclamens roses et blancs en Bretagne (© Rosemary Calvert/Getty Images)
+
+![](20220923_FirstDayFall_1920x1080.jpg)
+
 #### 20220922 春角礁灯塔，缅因州南波特兰 (© Haizhan Zheng/Getty Images)
 
 ![](20220922_SpringPoint_1920x1080.jpg)
