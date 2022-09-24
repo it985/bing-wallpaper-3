@@ -1,4 +1,4 @@
-#### 20220924 阿卡迪亚国家公园上空的银河系，美国缅因州 (© Harry Collins/Getty Images)
+#### 20220924 Milky Way over Acadia National Park, Maine (© Harry Collins/Getty Images)
 
 ![](images/2022-09/20220924_DarkSkyAcadia_1920x1080.jpg)
 
