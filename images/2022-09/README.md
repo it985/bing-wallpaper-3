@@ -1,3 +1,7 @@
+#### 20220925 亚马逊河鸟瞰图，巴西 (© Curioso.Photography/Shutterstock)
+
+![](20220925_AmazonMangroves_1920x1080.jpg)
+
 #### 20220924 Milky Way over Acadia National Park, Maine (© Harry Collins/Getty Images)
 
 ![](20220924_DarkSkyAcadia_1920x1080.jpg)

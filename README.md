@@ -1,3 +1,7 @@
+#### 20220925 亚马逊河鸟瞰图，巴西 (© Curioso.Photography/Shutterstock)
+
+![](images/2022-09/20220925_AmazonMangroves_1920x1080.jpg)
+
 #### 20220924 Milky Way over Acadia National Park, Maine (© Harry Collins/Getty Images)
 
 ![](images/2022-09/20220924_DarkSkyAcadia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220918 Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)
 
 ![](images/2022-09/20220918_ArashiyamaBamboo_1920x1080.jpg)
-
-#### 20220917 Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)
-
-![](images/2022-09/20220917_Wellenflug_1920x1080.jpg)
 
 
 
