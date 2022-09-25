@@ -1,3 +1,7 @@
+#### 20220926 两头穿越苏西特纳河的驯鹿，美国阿拉斯加 (© Tim Plowden/Alamy)
+
+![](images/2022-09/20220926_SusitnaRiver_1920x1080.jpg)
+
 #### 20220925 Aerial view of the Amazon River in Brazil (© Curioso.Photography/Shutterstock)
 
 ![](images/2022-09/20220925_AmazonMangroves_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220918 幽鹤国家公园的翡翠湖, 加拿大不列颠哥伦比亚省 (© Cavan Images/Offset)
 
 ![](images/2022-09/20220918_EmeraldYoho_1920x1080.jpg)
-
-#### 20220918 Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)
-
-![](images/2022-09/20220918_ArashiyamaBamboo_1920x1080.jpg)
 
 
 

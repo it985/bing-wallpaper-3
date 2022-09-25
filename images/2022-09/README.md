@@ -1,3 +1,7 @@
+#### 20220926 两头穿越苏西特纳河的驯鹿，美国阿拉斯加 (© Tim Plowden/Alamy)
+
+![](20220926_SusitnaRiver_1920x1080.jpg)
+
 #### 20220925 Aerial view of the Amazon River in Brazil (© Curioso.Photography/Shutterstock)
 
 ![](20220925_AmazonMangroves_1920x1080.jpg)
