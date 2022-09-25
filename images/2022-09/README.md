@@ -46,6 +46,10 @@
 
 ![](20220920_SitkaOtters_1920x1080.jpg)
 
+#### 20220920 Castelmezzano, Potenza, Basilicata, Italy (© Roberto Moiola/Getty Images)
+
+![](20220920_SanMartinoVillage_1920x1080.jpg)
+
 #### 20220919 Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)
 
 ![](20220919_QueenFuneral_1920x1080.jpg)
