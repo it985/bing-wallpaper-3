@@ -1,4 +1,4 @@
-#### 20220925 亚马逊河鸟瞰图，巴西 (© Curioso.Photography/Shutterstock)
+#### 20220925 Aerial view of the Amazon River in Brazil (© Curioso.Photography/Shutterstock)
 
 ![](images/2022-09/20220925_AmazonMangroves_1920x1080.jpg)
 
