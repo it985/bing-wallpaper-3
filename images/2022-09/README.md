@@ -1,4 +1,4 @@
-#### 20220926 两头穿越苏西特纳河的驯鹿，美国阿拉斯加 (© Tim Plowden/Alamy)
+#### 20220926 Caribou crossing the Susitna River during autumn, Alaska (© Tim Plowden/Alamy)
 
 ![](20220926_SusitnaRiver_1920x1080.jpg)
 
