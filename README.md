@@ -1,3 +1,7 @@
+#### 20220927 黄石国家公园里的上间歇泉盆地，美国怀俄明州 (© Ray Urner/Tandem Stills + Motion)
+
+![](images/2022-09/20220927_YellowstoneUGB_1920x1080.jpg)
+
 #### 20220926 Caribou crossing the Susitna River during autumn, Alaska (© Tim Plowden/Alamy)
 
 ![](images/2022-09/20220926_SusitnaRiver_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220919 Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)
 
 ![](images/2022-09/20220919_QueenFuneral_1920x1080.jpg)
-
-#### 20220919 樹木に溶け込むフクロウ (© Shin Yoshino/Minden)
-
-![](images/2022-09/20220919_OldOwl_1920x1080.jpg)
 
 
 

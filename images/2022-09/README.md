@@ -1,3 +1,7 @@
+#### 20220927 黄石国家公园里的上间歇泉盆地，美国怀俄明州 (© Ray Urner/Tandem Stills + Motion)
+
+![](20220927_YellowstoneUGB_1920x1080.jpg)
+
 #### 20220926 Caribou crossing the Susitna River during autumn, Alaska (© Tim Plowden/Alamy)
 
 ![](20220926_SusitnaRiver_1920x1080.jpg)
