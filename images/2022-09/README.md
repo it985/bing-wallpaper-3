@@ -1,3 +1,7 @@
+#### 20220928 卡伯特镇的福斯特廊桥，美国佛蒙特州 (© Alan Majchrowicz/Getty Images)
+
+![](20220928_FosterCoveredBridge_1920x1080.jpg)
+
 #### 20220927 Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)
 
 ![](20220927_YellowstoneUGB_1920x1080.jpg)

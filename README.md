@@ -1,3 +1,7 @@
+#### 20220928 卡伯特镇的福斯特廊桥，美国佛蒙特州 (© Alan Majchrowicz/Getty Images)
+
+![](images/2022-09/20220928_FosterCoveredBridge_1920x1080.jpg)
+
 #### 20220927 Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)
 
 ![](images/2022-09/20220927_YellowstoneUGB_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220920 Castelmezzano, Potenza, Basilicata, Italy (© Roberto Moiola/Getty Images)
 
 ![](images/2022-09/20220920_SanMartinoVillage_1920x1080.jpg)
-
-#### 20220919 Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)
-
-![](images/2022-09/20220919_QueenFuneral_1920x1080.jpg)
 
 
 
