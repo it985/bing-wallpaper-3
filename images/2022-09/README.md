@@ -1,4 +1,4 @@
-#### 20220927 黄石国家公园里的上间歇泉盆地，美国怀俄明州 (© Ray Urner/Tandem Stills + Motion)
+#### 20220927 Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)
 
 ![](20220927_YellowstoneUGB_1920x1080.jpg)
 
