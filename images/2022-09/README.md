@@ -1,3 +1,7 @@
+#### 20220928 Water drops on a red maple leaf in Mont St-Bruno National Park, Quebec (© Gilles Delisle/Jaynes Gallery/DanitaDelimont.com)
+
+![](20220928_MapleDrops_1920x1080.jpg)
+
 #### 20220928 卡伯特镇的福斯特廊桥，美国佛蒙特州 (© Alan Majchrowicz/Getty Images)
 
 ![](20220928_FosterCoveredBridge_1920x1080.jpg)

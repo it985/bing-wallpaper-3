@@ -1,3 +1,7 @@
+#### 20220928 Water drops on a red maple leaf in Mont St-Bruno National Park, Quebec (© Gilles Delisle/Jaynes Gallery/DanitaDelimont.com)
+
+![](images/2022-09/20220928_MapleDrops_1920x1080.jpg)
+
 #### 20220928 卡伯特镇的福斯特廊桥，美国佛蒙特州 (© Alan Majchrowicz/Getty Images)
 
 ![](images/2022-09/20220928_FosterCoveredBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220921 'Peace Doves' by artist Peter Walker in Liverpool Cathedral, Liverpool, England (© PAUL ELLIS/AFP via Getty Images)
 
 ![](images/2022-09/20220921_PWPeaceDoves_1920x1080.jpg)
-
-#### 20220920 Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)
-
-![](images/2022-09/20220920_SitkaOtters_1920x1080.jpg)
 
 
 
