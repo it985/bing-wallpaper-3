@@ -1,3 +1,11 @@
+#### 20220929 约翰斯顿峡谷，加拿大班夫国家公园 (© Jason Hatfield/TANDEM Stills + Motion)
+
+![](20220929_JohnstonWater_1920x1080.jpg)
+
+#### 20220929 世界ウェアラブルアートショー, ニュージーランド ウェリントン (© Hagen Hopkins/Getty Images for World of WearableArt)
+
+![](20220929_InfiniD_1920x1080.jpg)
+
 #### 20220928 Water drops on a red maple leaf in Mont St-Bruno National Park, Quebec (© Gilles Delisle/Jaynes Gallery/DanitaDelimont.com)
 
 ![](20220928_MapleDrops_1920x1080.jpg)

@@ -1,3 +1,11 @@
+#### 20220929 约翰斯顿峡谷，加拿大班夫国家公园 (© Jason Hatfield/TANDEM Stills + Motion)
+
+![](images/2022-09/20220929_JohnstonWater_1920x1080.jpg)
+
+#### 20220929 世界ウェアラブルアートショー, ニュージーランド ウェリントン (© Hagen Hopkins/Getty Images for World of WearableArt)
+
+![](images/2022-09/20220929_InfiniD_1920x1080.jpg)
+
 #### 20220928 Water drops on a red maple leaf in Mont St-Bruno National Park, Quebec (© Gilles Delisle/Jaynes Gallery/DanitaDelimont.com)
 
 ![](images/2022-09/20220928_MapleDrops_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220922 The aspen canopy along the Last Dollar Road near Telluride, Colorado (© Grant Ordelheide/Tandem Stills + Motion)
 
 ![](images/2022-09/20220922_LastDollarRoad_1920x1080.jpg)
-
-#### 20220921 赫努姆的茅草屋顶, 德国叙尔特岛 (© Francesco Carovillano/eStock Photo)
-
-![](images/2022-09/20220921_SyltNordseeHoernum_1920x1080.jpg)
-
-#### 20220921 'Peace Doves' by artist Peter Walker in Liverpool Cathedral, Liverpool, England (© PAUL ELLIS/AFP via Getty Images)
-
-![](images/2022-09/20220921_PWPeaceDoves_1920x1080.jpg)
 
 
 
