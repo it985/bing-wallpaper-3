@@ -2,7 +2,7 @@
 
 ![](images/2022-09/20220928_MapleDrops_1920x1080.jpg)
 
-#### 20220928 卡伯特镇的福斯特廊桥，美国佛蒙特州 (© Alan Majchrowicz/Getty Images)
+#### 20220928 A. M. Foster Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)
 
 ![](images/2022-09/20220928_FosterCoveredBridge_1920x1080.jpg)
 
