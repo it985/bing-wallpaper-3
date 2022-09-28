@@ -2,6 +2,10 @@
 
 ![](20220928_FosterCoveredBridge_1920x1080.jpg)
 
+#### 20220928 Bridalveil Fall, Yosemite-Nationalpark, Kalifornien, USA (© Jeff Foott/Minden Pictures)
+
+![](20220928_BridalVeilFalls_1920x1080.jpg)
+
 #### 20220927 Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)
 
 ![](20220927_YellowstoneUGB_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](images/2022-09/20220928_FosterCoveredBridge_1920x1080.jpg)
 
+#### 20220928 Bridalveil Fall, Yosemite-Nationalpark, Kalifornien, USA (© Jeff Foott/Minden Pictures)
+
+![](images/2022-09/20220928_BridalVeilFalls_1920x1080.jpg)
+
 #### 20220927 Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)
 
 ![](images/2022-09/20220927_YellowstoneUGB_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220920 Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)
 
 ![](images/2022-09/20220920_SitkaOtters_1920x1080.jpg)
-
-#### 20220920 Castelmezzano, Potenza, Basilicata, Italy (© Roberto Moiola/Getty Images)
-
-![](images/2022-09/20220920_SanMartinoVillage_1920x1080.jpg)
 
 
 
