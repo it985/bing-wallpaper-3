@@ -2,7 +2,7 @@
 
 ![](images/2022-09/20220929_JohnstonWater_1920x1080.jpg)
 
-#### 20220929 世界ウェアラブルアートショー, ニュージーランド ウェリントン (© Hagen Hopkins/Getty Images for World of WearableArt)
+#### 20220929 Infini-D, modeled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)
 
 ![](images/2022-09/20220929_InfiniD_1920x1080.jpg)
 
