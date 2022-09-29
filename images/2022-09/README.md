@@ -1,3 +1,7 @@
+#### 20220930 在新湾潜水的南露脊鲸，阿根廷瓦尔德斯半岛 (© Gabriel Rojo/Minden Pictures)
+
+![](20220930_EubalaenaAustralis_1920x1080.jpg)
+
 #### 20220929 约翰斯顿峡谷，加拿大班夫国家公园 (© Jason Hatfield/TANDEM Stills + Motion)
 
 ![](20220929_JohnstonWater_1920x1080.jpg)
