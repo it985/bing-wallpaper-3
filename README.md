@@ -1,4 +1,4 @@
-#### 20220930 在新湾潜水的南露脊鲸，阿根廷瓦尔德斯半岛 (© Gabriel Rojo/Minden Pictures)
+#### 20220930 Southern right whale diving in the Golfo Nuevo near the Valdes Peninsula, Argentina (© Gabriel Rojo/Minden Pictures)
 
 ![](images/2022-09/20220930_EubalaenaAustralis_1920x1080.jpg)
 
