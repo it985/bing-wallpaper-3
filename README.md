@@ -2,6 +2,10 @@
 
 ![](images/2022-10/20221001_SwedishAntenna_1920x1080.jpg)
 
+#### 20221001 Art installation, ‘breath of life’ by Floria Sigismondi at Nuit Blanche 2016, Nathan Phillips Square, Toronto (© TorontoNews/Alamy Stock Photo)
+
+![](images/2022-10/20221001_NuitArt_1920x1080.jpg)
+
 #### 20221001 山上的日出，河北蔚县 (© zhao zhenhao/Getty Images)
 
 ![](images/2022-10/20221001_NationalDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220923 Winterstein, Nationalpark Sächsische Schweiz, Sachsen (© Frank Bienewald/Getty Images)
 
 ![](images/2022-09/20220923_WintersteinHerbst_1920x1080.jpg)
-
-#### 20220923 Golden jellyfish in Jellyfish Lake on the island of Eil Malk, Palau (© Nature Picture Library/Alamy)
-
-![](images/2022-09/20220923_GoldenJellyfish_1920x1080.jpg)
 
 
 
