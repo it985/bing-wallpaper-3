@@ -1,3 +1,11 @@
+#### 20221002 アルバカーキ国際バルーンフェスタ, 米国 ニューメキシコ州 (© gmeland/Shutterstock)
+
+![](20221002_LotsOBalloons_1920x1080.jpg)
+
+#### 20221002 倒映在湖中的勃朗峰山脉，法国霞慕尼市 (© Stefan Huwiler/Alamy)
+
+![](20221002_LacChesserys_1920x1080.jpg)
+
 #### 20221001 Swedish ESO Submillimeter Telescope (SEST) am La-Silla-Observatorium, Chile (© Alberto Ghizzi Panizza/Getty Images)
 
 ![](20221001_SwedishAntenna_1920x1080.jpg)

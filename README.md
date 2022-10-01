@@ -1,3 +1,11 @@
+#### 20221002 アルバカーキ国際バルーンフェスタ, 米国 ニューメキシコ州 (© gmeland/Shutterstock)
+
+![](images/2022-10/20221002_LotsOBalloons_1920x1080.jpg)
+
+#### 20221002 倒映在湖中的勃朗峰山脉，法国霞慕尼市 (© Stefan Huwiler/Alamy)
+
+![](images/2022-10/20221002_LacChesserys_1920x1080.jpg)
+
 #### 20221001 Swedish ESO Submillimeter Telescope (SEST) am La-Silla-Observatorium, Chile (© Alberto Ghizzi Panizza/Getty Images)
 
 ![](images/2022-10/20221001_SwedishAntenna_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220925 Aerial view of the Amazon River in Brazil (© Curioso.Photography/Shutterstock)
 
 ![](images/2022-09/20220925_AmazonMangroves_1920x1080.jpg)
-
-#### 20220924 Milky Way over Acadia National Park, Maine (© Harry Collins/Getty Images)
-
-![](images/2022-09/20220924_DarkSkyAcadia_1920x1080.jpg)
-
-#### 20220923 Winterstein, Nationalpark Sächsische Schweiz, Sachsen (© Frank Bienewald/Getty Images)
-
-![](images/2022-09/20220923_WintersteinHerbst_1920x1080.jpg)
 
 
 
