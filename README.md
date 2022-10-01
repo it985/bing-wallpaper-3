@@ -1,6 +1,14 @@
+#### 20221001 Swedish ESO Submillimeter Telescope (SEST) am La-Silla-Observatorium, Chile (© Alberto Ghizzi Panizza/Getty Images)
+
+![](images/2022-10/20221001_SwedishAntenna_1920x1080.jpg)
+
 #### 20221001 山上的日出，河北蔚县 (© zhao zhenhao/Getty Images)
 
 ![](images/2022-10/20221001_NationalDay_1920x1080.jpg)
+
+#### 20221001 "Bouquet of tulips" de Jeff Koons, Paris (© Kiran Ridley/Stringer/getty images)
+
+![](images/2022-10/20221001_NBP_1920x1080.jpg)
 
 #### 20220930 Southern right whale diving in the Golfo Nuevo near the Valdes Peninsula, Argentina (© Gabriel Rojo/Minden Pictures)
 
@@ -49,14 +57,6 @@
 #### 20220923 Golden jellyfish in Jellyfish Lake on the island of Eil Malk, Palau (© Nature Picture Library/Alamy)
 
 ![](images/2022-09/20220923_GoldenJellyfish_1920x1080.jpg)
-
-#### 20220923 Soleil traversant les arbres d’une forêt tapissée de cyclamens roses et blancs en Bretagne (© Rosemary Calvert/Getty Images)
-
-![](images/2022-09/20220923_FirstDayFall_1920x1080.jpg)
-
-#### 20220922 春角礁灯塔，缅因州南波特兰 (© Haizhan Zheng/Getty Images)
-
-![](images/2022-09/20220922_SpringPoint_1920x1080.jpg)
 
 
 
