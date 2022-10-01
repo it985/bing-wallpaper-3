@@ -18,7 +18,7 @@
 
 ![](20220928_FosterCoveredBridge_1920x1080.jpg)
 
-#### 20220928 Bridalveil Fall, Yosemite-Nationalpark, Kalifornien, USA (© Jeff Foott/Minden Pictures)
+#### 20220928 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
 
 ![](20220928_BridalVeilFalls_1920x1080.jpg)
 
