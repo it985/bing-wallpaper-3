@@ -1,4 +1,4 @@
-#### 20221002 アルバカーキ国際バルーンフェスタ, 米国 ニューメキシコ州 (© gmeland/Shutterstock)
+#### 20221002 Hot air balloons at the Albuquerque International Balloon Fiesta in Albuquerque, New Mexico (© gmeland/Shutterstock)
 
 ![](20221002_LotsOBalloons_1920x1080.jpg)
 
