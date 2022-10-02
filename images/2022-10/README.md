@@ -1,3 +1,11 @@
+#### 20221003 ポートハウス, ベルギー アントワープ (© Dmitry Rukhlenko/Alamy)
+
+![](20221003_Porthuis_1920x1080.jpg)
+
+#### 20221003 仙女谷，苏格兰斯凯岛 (© e55evu/Getty Images)
+
+![](20221003_FairyGlen_1920x1080.jpg)
+
 #### 20221002 Hot air balloons at the Albuquerque International Balloon Fiesta in Albuquerque, New Mexico (© gmeland/Shutterstock)
 
 ![](20221002_LotsOBalloons_1920x1080.jpg)

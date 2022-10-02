@@ -1,3 +1,11 @@
+#### 20221003 ポートハウス, ベルギー アントワープ (© Dmitry Rukhlenko/Alamy)
+
+![](images/2022-10/20221003_Porthuis_1920x1080.jpg)
+
+#### 20221003 仙女谷，苏格兰斯凯岛 (© e55evu/Getty Images)
+
+![](images/2022-10/20221003_FairyGlen_1920x1080.jpg)
+
 #### 20221002 Hot air balloons at the Albuquerque International Balloon Fiesta in Albuquerque, New Mexico (© gmeland/Shutterstock)
 
 ![](images/2022-10/20221002_LotsOBalloons_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20220927 Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)
 
 ![](images/2022-09/20220927_YellowstoneUGB_1920x1080.jpg)
-
-#### 20220926 Caribou crossing the Susitna River during autumn, Alaska (© Tim Plowden/Alamy)
-
-![](images/2022-09/20220926_SusitnaRiver_1920x1080.jpg)
-
-#### 20220925 Aerial view of the Amazon River in Brazil (© Curioso.Photography/Shutterstock)
-
-![](images/2022-09/20220925_AmazonMangroves_1920x1080.jpg)
 
 
 
