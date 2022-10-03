@@ -1,4 +1,4 @@
-#### 20221003 ポートハウス, ベルギー アントワープ (© Dmitry Rukhlenko/Alamy)
+#### 20221003 The Port House, designed by Zaha Hadid Architects, Antwerp, Belgium (© Dmitry Rukhlenko/Alamy)
 
 ![](20221003_Porthuis_1920x1080.jpg)
 
