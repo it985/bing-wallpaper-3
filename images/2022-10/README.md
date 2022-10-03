@@ -1,3 +1,11 @@
+#### 20221004 宇宙の崖, カリーナ星雲 (© NASA, ESA, CSA, and STScI)
+
+![](20221004_CosmicCliffs_1920x1080.jpg)
+
+#### 20221004 黄山的日出，中国 (© zhouyousifang/Getty Images)
+
+![](20221004_ChongyangFestival_1920x1080.jpg)
+
 #### 20221003 The Port House, designed by Zaha Hadid Architects, Antwerp, Belgium (© Dmitry Rukhlenko/Alamy)
 
 ![](20221003_Porthuis_1920x1080.jpg)
