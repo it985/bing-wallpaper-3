@@ -2,6 +2,10 @@
 
 ![](images/2022-10/20221003_Porthuis_1920x1080.jpg)
 
+#### 20221003 Kugelpanorama-Luftbild (Little Planet) der Glienicker Brücke, Potsdam, Brandenburg (© 360b/Alamy)
+
+![](images/2022-10/20221003_GlienickerBruecke_1920x1080.jpg)
+
 #### 20221003 仙女谷，苏格兰斯凯岛 (© e55evu/Getty Images)
 
 ![](images/2022-10/20221003_FairyGlen_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220928 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
 
 ![](images/2022-09/20220928_BridalVeilFalls_1920x1080.jpg)
-
-#### 20220927 Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)
-
-![](images/2022-09/20220927_YellowstoneUGB_1920x1080.jpg)
 
 
 

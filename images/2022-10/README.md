@@ -2,6 +2,10 @@
 
 ![](20221003_Porthuis_1920x1080.jpg)
 
+#### 20221003 Kugelpanorama-Luftbild (Little Planet) der Glienicker Brücke, Potsdam, Brandenburg (© 360b/Alamy)
+
+![](20221003_GlienickerBruecke_1920x1080.jpg)
+
 #### 20221003 仙女谷，苏格兰斯凯岛 (© e55evu/Getty Images)
 
 ![](20221003_FairyGlen_1920x1080.jpg)
