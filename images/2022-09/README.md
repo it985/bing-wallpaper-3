@@ -26,6 +26,10 @@
 
 ![](20220927_YellowstoneUGB_1920x1080.jpg)
 
+#### 20220927 Goldene Quallen im Quallensee auf der Insel Eil Malk, Palau (© Nature Picture Library/Alamy)
+
+![](20220927_GoldenJellyfish_1920x1080.jpg)
+
 #### 20220926 Caribou crossing the Susitna River during autumn, Alaska (© Tim Plowden/Alamy)
 
 ![](20220926_SusitnaRiver_1920x1080.jpg)
