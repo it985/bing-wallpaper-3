@@ -1,3 +1,7 @@
+#### 20221005 加勒比海红鹳，里奥拉加托斯自然保护区，墨西哥 (© Claudio Contreras/Minden Pictures)
+
+![](20221005_FlamingoTeacher_1920x1080.jpg)
+
 #### 20221004 Cosmic Cliffs in the Carina Nebula (© NASA, ESA, CSA, and STScI)
 
 ![](20221004_CosmicCliffs_1920x1080.jpg)

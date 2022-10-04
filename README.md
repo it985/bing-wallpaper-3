@@ -1,3 +1,7 @@
+#### 20221005 加勒比海红鹳，里奥拉加托斯自然保护区，墨西哥 (© Claudio Contreras/Minden Pictures)
+
+![](images/2022-10/20221005_FlamingoTeacher_1920x1080.jpg)
+
 #### 20221004 Cosmic Cliffs in the Carina Nebula (© NASA, ESA, CSA, and STScI)
 
 ![](images/2022-10/20221004_CosmicCliffs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220929 Infini-D, modeled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)
 
 ![](images/2022-09/20220929_InfiniD_1920x1080.jpg)
-
-#### 20220928 Water drops on a red maple leaf in Mont St-Bruno National Park, Quebec (© Gilles Delisle/Jaynes Gallery/DanitaDelimont.com)
-
-![](images/2022-09/20220928_MapleDrops_1920x1080.jpg)
 
 
 
