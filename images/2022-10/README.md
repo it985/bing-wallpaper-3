@@ -1,4 +1,4 @@
-#### 20221004 宇宙の崖, カリーナ星雲 (© NASA, ESA, CSA, and STScI)
+#### 20221004 Cosmic Cliffs in the Carina Nebula (© NASA, ESA, CSA, and STScI)
 
 ![](20221004_CosmicCliffs_1920x1080.jpg)
 
