@@ -1,4 +1,4 @@
-#### 20221005 加勒比海红鹳，里奥拉加托斯自然保护区，墨西哥 (© Claudio Contreras/Minden Pictures)
+#### 20221005 Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)
 
 ![](images/2022-10/20221005_FlamingoTeacher_1920x1080.jpg)
 
