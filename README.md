@@ -1,3 +1,7 @@
+#### 20221006 巴斯克海岸世界地质公园的比斯开湾，西班牙 (© Olimpio Fantuz/eStock Photo)
+
+![](images/2022-10/20221006_BayofBiscay_1920x1080.jpg)
+
 #### 20221005 Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)
 
 ![](images/2022-10/20221005_FlamingoTeacher_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20220929 约翰斯顿峡谷，加拿大班夫国家公园 (© Jason Hatfield/TANDEM Stills + Motion)
 
 ![](images/2022-09/20220929_JohnstonWater_1920x1080.jpg)
-
-#### 20220929 Infini-D, modeled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)
-
-![](images/2022-09/20220929_InfiniD_1920x1080.jpg)
 
 
 

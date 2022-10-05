@@ -1,3 +1,7 @@
+#### 20221006 巴斯克海岸世界地质公园的比斯开湾，西班牙 (© Olimpio Fantuz/eStock Photo)
+
+![](20221006_BayofBiscay_1920x1080.jpg)
+
 #### 20221005 Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)
 
 ![](20221005_FlamingoTeacher_1920x1080.jpg)
