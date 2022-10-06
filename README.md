@@ -1,3 +1,11 @@
+#### 20221007 温德米尔湖的风景，坎布里亚湖区，英格兰 (© Chris Warren/eStock Photo)
+
+![](images/2022-10/20221007_WindermereHills_1920x1080.jpg)
+
+#### 20221007 ベルリン光の祭典, ドイツ (© John MacDougall/AFP via Getty Images)
+
+![](images/2022-10/20221007_OberbaumBridge_1920x1080.jpg)
+
 #### 20221006 Basque Coast Geopark in the Bay of Biscay near Bilbao, Spain (© Olimpio Fantuz/eStock Photo)
 
 ![](images/2022-10/20221006_BayofBiscay_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221001 "Bouquet of tulips" de Jeff Koons, Paris (© Kiran Ridley/Stringer/getty images)
 
 ![](images/2022-10/20221001_NBP_1920x1080.jpg)
-
-#### 20220930 Southern right whale diving in the Golfo Nuevo near the Valdes Peninsula, Argentina (© Gabriel Rojo/Minden Pictures)
-
-![](images/2022-09/20220930_EubalaenaAustralis_1920x1080.jpg)
-
-#### 20220929 约翰斯顿峡谷，加拿大班夫国家公园 (© Jason Hatfield/TANDEM Stills + Motion)
-
-![](images/2022-09/20220929_JohnstonWater_1920x1080.jpg)
 
 
 

@@ -1,3 +1,11 @@
+#### 20221007 温德米尔湖的风景，坎布里亚湖区，英格兰 (© Chris Warren/eStock Photo)
+
+![](20221007_WindermereHills_1920x1080.jpg)
+
+#### 20221007 ベルリン光の祭典, ドイツ (© John MacDougall/AFP via Getty Images)
+
+![](20221007_OberbaumBridge_1920x1080.jpg)
+
 #### 20221006 Basque Coast Geopark in the Bay of Biscay near Bilbao, Spain (© Olimpio Fantuz/eStock Photo)
 
 ![](20221006_BayofBiscay_1920x1080.jpg)
