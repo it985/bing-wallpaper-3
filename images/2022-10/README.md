@@ -58,3 +58,7 @@
 
 ![](20221001_NBP_1920x1080.jpg)
 
+#### 20221001 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
+
+![](20221001_BridalVeilFalls_1920x1080.jpg)
+
