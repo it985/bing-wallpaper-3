@@ -1,3 +1,11 @@
+#### 20221008 赤く染まるコキア, 茨城 (© Taro_since2017/shutterstock)
+
+![](20221008_Kokia_1920x1080.jpg)
+
+#### 20221008 佛得角附近大西洋中的玻璃章鱼 (© Solvin Zankl/Minden Pictures)
+
+![](20221008_GlassOctopus_1920x1080.jpg)
+
 #### 20221007 温德米尔湖的风景，坎布里亚湖区，英格兰 (© Chris Warren/eStock Photo)
 
 ![](20221007_WindermereHills_1920x1080.jpg)
