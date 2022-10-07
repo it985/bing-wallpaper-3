@@ -2,7 +2,7 @@
 
 ![](images/2022-10/20221007_WindermereHills_1920x1080.jpg)
 
-#### 20221007 ベルリン光の祭典, ドイツ (© John MacDougall/AFP via Getty Images)
+#### 20221007 Designs projected on the Oberbaum Bridge during the yearly Festival of Lights in Berlin, Germany (© John MacDougall/AFP via Getty Images)
 
 ![](images/2022-10/20221007_OberbaumBridge_1920x1080.jpg)
 
