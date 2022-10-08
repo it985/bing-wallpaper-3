@@ -1,3 +1,7 @@
+#### 20221009 楚科奇海的浮游植物水华，美国阿拉斯加州海岸附近 (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)
+
+![](images/2022-10/20221009_ChukchiSea_1920x1080.jpg)
+
 #### 20221008 赤く染まるコキア, 茨城 (© Taro_since2017/shutterstock)
 
 ![](images/2022-10/20221008_Kokia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221001 Swedish ESO Submillimeter Telescope (SEST) am La-Silla-Observatorium, Chile (© Alberto Ghizzi Panizza/Getty Images)
 
 ![](images/2022-10/20221001_SwedishAntenna_1920x1080.jpg)
-
-#### 20221001 Art installation, ‘breath of life’ by Floria Sigismondi at Nuit Blanche 2016, Nathan Phillips Square, Toronto (© TorontoNews/Alamy Stock Photo)
-
-![](images/2022-10/20221001_NuitArt_1920x1080.jpg)
 
 
 

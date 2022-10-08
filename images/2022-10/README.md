@@ -1,3 +1,7 @@
+#### 20221009 楚科奇海的浮游植物水华，美国阿拉斯加州海岸附近 (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)
+
+![](20221009_ChukchiSea_1920x1080.jpg)
+
 #### 20221008 赤く染まるコキア, 茨城 (© Taro_since2017/shutterstock)
 
 ![](20221008_Kokia_1920x1080.jpg)
