@@ -2,7 +2,7 @@
 
 ![](20221008_Kokia_1920x1080.jpg)
 
-#### 20221008 佛得角附近大西洋中的玻璃章鱼 (© Solvin Zankl/Minden Pictures)
+#### 20221008 Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)
 
 ![](20221008_GlassOctopus_1920x1080.jpg)
 
