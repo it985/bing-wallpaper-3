@@ -1,3 +1,7 @@
+#### 20221010 瓦伦蒂诺大坝，意大利伦巴第大区布雷西亚省 (© wmaster890/Getty Images)
+
+![](20221010_ValvestinoDam_1920x1080.jpg)
+
 #### 20221009 Phytoplankton blooming in the Chukchi Sea off the coast of Alaska (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)
 
 ![](20221009_ChukchiSea_1920x1080.jpg)

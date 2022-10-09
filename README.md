@@ -1,3 +1,7 @@
+#### 20221010 瓦伦蒂诺大坝，意大利伦巴第大区布雷西亚省 (© wmaster890/Getty Images)
+
+![](images/2022-10/20221010_ValvestinoDam_1920x1080.jpg)
+
 #### 20221009 Phytoplankton blooming in the Chukchi Sea off the coast of Alaska (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)
 
 ![](images/2022-10/20221009_ChukchiSea_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221002 倒映在湖中的勃朗峰山脉，法国霞慕尼市 (© Stefan Huwiler/Alamy)
 
 ![](images/2022-10/20221002_LacChesserys_1920x1080.jpg)
-
-#### 20221001 Swedish ESO Submillimeter Telescope (SEST) am La-Silla-Observatorium, Chile (© Alberto Ghizzi Panizza/Getty Images)
-
-![](images/2022-10/20221001_SwedishAntenna_1920x1080.jpg)
 
 
 
