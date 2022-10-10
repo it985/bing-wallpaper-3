@@ -1,3 +1,7 @@
+#### 20221011 带着闪闪发光水滴的泛生墙藓, 荷兰 (© Arjan Troost/Minden Pictures)
+
+![](20221011_TortulaMoss_1920x1080.jpg)
+
 #### 20221010 瓦伦蒂诺大坝，意大利伦巴第大区布雷西亚省 (© wmaster890/Getty Images)
 
 ![](20221010_ValvestinoDam_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20221011 带着闪闪发光水滴的泛生墙藓, 荷兰 (© Arjan Troost/Minden Pictures)
+
+![](images/2022-10/20221011_TortulaMoss_1920x1080.jpg)
+
 #### 20221010 瓦伦蒂诺大坝，意大利伦巴第大区布雷西亚省 (© wmaster890/Getty Images)
 
 ![](images/2022-10/20221010_ValvestinoDam_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221004 黄山的日出，中国 (© zhouyousifang/Getty Images)
 
 ![](images/2022-10/20221004_ChongyangFestival_1920x1080.jpg)
-
-#### 20221003 The Port House, designed by Zaha Hadid Architects, Antwerp, Belgium (© Dmitry Rukhlenko/Alamy)
-
-![](images/2022-10/20221003_Porthuis_1920x1080.jpg)
 
 
 
