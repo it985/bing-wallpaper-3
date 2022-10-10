@@ -6,6 +6,10 @@
 
 ![](20221010_StareLembruch_1920x1080.jpg)
 
+#### 20221010 The 'Circle of Sacred Smoke' sculpture by Junkyu Muto frames Devils Tower in Wyoming (© Nagel Photography/Shutterstock)
+
+![](20221010_SacredSmoke_1920x1080.jpg)
+
 #### 20221010 Vue aérienne de Paris en automne (© encrier/iStock/Getty Images Plus)
 
 ![](20221010_ParisFall_1920x1080.jpg)

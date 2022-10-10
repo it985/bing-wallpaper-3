@@ -6,6 +6,10 @@
 
 ![](images/2022-10/20221010_StareLembruch_1920x1080.jpg)
 
+#### 20221010 The 'Circle of Sacred Smoke' sculpture by Junkyu Muto frames Devils Tower in Wyoming (© Nagel Photography/Shutterstock)
+
+![](images/2022-10/20221010_SacredSmoke_1920x1080.jpg)
+
 #### 20221010 Vue aérienne de Paris en automne (© encrier/iStock/Getty Images Plus)
 
 ![](images/2022-10/20221010_ParisFall_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221003 The Port House, designed by Zaha Hadid Architects, Antwerp, Belgium (© Dmitry Rukhlenko/Alamy)
 
 ![](images/2022-10/20221003_Porthuis_1920x1080.jpg)
-
-#### 20221003 Kugelpanorama-Luftbild (Little Planet) der Glienicker Brücke, Potsdam, Brandenburg (© 360b/Alamy)
-
-![](images/2022-10/20221003_GlienickerBruecke_1920x1080.jpg)
 
 
 
