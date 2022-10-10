@@ -10,6 +10,10 @@
 
 ![](images/2022-10/20221010_ParisFall_1920x1080.jpg)
 
+#### 20221010 Close up image of colourful Indian corn kernels in Mississauga, ON (© Nancybelle Gonzaga Villarroya/Getty Images)
+
+![](images/2022-10/20221010_CornKernels_1920x1080.jpg)
+
 #### 20221009 Phytoplankton blooming in the Chukchi Sea off the coast of Alaska (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)
 
 ![](images/2022-10/20221009_ChukchiSea_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221003 Kugelpanorama-Luftbild (Little Planet) der Glienicker Brücke, Potsdam, Brandenburg (© 360b/Alamy)
 
 ![](images/2022-10/20221003_GlienickerBruecke_1920x1080.jpg)
-
-#### 20221003 仙女谷，苏格兰斯凯岛 (© e55evu/Getty Images)
-
-![](images/2022-10/20221003_FairyGlen_1920x1080.jpg)
 
 
 
