@@ -2,6 +2,14 @@
 
 ![](20221010_ValvestinoDam_1920x1080.jpg)
 
+#### 20221010 Herzförmiger Starenschwarm bei Lembruch, Naturpark Dümmer, Niedersachsen (© Christian Kosanetzky/Getty Images)
+
+![](20221010_StareLembruch_1920x1080.jpg)
+
+#### 20221010 Vue aérienne de Paris en automne (© encrier/iStock/Getty Images Plus)
+
+![](20221010_ParisFall_1920x1080.jpg)
+
 #### 20221009 Phytoplankton blooming in the Chukchi Sea off the coast of Alaska (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)
 
 ![](20221009_ChukchiSea_1920x1080.jpg)

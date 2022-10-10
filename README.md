@@ -2,6 +2,14 @@
 
 ![](images/2022-10/20221010_ValvestinoDam_1920x1080.jpg)
 
+#### 20221010 Herzförmiger Starenschwarm bei Lembruch, Naturpark Dümmer, Niedersachsen (© Christian Kosanetzky/Getty Images)
+
+![](images/2022-10/20221010_StareLembruch_1920x1080.jpg)
+
+#### 20221010 Vue aérienne de Paris en automne (© encrier/iStock/Getty Images Plus)
+
+![](images/2022-10/20221010_ParisFall_1920x1080.jpg)
+
 #### 20221009 Phytoplankton blooming in the Chukchi Sea off the coast of Alaska (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)
 
 ![](images/2022-10/20221009_ChukchiSea_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221003 仙女谷，苏格兰斯凯岛 (© e55evu/Getty Images)
 
 ![](images/2022-10/20221003_FairyGlen_1920x1080.jpg)
-
-#### 20221002 Hot air balloons at the Albuquerque International Balloon Fiesta in Albuquerque, New Mexico (© gmeland/Shutterstock)
-
-![](images/2022-10/20221002_LotsOBalloons_1920x1080.jpg)
-
-#### 20221002 倒映在湖中的勃朗峰山脉，法国霞慕尼市 (© Stefan Huwiler/Alamy)
-
-![](images/2022-10/20221002_LacChesserys_1920x1080.jpg)
 
 
 
