@@ -2,6 +2,10 @@
 
 ![](20221011_TortulaMoss_1920x1080.jpg)
 
+#### 20221011 Cyprès chauves aux couleurs d’automne en Isère (© Jean-Philippe Delobelle/Minden Images)
+
+![](20221011_ArbresOcres_1920x1080.jpg)
+
 #### 20221010 瓦伦蒂诺大坝，意大利伦巴第大区布雷西亚省 (© wmaster890/Getty Images)
 
 ![](20221010_ValvestinoDam_1920x1080.jpg)
