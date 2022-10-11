@@ -1,4 +1,4 @@
-#### 20221011 带着闪闪发光水滴的泛生墙藓, 荷兰 (© Arjan Troost/Minden Pictures)
+#### 20221011 Wall screw-moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)
 
 ![](20221011_TortulaMoss_1920x1080.jpg)
 
