@@ -1,3 +1,7 @@
+#### 20221012 蒙茅斯海滩的菊石路面，英国多塞特侏罗纪海岸世界遗产地 (© AWL Images/Danita Delimont)
+
+![](images/2022-10/20221012_AmmoniteGraveyard_1920x1080.jpg)
+
 #### 20221011 Wall screw-moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)
 
 ![](images/2022-10/20221011_TortulaMoss_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221005 Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)
 
 ![](images/2022-10/20221005_FlamingoTeacher_1920x1080.jpg)
-
-#### 20221004 Cosmic Cliffs in the Carina Nebula (© NASA, ESA, CSA, and STScI)
-
-![](images/2022-10/20221004_CosmicCliffs_1920x1080.jpg)
 
 
 
