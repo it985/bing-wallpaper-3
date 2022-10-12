@@ -1,4 +1,4 @@
-#### 20221012 蒙茅斯海滩的菊石路面，英国多塞特侏罗纪海岸世界遗产地 (© AWL Images/Danita Delimont)
+#### 20221012 Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)
 
 ![](20221012_AmmoniteGraveyard_1920x1080.jpg)
 
