@@ -1,3 +1,7 @@
+#### 20221013 迪纳利国家公园里的两只驼鹿，美国阿拉斯加州 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](images/2022-10/20221013_AlaskaMoose_1920x1080.jpg)
+
 #### 20221012 Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)
 
 ![](images/2022-10/20221012_AmmoniteGraveyard_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221006 Basque Coast Geopark in the Bay of Biscay near Bilbao, Spain (© Olimpio Fantuz/eStock Photo)
 
 ![](images/2022-10/20221006_BayofBiscay_1920x1080.jpg)
-
-#### 20221005 Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)
-
-![](images/2022-10/20221005_FlamingoTeacher_1920x1080.jpg)
 
 
 

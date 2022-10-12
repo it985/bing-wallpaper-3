@@ -1,3 +1,7 @@
+#### 20221013 迪纳利国家公园里的两只驼鹿，美国阿拉斯加州 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](20221013_AlaskaMoose_1920x1080.jpg)
+
 #### 20221012 Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)
 
 ![](20221012_AmmoniteGraveyard_1920x1080.jpg)
