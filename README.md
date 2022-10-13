@@ -1,4 +1,4 @@
-#### 20221013 迪纳利国家公园里的两只驼鹿，美国阿拉斯加州 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+#### 20221013 Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2022-10/20221013_AlaskaMoose_1920x1080.jpg)
 
