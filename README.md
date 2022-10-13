@@ -1,3 +1,7 @@
+#### 20221014 奥尔德萨和佩尔迪多山国家公园里的瀑布，西班牙比利牛斯山脉 (© David Santiago Garcia/Cavan Images)
+
+![](images/2022-10/20221014_RioArazas_1920x1080.jpg)
+
 #### 20221013 Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2022-10/20221013_AlaskaMoose_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221007 Designs projected on the Oberbaum Bridge during the yearly Festival of Lights in Berlin, Germany (© John MacDougall/AFP via Getty Images)
 
 ![](images/2022-10/20221007_OberbaumBridge_1920x1080.jpg)
-
-#### 20221006 Basque Coast Geopark in the Bay of Biscay near Bilbao, Spain (© Olimpio Fantuz/eStock Photo)
-
-![](images/2022-10/20221006_BayofBiscay_1920x1080.jpg)
 
 
 
