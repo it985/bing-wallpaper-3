@@ -1,3 +1,7 @@
+#### 20221015 纳克什鲁斯塔姆遗址，伊朗波斯波利斯 (© mshirani/Shutterstock)
+
+![](images/2022-10/20221015_NaqsheRustam_1920x1080.jpg)
+
 #### 20221014 Waterfall on the Río Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)
 
 ![](images/2022-10/20221014_RioArazas_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221008 赤く染まるコキア, 茨城 (© Taro_since2017/shutterstock)
 
 ![](images/2022-10/20221008_Kokia_1920x1080.jpg)
-
-#### 20221008 Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)
-
-![](images/2022-10/20221008_GlassOctopus_1920x1080.jpg)
 
 
 

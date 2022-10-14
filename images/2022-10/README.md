@@ -1,3 +1,7 @@
+#### 20221015 纳克什鲁斯塔姆遗址，伊朗波斯波利斯 (© mshirani/Shutterstock)
+
+![](20221015_NaqsheRustam_1920x1080.jpg)
+
 #### 20221014 Waterfall on the Río Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)
 
 ![](20221014_RioArazas_1920x1080.jpg)
