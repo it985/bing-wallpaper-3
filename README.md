@@ -2,6 +2,10 @@
 
 ![](images/2022-10/20221014_RioArazas_1920x1080.jpg)
 
+#### 20221014 The Milky Way and galactic core area over Mount Andromeda (centre), Mount Athabasca (left) and the Athabasca Glacier (right) at the Columbia Icefields (© Alan Dyer/VW PICS/Universal Images Group via Getty Images)
+
+![](images/2022-10/20221014_JasperMilkyWay_1920x1080.jpg)
+
 #### 20221014 Blick auf die Burg Hohenzollern in der Nähe von Hechingen, Schwäbische Alb, Baden-Württemberg (© Cornelia Dorr/eStock Photo)
 
 ![](images/2022-10/20221014_HohenzollernHechingen_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221008 Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)
 
 ![](images/2022-10/20221008_GlassOctopus_1920x1080.jpg)
-
-#### 20221007 温德米尔湖的风景，坎布里亚湖区，英格兰 (© Chris Warren/eStock Photo)
-
-![](images/2022-10/20221007_WindermereHills_1920x1080.jpg)
 
 
 

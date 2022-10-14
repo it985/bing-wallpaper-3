@@ -2,6 +2,10 @@
 
 ![](20221014_RioArazas_1920x1080.jpg)
 
+#### 20221014 The Milky Way and galactic core area over Mount Andromeda (centre), Mount Athabasca (left) and the Athabasca Glacier (right) at the Columbia Icefields (© Alan Dyer/VW PICS/Universal Images Group via Getty Images)
+
+![](20221014_JasperMilkyWay_1920x1080.jpg)
+
 #### 20221014 Blick auf die Burg Hohenzollern in der Nähe von Hechingen, Schwäbische Alb, Baden-Württemberg (© Cornelia Dorr/eStock Photo)
 
 ![](20221014_HohenzollernHechingen_1920x1080.jpg)
