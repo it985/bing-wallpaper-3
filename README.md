@@ -2,6 +2,10 @@
 
 ![](images/2022-10/20221014_RioArazas_1920x1080.jpg)
 
+#### 20221014 Blick auf die Burg Hohenzollern in der Nähe von Hechingen, Schwäbische Alb, Baden-Württemberg (© Cornelia Dorr/eStock Photo)
+
+![](images/2022-10/20221014_HohenzollernHechingen_1920x1080.jpg)
+
 #### 20221013 Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2022-10/20221013_AlaskaMoose_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221007 温德米尔湖的风景，坎布里亚湖区，英格兰 (© Chris Warren/eStock Photo)
 
 ![](images/2022-10/20221007_WindermereHills_1920x1080.jpg)
-
-#### 20221007 Designs projected on the Oberbaum Bridge during the yearly Festival of Lights in Berlin, Germany (© John MacDougall/AFP via Getty Images)
-
-![](images/2022-10/20221007_OberbaumBridge_1920x1080.jpg)
 
 
 

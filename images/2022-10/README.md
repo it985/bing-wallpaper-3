@@ -2,6 +2,10 @@
 
 ![](20221014_RioArazas_1920x1080.jpg)
 
+#### 20221014 Blick auf die Burg Hohenzollern in der Nähe von Hechingen, Schwäbische Alb, Baden-Württemberg (© Cornelia Dorr/eStock Photo)
+
+![](20221014_HohenzollernHechingen_1920x1080.jpg)
+
 #### 20221013 Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](20221013_AlaskaMoose_1920x1080.jpg)
