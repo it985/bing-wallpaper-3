@@ -1,4 +1,4 @@
-#### 20221014 奥尔德萨和佩尔迪多山国家公园里的瀑布，西班牙比利牛斯山脉 (© David Santiago Garcia/Cavan Images)
+#### 20221014 Waterfall on the Río Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)
 
 ![](20221014_RioArazas_1920x1080.jpg)
 
