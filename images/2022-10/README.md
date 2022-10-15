@@ -1,4 +1,4 @@
-#### 20221015 纳克什鲁斯塔姆遗址，伊朗波斯波利斯 (© mshirani/Shutterstock)
+#### 20221015 Naqsh-e Rostam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)
 
 ![](20221015_NaqsheRustam_1920x1080.jpg)
 
