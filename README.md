@@ -1,3 +1,7 @@
+#### 20221016 克里斯蒂安王子之声，格陵兰岛 (© Posnov/Getty Images)
+
+![](images/2022-10/20221016_PrinceChristianSound_1920x1080.jpg)
+
 #### 20221015 Naqsh-e Rostam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)
 
 ![](images/2022-10/20221015_NaqsheRustam_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221009 Phytoplankton blooming in the Chukchi Sea off the coast of Alaska (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)
 
 ![](images/2022-10/20221009_ChukchiSea_1920x1080.jpg)
-
-#### 20221008 赤く染まるコキア, 茨城 (© Taro_since2017/shutterstock)
-
-![](images/2022-10/20221008_Kokia_1920x1080.jpg)
 
 
 

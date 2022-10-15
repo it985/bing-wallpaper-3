@@ -1,3 +1,7 @@
+#### 20221016 克里斯蒂安王子之声，格陵兰岛 (© Posnov/Getty Images)
+
+![](20221016_PrinceChristianSound_1920x1080.jpg)
+
 #### 20221015 Naqsh-e Rostam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)
 
 ![](20221015_NaqsheRustam_1920x1080.jpg)
