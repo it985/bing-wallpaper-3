@@ -1,4 +1,4 @@
-#### 20221016 克里斯蒂安王子之声，格陵兰岛 (© Posnov/Getty Images)
+#### 20221016 Prince Christian Sound in southern Greenland (© Posnov/Getty Images)
 
 ![](images/2022-10/20221016_PrinceChristianSound_1920x1080.jpg)
 
