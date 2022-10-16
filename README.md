@@ -1,3 +1,7 @@
+#### 20221017 捷克共和国波希米亚-摩拉维亚高地的长耳鸮 (© Ondrej Prosicky/Alamy)
+
+![](images/2022-10/20221017_SwedenOwl_1920x1080.jpg)
+
 #### 20221016 Prince Christian Sound in southern Greenland (© Posnov/Getty Images)
 
 ![](images/2022-10/20221016_PrinceChristianSound_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221010 Close up image of colourful Indian corn kernels in Mississauga, ON (© Nancybelle Gonzaga Villarroya/Getty Images)
 
 ![](images/2022-10/20221010_CornKernels_1920x1080.jpg)
-
-#### 20221009 Phytoplankton blooming in the Chukchi Sea off the coast of Alaska (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)
-
-![](images/2022-10/20221009_ChukchiSea_1920x1080.jpg)
 
 
 

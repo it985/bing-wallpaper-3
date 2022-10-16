@@ -1,3 +1,7 @@
+#### 20221017 捷克共和国波希米亚-摩拉维亚高地的长耳鸮 (© Ondrej Prosicky/Alamy)
+
+![](20221017_SwedenOwl_1920x1080.jpg)
+
 #### 20221016 Prince Christian Sound in southern Greenland (© Posnov/Getty Images)
 
 ![](20221016_PrinceChristianSound_1920x1080.jpg)
