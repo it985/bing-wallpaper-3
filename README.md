@@ -1,3 +1,11 @@
+#### 20221018 ビルバオ・グッゲンハイム美術館, スペイン ビルバオ (© Jeremy Horner/Getty Images)
+
+![](images/2022-10/20221018_GB_1920x1080.jpg)
+
+#### 20221018 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
+
+![](images/2022-10/20221018_BridalVeilFalls_1920x1080.jpg)
+
 #### 20221017 Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)
 
 ![](images/2022-10/20221017_SwedenOwl_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221010 The 'Circle of Sacred Smoke' sculpture by Junkyu Muto frames Devils Tower in Wyoming (© Nagel Photography/Shutterstock)
 
 ![](images/2022-10/20221010_SacredSmoke_1920x1080.jpg)
-
-#### 20221010 Vue aérienne de Paris en automne (© encrier/iStock/Getty Images Plus)
-
-![](images/2022-10/20221010_ParisFall_1920x1080.jpg)
-
-#### 20221010 Close up image of colourful Indian corn kernels in Mississauga, ON (© Nancybelle Gonzaga Villarroya/Getty Images)
-
-![](images/2022-10/20221010_CornKernels_1920x1080.jpg)
 
 
 

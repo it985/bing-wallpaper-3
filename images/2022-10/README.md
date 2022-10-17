@@ -1,3 +1,11 @@
+#### 20221018 ビルバオ・グッゲンハイム美術館, スペイン ビルバオ (© Jeremy Horner/Getty Images)
+
+![](20221018_GB_1920x1080.jpg)
+
+#### 20221018 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
+
+![](20221018_BridalVeilFalls_1920x1080.jpg)
+
 #### 20221017 Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)
 
 ![](20221017_SwedenOwl_1920x1080.jpg)
