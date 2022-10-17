@@ -1,4 +1,4 @@
-#### 20221017 捷克共和国波希米亚-摩拉维亚高地的长耳鸮 (© Ondrej Prosicky/Alamy)
+#### 20221017 Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)
 
 ![](20221017_SwedenOwl_1920x1080.jpg)
 
