@@ -1,4 +1,8 @@
-#### 20221018 ビルバオ・グッゲンハイム美術館, スペイン ビルバオ (© Jeremy Horner/Getty Images)
+#### 20221019 Blue tiger butterflies, Bangalore, India (© Amith Nag Photography/Getty Images)
+
+![](images/2022-10/20221019_BlueTigerButterflies_1920x1080.jpg)
+
+#### 20221018 Guggenheim Museum Bilbao, Spain (© Jeremy Horner/Getty Images)
 
 ![](images/2022-10/20221018_GB_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20221010 Herzförmiger Starenschwarm bei Lembruch, Naturpark Dümmer, Niedersachsen (© Christian Kosanetzky/Getty Images)
 
 ![](images/2022-10/20221010_StareLembruch_1920x1080.jpg)
-
-#### 20221010 The 'Circle of Sacred Smoke' sculpture by Junkyu Muto frames Devils Tower in Wyoming (© Nagel Photography/Shutterstock)
-
-![](images/2022-10/20221010_SacredSmoke_1920x1080.jpg)
 
 
 

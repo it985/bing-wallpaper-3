@@ -1,4 +1,8 @@
-#### 20221018 ビルバオ・グッゲンハイム美術館, スペイン ビルバオ (© Jeremy Horner/Getty Images)
+#### 20221019 Blue tiger butterflies, Bangalore, India (© Amith Nag Photography/Getty Images)
+
+![](20221019_BlueTigerButterflies_1920x1080.jpg)
+
+#### 20221018 Guggenheim Museum Bilbao, Spain (© Jeremy Horner/Getty Images)
 
 ![](20221018_GB_1920x1080.jpg)
 
