@@ -1,3 +1,7 @@
+#### 20221019 秋天的图林根森林与瓦特堡城堡，德国 (© ezypix/Getty Images)
+
+![](images/2022-10/20221019_WartburgCastle_1920x1080.jpg)
+
 #### 20221019 Blue tiger butterflies, Bangalore, India (© Amith Nag Photography/Getty Images)
 
 ![](images/2022-10/20221019_BlueTigerButterflies_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221010 瓦伦蒂诺大坝，意大利伦巴第大区布雷西亚省 (© wmaster890/Getty Images)
 
 ![](images/2022-10/20221010_ValvestinoDam_1920x1080.jpg)
-
-#### 20221010 Herzförmiger Starenschwarm bei Lembruch, Naturpark Dümmer, Niedersachsen (© Christian Kosanetzky/Getty Images)
-
-![](images/2022-10/20221010_StareLembruch_1920x1080.jpg)
 
 
 

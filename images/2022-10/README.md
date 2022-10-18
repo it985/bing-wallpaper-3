@@ -1,3 +1,7 @@
+#### 20221019 秋天的图林根森林与瓦特堡城堡，德国 (© ezypix/Getty Images)
+
+![](20221019_WartburgCastle_1920x1080.jpg)
+
 #### 20221019 Blue tiger butterflies, Bangalore, India (© Amith Nag Photography/Getty Images)
 
 ![](20221019_BlueTigerButterflies_1920x1080.jpg)
