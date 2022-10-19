@@ -1,3 +1,7 @@
+#### 20221020 塔拉曼卡旧港的霍氏树懒母子，哥斯达黎加 (© Suzi Eszterhas/Minden Pictures)
+
+![](20221020_SlothDay_1920x1080.jpg)
+
 #### 20221019 Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)
 
 ![](20221019_WartburgCastle_1920x1080.jpg)

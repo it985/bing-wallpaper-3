@@ -1,3 +1,7 @@
+#### 20221020 塔拉曼卡旧港的霍氏树懒母子，哥斯达黎加 (© Suzi Eszterhas/Minden Pictures)
+
+![](images/2022-10/20221020_SlothDay_1920x1080.jpg)
+
 #### 20221019 Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)
 
 ![](images/2022-10/20221019_WartburgCastle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221011 Cyprès chauves aux couleurs d’automne en Isère (© Jean-Philippe Delobelle/Minden Images)
 
 ![](images/2022-10/20221011_ArbresOcres_1920x1080.jpg)
-
-#### 20221010 瓦伦蒂诺大坝，意大利伦巴第大区布雷西亚省 (© wmaster890/Getty Images)
-
-![](images/2022-10/20221010_ValvestinoDam_1920x1080.jpg)
 
 
 
