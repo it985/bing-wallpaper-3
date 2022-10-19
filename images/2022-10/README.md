@@ -1,4 +1,4 @@
-#### 20221019 秋天的图林根森林与瓦特堡城堡，德国 (© ezypix/Getty Images)
+#### 20221019 Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)
 
 ![](20221019_WartburgCastle_1920x1080.jpg)
 
