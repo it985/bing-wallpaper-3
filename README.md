@@ -1,3 +1,7 @@
+#### 20221021 秋季的落羽杉，美国佐治亚州 (© Chris Moore/Tandem Stills + Motion)
+
+![](images/2022-10/20221021_GeorgiaCypress_1920x1080.jpg)
+
 #### 20221020 Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
 
 ![](images/2022-10/20221020_SlothDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221011 Wall screw-moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)
 
 ![](images/2022-10/20221011_TortulaMoss_1920x1080.jpg)
-
-#### 20221011 Cyprès chauves aux couleurs d’automne en Isère (© Jean-Philippe Delobelle/Minden Images)
-
-![](images/2022-10/20221011_ArbresOcres_1920x1080.jpg)
 
 
 

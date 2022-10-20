@@ -1,3 +1,7 @@
+#### 20221021 秋季的落羽杉，美国佐治亚州 (© Chris Moore/Tandem Stills + Motion)
+
+![](20221021_GeorgiaCypress_1920x1080.jpg)
+
 #### 20221020 Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
 
 ![](20221020_SlothDay_1920x1080.jpg)
