@@ -1,4 +1,4 @@
-#### 20221020 塔拉曼卡旧港的霍氏树懒母子，哥斯达黎加 (© Suzi Eszterhas/Minden Pictures)
+#### 20221020 Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
 
 ![](20221020_SlothDay_1920x1080.jpg)
 
