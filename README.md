@@ -1,3 +1,7 @@
+#### 20221021 Le lac à l’Anglais et les fausses ruines d’une chapelle à Chamonix (© Aishe/Shutterstock)
+
+![](images/2022-10/20221021_LacSinclair_1920x1080.jpg)
+
 #### 20221021 秋季的落羽杉，美国佐治亚州 (© Chris Moore/Tandem Stills + Motion)
 
 ![](images/2022-10/20221021_GeorgiaCypress_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221012 Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)
 
 ![](images/2022-10/20221012_AmmoniteGraveyard_1920x1080.jpg)
-
-#### 20221011 Wall screw-moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)
-
-![](images/2022-10/20221011_TortulaMoss_1920x1080.jpg)
 
 
 

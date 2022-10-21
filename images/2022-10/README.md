@@ -1,3 +1,7 @@
+#### 20221021 Le lac à l’Anglais et les fausses ruines d’une chapelle à Chamonix (© Aishe/Shutterstock)
+
+![](20221021_LacSinclair_1920x1080.jpg)
+
 #### 20221021 秋季的落羽杉，美国佐治亚州 (© Chris Moore/Tandem Stills + Motion)
 
 ![](20221021_GeorgiaCypress_1920x1080.jpg)
