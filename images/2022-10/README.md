@@ -2,7 +2,7 @@
 
 ![](20221021_LacSinclair_1920x1080.jpg)
 
-#### 20221021 秋季的落羽杉，美国佐治亚州 (© Chris Moore/Tandem Stills + Motion)
+#### 20221021 Cypress trees in autumn, Georgia (© Chris Moore/Tandem Stills + Motion)
 
 ![](20221021_GeorgiaCypress_1920x1080.jpg)
 
