@@ -1,3 +1,7 @@
+#### 20221022 中国桂林漓江国家公园的喀斯特山脉 (© Sean Pavone/Alamy)
+
+![](images/2022-10/20221022_KarstMountains_1920x1080.jpg)
+
 #### 20221021 Le lac à l’Anglais et les fausses ruines d’une chapelle à Chamonix (© Aishe/Shutterstock)
 
 ![](images/2022-10/20221021_LacSinclair_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221013 Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2022-10/20221013_AlaskaMoose_1920x1080.jpg)
-
-#### 20221012 Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)
-
-![](images/2022-10/20221012_AmmoniteGraveyard_1920x1080.jpg)
 
 
 

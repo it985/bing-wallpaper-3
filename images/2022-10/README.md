@@ -1,3 +1,7 @@
+#### 20221022 中国桂林漓江国家公园的喀斯特山脉 (© Sean Pavone/Alamy)
+
+![](20221022_KarstMountains_1920x1080.jpg)
+
 #### 20221021 Le lac à l’Anglais et les fausses ruines d’une chapelle à Chamonix (© Aishe/Shutterstock)
 
 ![](20221021_LacSinclair_1920x1080.jpg)
