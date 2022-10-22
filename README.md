@@ -1,3 +1,11 @@
+#### 20221023 平安神宮の灯篭, 京都 (© Peter Elvin/Alamy Stock Photo)
+
+![](images/2022-10/20221023_Soko_1920x1080.jpg)
+
+#### 20221023 疣鼻天鹅，荷兰瓦尔肯霍斯特自然保护区 (© David Pattyn/Minden Pictures)
+
+![](images/2022-10/20221023_Knobbelzwaan_1920x1080.jpg)
+
 #### 20221022 Karst mountains in Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)
 
 ![](images/2022-10/20221022_KarstMountains_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221014 The Milky Way and galactic core area over Mount Andromeda (centre), Mount Athabasca (left) and the Athabasca Glacier (right) at the Columbia Icefields (© Alan Dyer/VW PICS/Universal Images Group via Getty Images)
 
 ![](images/2022-10/20221014_JasperMilkyWay_1920x1080.jpg)
-
-#### 20221014 Blick auf die Burg Hohenzollern in der Nähe von Hechingen, Schwäbische Alb, Baden-Württemberg (© Cornelia Dorr/eStock Photo)
-
-![](images/2022-10/20221014_HohenzollernHechingen_1920x1080.jpg)
-
-#### 20221013 Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)
-
-![](images/2022-10/20221013_AlaskaMoose_1920x1080.jpg)
 
 
 

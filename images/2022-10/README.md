@@ -1,3 +1,11 @@
+#### 20221023 平安神宮の灯篭, 京都 (© Peter Elvin/Alamy Stock Photo)
+
+![](20221023_Soko_1920x1080.jpg)
+
+#### 20221023 疣鼻天鹅，荷兰瓦尔肯霍斯特自然保护区 (© David Pattyn/Minden Pictures)
+
+![](20221023_Knobbelzwaan_1920x1080.jpg)
+
 #### 20221022 Karst mountains in Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)
 
 ![](20221022_KarstMountains_1920x1080.jpg)
