@@ -1,4 +1,4 @@
-#### 20221022 中国桂林漓江国家公园的喀斯特山脉 (© Sean Pavone/Alamy)
+#### 20221022 Karst mountains in Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)
 
 ![](20221022_KarstMountains_1920x1080.jpg)
 
