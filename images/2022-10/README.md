@@ -1,3 +1,11 @@
+#### 20221024 玛利恩堡，德国莱茵兰-普法尔茨州采尔县附近 (© Eiben, Hans Georg/Alamy)
+
+![](20221024_MarienburgZell_1920x1080.jpg)
+
+#### 20221024 ディワリを祝うランゴリ, インド グワーハーティー (© Biju Boro/Getty Images)
+
+![](20221024_GuwahatiDiwali_1920x1080.jpg)
+
 #### 20221023 平安神宮の灯篭, 京都 (© Peter Elvin/Alamy Stock Photo)
 
 ![](20221023_Soko_1920x1080.jpg)

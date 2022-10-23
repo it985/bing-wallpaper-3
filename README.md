@@ -1,3 +1,11 @@
+#### 20221024 玛利恩堡，德国莱茵兰-普法尔茨州采尔县附近 (© Eiben, Hans Georg/Alamy)
+
+![](images/2022-10/20221024_MarienburgZell_1920x1080.jpg)
+
+#### 20221024 ディワリを祝うランゴリ, インド グワーハーティー (© Biju Boro/Getty Images)
+
+![](images/2022-10/20221024_GuwahatiDiwali_1920x1080.jpg)
+
 #### 20221023 平安神宮の灯篭, 京都 (© Peter Elvin/Alamy Stock Photo)
 
 ![](images/2022-10/20221023_Soko_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221015 Naqsh-e Rostam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)
 
 ![](images/2022-10/20221015_NaqsheRustam_1920x1080.jpg)
-
-#### 20221014 Waterfall on the Río Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)
-
-![](images/2022-10/20221014_RioArazas_1920x1080.jpg)
-
-#### 20221014 The Milky Way and galactic core area over Mount Andromeda (centre), Mount Athabasca (left) and the Athabasca Glacier (right) at the Columbia Icefields (© Alan Dyer/VW PICS/Universal Images Group via Getty Images)
-
-![](images/2022-10/20221014_JasperMilkyWay_1920x1080.jpg)
 
 
 
