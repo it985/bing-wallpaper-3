@@ -2,7 +2,7 @@
 
 ![](images/2022-10/20221023_Soko_1920x1080.jpg)
 
-#### 20221023 疣鼻天鹅，荷兰瓦尔肯霍斯特自然保护区 (© David Pattyn/Minden Pictures)
+#### 20221023 Mute swan in Valkenhorst Nature Reserve, near Valkenswaard, the Netherlands (© David Pattyn/Minden Pictures)
 
 ![](images/2022-10/20221023_Knobbelzwaan_1920x1080.jpg)
 
