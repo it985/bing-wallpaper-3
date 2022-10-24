@@ -1,3 +1,7 @@
+#### 20221024 Alte Bibliothek der Abtei Ottobeuren, Bayern (© H & D ZIELSKE/Gallery Stock)
+
+![](20221024_OttobeurenBibliothek_1920x1080.jpg)
+
 #### 20221024 玛利恩堡，德国莱茵兰-普法尔茨州采尔县附近 (© Eiben, Hans Georg/Alamy)
 
 ![](20221024_MarienburgZell_1920x1080.jpg)
