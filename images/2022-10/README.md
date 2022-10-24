@@ -6,7 +6,7 @@
 
 ![](20221024_MarienburgZell_1920x1080.jpg)
 
-#### 20221024 ディワリを祝うランゴリ, インド グワーハーティー (© Biju Boro/Getty Images)
+#### 20221024 Oil lamps arranged on a rangoli to celebrate Diwali in Guwahati, India (© Biju Boro/Getty Images)
 
 ![](20221024_GuwahatiDiwali_1920x1080.jpg)
 
