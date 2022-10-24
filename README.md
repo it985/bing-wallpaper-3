@@ -1,3 +1,7 @@
+#### 20221025 怪物公园里的奥库斯雕像, 意大利博马尔佐花园 (© Scott Wilson/Alamy)
+
+![](images/2022-10/20221025_OrcusMouth_1920x1080.jpg)
+
 #### 20221024 Alte Bibliothek der Abtei Ottobeuren, Bayern (© H & D ZIELSKE/Gallery Stock)
 
 ![](images/2022-10/20221024_OttobeurenBibliothek_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221017 Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)
 
 ![](images/2022-10/20221017_SwedenOwl_1920x1080.jpg)
-
-#### 20221016 Prince Christian Sound in southern Greenland (© Posnov/Getty Images)
-
-![](images/2022-10/20221016_PrinceChristianSound_1920x1080.jpg)
 
 
 

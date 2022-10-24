@@ -1,3 +1,7 @@
+#### 20221025 怪物公园里的奥库斯雕像, 意大利博马尔佐花园 (© Scott Wilson/Alamy)
+
+![](20221025_OrcusMouth_1920x1080.jpg)
+
 #### 20221024 Alte Bibliothek der Abtei Ottobeuren, Bayern (© H & D ZIELSKE/Gallery Stock)
 
 ![](20221024_OttobeurenBibliothek_1920x1080.jpg)
