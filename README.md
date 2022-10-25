@@ -1,3 +1,7 @@
+#### 20221026 巴尔干中央国家公园的布罗肯现象，保加利亚 (© Maya Karkalicheva/Getty Images)
+
+![](images/2022-10/20221026_BrockenSpecter_1920x1080.jpg)
+
 #### 20221025 Orcus sculpture in the Gardens of Bomarzo in Bomarzo, Italy (© Scott Wilson/Alamy)
 
 ![](images/2022-10/20221025_OrcusMouth_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221018 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
 
 ![](images/2022-10/20221018_BridalVeilFalls_1920x1080.jpg)
-
-#### 20221017 Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)
-
-![](images/2022-10/20221017_SwedenOwl_1920x1080.jpg)
 
 
 

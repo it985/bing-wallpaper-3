@@ -1,3 +1,7 @@
+#### 20221026 巴尔干中央国家公园的布罗肯现象，保加利亚 (© Maya Karkalicheva/Getty Images)
+
+![](20221026_BrockenSpecter_1920x1080.jpg)
+
 #### 20221025 Orcus sculpture in the Gardens of Bomarzo in Bomarzo, Italy (© Scott Wilson/Alamy)
 
 ![](20221025_OrcusMouth_1920x1080.jpg)
