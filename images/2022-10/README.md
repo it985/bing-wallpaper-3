@@ -1,4 +1,4 @@
-#### 20221025 怪物公园里的奥库斯雕像, 意大利博马尔佐花园 (© Scott Wilson/Alamy)
+#### 20221025 Orcus sculpture in the Gardens of Bomarzo in Bomarzo, Italy (© Scott Wilson/Alamy)
 
 ![](20221025_OrcusMouth_1920x1080.jpg)
 
