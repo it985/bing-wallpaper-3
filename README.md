@@ -1,3 +1,7 @@
+#### 20221027 意大利威尼斯的叹息桥 (© Doug Pearson/Alamy)
+
+![](images/2022-10/20221027_BridgeofSighs_1920x1080.jpg)
+
 #### 20221026 Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)
 
 ![](images/2022-10/20221026_BrockenSpecter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221018 Guggenheim Museum Bilbao, Spain (© Jeremy Horner/Getty Images)
 
 ![](images/2022-10/20221018_GB_1920x1080.jpg)
-
-#### 20221018 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
-
-![](images/2022-10/20221018_BridalVeilFalls_1920x1080.jpg)
 
 
 

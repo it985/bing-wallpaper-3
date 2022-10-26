@@ -1,3 +1,7 @@
+#### 20221027 意大利威尼斯的叹息桥 (© Doug Pearson/Alamy)
+
+![](20221027_BridgeofSighs_1920x1080.jpg)
+
 #### 20221026 Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)
 
 ![](20221026_BrockenSpecter_1920x1080.jpg)
