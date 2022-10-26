@@ -1,4 +1,4 @@
-#### 20221026 巴尔干中央国家公园的布罗肯现象，保加利亚 (© Maya Karkalicheva/Getty Images)
+#### 20221026 Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)
 
 ![](images/2022-10/20221026_BrockenSpecter_1920x1080.jpg)
 
