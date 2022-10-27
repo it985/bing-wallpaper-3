@@ -1,4 +1,4 @@
-#### 20221027 意大利威尼斯的叹息桥 (© Doug Pearson/Alamy)
+#### 20221027 Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)
 
 ![](images/2022-10/20221027_BridgeofSighs_1920x1080.jpg)
 
