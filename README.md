@@ -1,3 +1,7 @@
+#### 20221028 洛桑日内瓦湖上空的暴风雨，瑞典 (© Suradech Singhanat/Shutterstock)
+
+![](images/2022-10/20221028_FrankensteinFriday_1920x1080.jpg)
+
 #### 20221027 Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)
 
 ![](images/2022-10/20221027_BridgeofSighs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221019 Blue tiger butterflies, Bangalore, India (© Amith Nag Photography/Getty Images)
 
 ![](images/2022-10/20221019_BlueTigerButterflies_1920x1080.jpg)
-
-#### 20221018 Guggenheim Museum Bilbao, Spain (© Jeremy Horner/Getty Images)
-
-![](images/2022-10/20221018_GB_1920x1080.jpg)
 
 
 

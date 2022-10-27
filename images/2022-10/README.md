@@ -1,3 +1,7 @@
+#### 20221028 洛桑日内瓦湖上空的暴风雨，瑞典 (© Suradech Singhanat/Shutterstock)
+
+![](20221028_FrankensteinFriday_1920x1080.jpg)
+
 #### 20221027 Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)
 
 ![](20221027_BridgeofSighs_1920x1080.jpg)
