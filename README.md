@@ -2,6 +2,10 @@
 
 ![](images/2022-10/20221028_FrankensteinFriday_1920x1080.jpg)
 
+#### 20221028 Différents types de chocolats dans une vitrine (© Ivan/Getty Images)
+
+![](images/2022-10/20221028_ChocolateFair_1920x1080.jpg)
+
 #### 20221027 Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)
 
 ![](images/2022-10/20221027_BridgeofSighs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221019 Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)
 
 ![](images/2022-10/20221019_WartburgCastle_1920x1080.jpg)
-
-#### 20221019 Blue tiger butterflies, Bangalore, India (© Amith Nag Photography/Getty Images)
-
-![](images/2022-10/20221019_BlueTigerButterflies_1920x1080.jpg)
 
 
 
