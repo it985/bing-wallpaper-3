@@ -1,4 +1,4 @@
-#### 20221028 洛桑日内瓦湖上空的暴风雨，瑞典 (© Suradech Singhanat/Shutterstock)
+#### 20221028 Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)
 
 ![](20221028_FrankensteinFriday_1920x1080.jpg)
 
