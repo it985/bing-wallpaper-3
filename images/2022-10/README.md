@@ -1,3 +1,7 @@
+#### 20221029 海洋天使 (© Alexander Semenov Images/Shutterstock)
+
+![](20221029_SeaAngel_1920x1080.jpg)
+
 #### 20221028 Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)
 
 ![](20221028_FrankensteinFriday_1920x1080.jpg)

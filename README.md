@@ -1,3 +1,7 @@
+#### 20221029 海洋天使 (© Alexander Semenov Images/Shutterstock)
+
+![](images/2022-10/20221029_SeaAngel_1920x1080.jpg)
+
 #### 20221028 Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)
 
 ![](images/2022-10/20221028_FrankensteinFriday_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221020 Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
 
 ![](images/2022-10/20221020_SlothDay_1920x1080.jpg)
-
-#### 20221019 Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)
-
-![](images/2022-10/20221019_WartburgCastle_1920x1080.jpg)
 
 
 
