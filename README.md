@@ -1,3 +1,7 @@
+#### 20221030 哈德逊湾边缘的北极熊，加拿大 (© Sean Crane/Minden Pictures)
+
+![](images/2022-10/20221030_SealRiver_1920x1080.jpg)
+
 #### 20221029 Fall foliage in Mont-Tremblant National Park, Quebec (© Mircea Costina/Alamy Stock Photo)
 
 ![](images/2022-10/20221029_TremblantFoliage_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221021 Le lac à l’Anglais et les fausses ruines d’une chapelle à Chamonix (© Aishe/Shutterstock)
 
 ![](images/2022-10/20221021_LacSinclair_1920x1080.jpg)
-
-#### 20221021 Cypress trees in autumn, Georgia (© Chris Moore/Tandem Stills + Motion)
-
-![](images/2022-10/20221021_GeorgiaCypress_1920x1080.jpg)
 
 
 
