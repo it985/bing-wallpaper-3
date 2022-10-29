@@ -1,3 +1,7 @@
+#### 20221029 Fall foliage in Mont-Tremblant National Park, Quebec (© Mircea Costina/Alamy Stock Photo)
+
+![](images/2022-10/20221029_TremblantFoliage_1920x1080.jpg)
+
 #### 20221029 海洋天使 (© Alexander Semenov Images/Shutterstock)
 
 ![](images/2022-10/20221029_SeaAngel_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221021 Cypress trees in autumn, Georgia (© Chris Moore/Tandem Stills + Motion)
 
 ![](images/2022-10/20221021_GeorgiaCypress_1920x1080.jpg)
-
-#### 20221020 Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
-
-![](images/2022-10/20221020_SlothDay_1920x1080.jpg)
 
 
 
