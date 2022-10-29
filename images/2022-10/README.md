@@ -2,7 +2,7 @@
 
 ![](20221029_TremblantFoliage_1920x1080.jpg)
 
-#### 20221029 海洋天使 (© Alexander Semenov Images/Shutterstock)
+#### 20221029 Sea angel (© Alexander Semenov Images/Shutterstock)
 
 ![](20221029_SeaAngel_1920x1080.jpg)
 
