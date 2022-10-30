@@ -1,4 +1,4 @@
-#### 20221030 哈德逊湾边缘的北极熊，加拿大 (© Sean Crane/Minden Pictures)
+#### 20221030 Polar bear at the edge of Hudson Bay, Manitoba, Canada (© Sean Crane/Minden Pictures)
 
 ![](20221030_SealRiver_1920x1080.jpg)
 
