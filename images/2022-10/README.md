@@ -1,3 +1,11 @@
+#### 20221031 牛津郡韦奇伍德森林的树，英国 (© Frederick Ardley/Getty Images)
+
+![](20221031_WychwoodForest_1920x1080.jpg)
+
+#### 20221031 笑う 2 つのカボチャ (© sandsun/Getty Images)
+
+![](20221031_SmilingPunpkins_1920x1080.jpg)
+
 #### 20221030 Polar bear at the edge of Hudson Bay, Manitoba, Canada (© Sean Crane/Minden Pictures)
 
 ![](20221030_SealRiver_1920x1080.jpg)
