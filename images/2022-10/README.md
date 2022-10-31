@@ -1,4 +1,4 @@
-#### 20221031 牛津郡韦奇伍德森林的树，英国 (© Frederick Ardley/Getty Images)
+#### 20221031 Trees in Wychwood Forest near Chipping Norton, Oxfordshire, England (© Frederick Ardley/Getty Images)
 
 ![](20221031_WychwoodForest_1920x1080.jpg)
 
