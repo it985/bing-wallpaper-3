@@ -2,6 +2,10 @@
 
 ![](images/2022-11/20221101_HohenzollernHechingen_1920x1080.jpg)
 
+#### 20221101 ケープバッファロー, ケニア (© RealityImages/Shutterstock)
+
+![](images/2022-11/20221101_AmboseliBioshere_1920x1080.jpg)
+
 #### 20221031 Trees in Wychwood Forest near Chipping Norton, Oxfordshire, England (© Frederick Ardley/Getty Images)
 
 ![](images/2022-10/20221031_WychwoodForest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221024 Oil lamps arranged on a rangoli to celebrate Diwali in Guwahati, India (© Biju Boro/Getty Images)
 
 ![](images/2022-10/20221024_GuwahatiDiwali_1920x1080.jpg)
-
-#### 20221023 平安神宮の灯篭, 京都 (© Peter Elvin/Alamy Stock Photo)
-
-![](images/2022-10/20221023_Soko_1920x1080.jpg)
 
 
 
