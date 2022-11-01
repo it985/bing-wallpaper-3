@@ -1,3 +1,7 @@
+#### 20221102 慕纳尔的茶园，印度喀拉拉邦 (© Mazur Travel/Shutterstock)
+
+![](images/2022-11/20221102_TeaPlantationsMunnar_1920x1080.jpg)
+
 #### 20221102 Fort National, Saint-Malo, Brittany, France (© stevanzz/Adobe Photostock)
 
 ![](images/2022-11/20221102_Malo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221025 Orcus sculpture in the Gardens of Bomarzo in Bomarzo, Italy (© Scott Wilson/Alamy)
 
 ![](images/2022-10/20221025_OrcusMouth_1920x1080.jpg)
-
-#### 20221024 Alte Bibliothek der Abtei Ottobeuren, Bayern (© H & D ZIELSKE/Gallery Stock)
-
-![](images/2022-10/20221024_OttobeurenBibliothek_1920x1080.jpg)
 
 
 

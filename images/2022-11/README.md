@@ -1,3 +1,7 @@
+#### 20221102 慕纳尔的茶园，印度喀拉拉邦 (© Mazur Travel/Shutterstock)
+
+![](20221102_TeaPlantationsMunnar_1920x1080.jpg)
+
 #### 20221102 Fort National, Saint-Malo, Brittany, France (© stevanzz/Adobe Photostock)
 
 ![](20221102_Malo_1920x1080.jpg)
