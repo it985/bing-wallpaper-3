@@ -1,8 +1,12 @@
+#### 20221102 Fort National, Saint-Malo, Brittany, France (© stevanzz/Adobe Photostock)
+
+![](images/2022-11/20221102_Malo_1920x1080.jpg)
+
 #### 20221101 Hohenzollern Castle, Swabian Alps, Baden-Württemberg, Germany (© Cornelia Dorr/eStock Photo)
 
 ![](images/2022-11/20221101_HohenzollernHechingen_1920x1080.jpg)
 
-#### 20221101 Pappmaché-Skelette (Calacas) am Tag der Toten (Día de los Muertos) in Mexiko (© Amelia Fuentes Marin/Getty Images)
+#### 20221101 Skeleton figures (calacas) dressed up for Día de los Muertos celebrations in Mexico (© Amelia Fuentes Marin/Getty Images)
 
 ![](images/2022-11/20221101_Calacas_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20221024 Alte Bibliothek der Abtei Ottobeuren, Bayern (© H & D ZIELSKE/Gallery Stock)
 
 ![](images/2022-10/20221024_OttobeurenBibliothek_1920x1080.jpg)
-
-#### 20221024 玛利恩堡，德国莱茵兰-普法尔茨州采尔县附近 (© Eiben, Hans Georg/Alamy)
-
-![](images/2022-10/20221024_MarienburgZell_1920x1080.jpg)
 
 
 
