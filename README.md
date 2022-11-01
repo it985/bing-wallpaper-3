@@ -2,6 +2,10 @@
 
 ![](images/2022-11/20221101_HohenzollernHechingen_1920x1080.jpg)
 
+#### 20221101 Pappmaché-Skelette (Calacas) am Tag der Toten (Día de los Muertos) in Mexiko (© Amelia Fuentes Marin/Getty Images)
+
+![](images/2022-11/20221101_Calacas_1920x1080.jpg)
+
 #### 20221101 ケープバッファロー, ケニア (© RealityImages/Shutterstock)
 
 ![](images/2022-11/20221101_AmboseliBioshere_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221024 玛利恩堡，德国莱茵兰-普法尔茨州采尔县附近 (© Eiben, Hans Georg/Alamy)
 
 ![](images/2022-10/20221024_MarienburgZell_1920x1080.jpg)
-
-#### 20221024 Oil lamps arranged on a rangoli to celebrate Diwali in Guwahati, India (© Biju Boro/Getty Images)
-
-![](images/2022-10/20221024_GuwahatiDiwali_1920x1080.jpg)
 
 
 
