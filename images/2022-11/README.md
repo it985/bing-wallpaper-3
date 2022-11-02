@@ -2,6 +2,10 @@
 
 ![](20221102_TeaPlantationsMunnar_1920x1080.jpg)
 
+#### 20221102 The Hughes H-4 Hercules, aka the Spruce Goose, November 1947, Long Beach Harbor, California (© J R Eyerman/Shutterstock)
+
+![](20221102_SpruceGoose_1920x1080.jpg)
+
 #### 20221102 Fort National, Saint-Malo, Brittany, France (© stevanzz/Adobe Photostock)
 
 ![](20221102_Malo_1920x1080.jpg)

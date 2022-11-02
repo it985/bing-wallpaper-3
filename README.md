@@ -2,6 +2,10 @@
 
 ![](images/2022-11/20221102_TeaPlantationsMunnar_1920x1080.jpg)
 
+#### 20221102 The Hughes H-4 Hercules, aka the Spruce Goose, November 1947, Long Beach Harbor, California (© J R Eyerman/Shutterstock)
+
+![](images/2022-11/20221102_SpruceGoose_1920x1080.jpg)
+
 #### 20221102 Fort National, Saint-Malo, Brittany, France (© stevanzz/Adobe Photostock)
 
 ![](images/2022-11/20221102_Malo_1920x1080.jpg)
@@ -42,6 +46,10 @@
 
 ![](images/2022-10/20221029_SeaAngel_1920x1080.jpg)
 
+#### 20221029 羽繕いをする白鳥, オランダ (© David Pattyn/Minden Pictures)
+
+![](images/2022-10/20221029_Knobbelzwaan_1920x1080.jpg)
+
 #### 20221028 Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)
 
 ![](images/2022-10/20221028_FrankensteinFriday_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221028 Différents types de chocolats dans une vitrine (© Ivan/Getty Images)
 
 ![](images/2022-10/20221028_ChocolateFair_1920x1080.jpg)
-
-#### 20221027 Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)
-
-![](images/2022-10/20221027_BridgeofSighs_1920x1080.jpg)
-
-#### 20221026 Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)
-
-![](images/2022-10/20221026_BrockenSpecter_1920x1080.jpg)
 
 
 

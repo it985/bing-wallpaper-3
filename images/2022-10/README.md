@@ -18,6 +18,10 @@
 
 ![](20221029_SeaAngel_1920x1080.jpg)
 
+#### 20221029 羽繕いをする白鳥, オランダ (© David Pattyn/Minden Pictures)
+
+![](20221029_Knobbelzwaan_1920x1080.jpg)
+
 #### 20221028 Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)
 
 ![](20221028_FrankensteinFriday_1920x1080.jpg)
