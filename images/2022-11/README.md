@@ -1,3 +1,7 @@
+#### 20221103 矢を放つ流鏑馬の射手, 東京 (© CHARLY TRIBALLEAU/Getty images)
+
+![](20221103_CultureDay_1920x1080.jpg)
+
 #### 20221102 慕纳尔的茶园，印度喀拉拉邦 (© Mazur Travel/Shutterstock)
 
 ![](20221102_TeaPlantationsMunnar_1920x1080.jpg)

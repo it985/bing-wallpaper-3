@@ -1,3 +1,7 @@
+#### 20221103 矢を放つ流鏑馬の射手, 東京 (© CHARLY TRIBALLEAU/Getty images)
+
+![](images/2022-11/20221103_CultureDay_1920x1080.jpg)
+
 #### 20221102 慕纳尔的茶园，印度喀拉拉邦 (© Mazur Travel/Shutterstock)
 
 ![](images/2022-11/20221102_TeaPlantationsMunnar_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221028 Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)
 
 ![](images/2022-10/20221028_FrankensteinFriday_1920x1080.jpg)
-
-#### 20221028 Différents types de chocolats dans une vitrine (© Ivan/Getty Images)
-
-![](images/2022-10/20221028_ChocolateFair_1920x1080.jpg)
 
 
 
