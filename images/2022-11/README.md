@@ -6,6 +6,10 @@
 
 ![](20221102_Malo_1920x1080.jpg)
 
+#### 20221102 Autumn colours in Kluane National Park and Reserve, Yukon (© David Noton Photography/Alamy Stock Photo)
+
+![](20221102_KluaneAutumn_1920x1080.jpg)
+
 #### 20221101 Hohenzollern Castle, Swabian Alps, Baden-Württemberg, Germany (© Cornelia Dorr/eStock Photo)
 
 ![](20221101_HohenzollernHechingen_1920x1080.jpg)

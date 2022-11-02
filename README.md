@@ -6,6 +6,10 @@
 
 ![](images/2022-11/20221102_Malo_1920x1080.jpg)
 
+#### 20221102 Autumn colours in Kluane National Park and Reserve, Yukon (© David Noton Photography/Alamy Stock Photo)
+
+![](images/2022-11/20221102_KluaneAutumn_1920x1080.jpg)
+
 #### 20221101 Hohenzollern Castle, Swabian Alps, Baden-Württemberg, Germany (© Cornelia Dorr/eStock Photo)
 
 ![](images/2022-11/20221101_HohenzollernHechingen_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221026 Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)
 
 ![](images/2022-10/20221026_BrockenSpecter_1920x1080.jpg)
-
-#### 20221025 Orcus sculpture in the Gardens of Bomarzo in Bomarzo, Italy (© Scott Wilson/Alamy)
-
-![](images/2022-10/20221025_OrcusMouth_1920x1080.jpg)
 
 
 
