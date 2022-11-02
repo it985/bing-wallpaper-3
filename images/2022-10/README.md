@@ -30,6 +30,10 @@
 
 ![](20221028_ChocolateFair_1920x1080.jpg)
 
+#### 20221027 Marienburg in der Nähe von Zell an der Mosel, Rheinland-Pfalz (© Hans Georg Eiben/Alamy)
+
+![](20221027_MarienburgZell_1920x1080.jpg)
+
 #### 20221027 Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)
 
 ![](20221027_BridgeofSighs_1920x1080.jpg)
