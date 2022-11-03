@@ -26,7 +26,7 @@
 
 ![](images/2022-11/20221101_Calacas_1920x1080.jpg)
 
-#### 20221101 ケープバッファロー, ケニア (© RealityImages/Shutterstock)
+#### 20221101 Mount Kilimanjaro with Cape buffaloes in foreground, Amboseli Biosphere Reserve, Kenya (© RealityImages/Shutterstock)
 
 ![](images/2022-11/20221101_AmboseliBioshere_1920x1080.jpg)
 
