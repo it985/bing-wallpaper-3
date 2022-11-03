@@ -1,3 +1,11 @@
+#### 20221104 班夫国家公园的沛托湖，加拿大艾伯塔省 (© Ben Girardi/Cavan Images)
+
+![](20221104_PeytoIce_1920x1080.jpg)
+
+#### 20221104 ツタンカーメン王の墓, エジプト (© Stefan Lippmann/Universal Images Group via Getty Images)
+
+![](20221104_Deities_1920x1080.jpg)
+
 #### 20221103 矢を放つ流鏑馬の射手, 東京 (© CHARLY TRIBALLEAU/Getty images)
 
 ![](20221103_CultureDay_1920x1080.jpg)
