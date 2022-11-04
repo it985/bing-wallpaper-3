@@ -2,7 +2,7 @@
 
 ![](images/2022-11/20221104_PeytoIce_1920x1080.jpg)
 
-#### 20221104 ツタンカーメン王の墓, エジプト (© Stefan Lippmann/Universal Images Group via Getty Images)
+#### 20221104 Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)
 
 ![](images/2022-11/20221104_Deities_1920x1080.jpg)
 
