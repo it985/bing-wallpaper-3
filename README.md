@@ -30,6 +30,10 @@
 
 ![](images/2022-11/20221102_KluaneAutumn_1920x1080.jpg)
 
+#### 20221102 Seufzerbrücke, Venedig, Italien (© Doug Pearson/Alamy)
+
+![](images/2022-11/20221102_BridgeofSighs_1920x1080.jpg)
+
 #### 20221101 Hohenzollern Castle, Swabian Alps, Baden-Württemberg, Germany (© Cornelia Dorr/eStock Photo)
 
 ![](images/2022-11/20221101_HohenzollernHechingen_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221030 Polar bear at the edge of Hudson Bay, Manitoba, Canada (© Sean Crane/Minden Pictures)
 
 ![](images/2022-10/20221030_SealRiver_1920x1080.jpg)
-
-#### 20221029 Fall foliage in Mont-Tremblant National Park, Quebec (© Mircea Costina/Alamy Stock Photo)
-
-![](images/2022-10/20221029_TremblantFoliage_1920x1080.jpg)
 
 
 

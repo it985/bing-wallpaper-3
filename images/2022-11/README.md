@@ -30,6 +30,10 @@
 
 ![](20221102_KluaneAutumn_1920x1080.jpg)
 
+#### 20221102 Seufzerbrücke, Venedig, Italien (© Doug Pearson/Alamy)
+
+![](20221102_BridgeofSighs_1920x1080.jpg)
+
 #### 20221101 Hohenzollern Castle, Swabian Alps, Baden-Württemberg, Germany (© Cornelia Dorr/eStock Photo)
 
 ![](20221101_HohenzollernHechingen_1920x1080.jpg)
