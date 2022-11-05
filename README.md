@@ -1,4 +1,4 @@
-#### 20221105 阿赫雷湖畔的泰莫特罗萨克斯城堡酒店，苏格兰 (© Fortunato Gatto/eStock Photo)
+#### 20221105 Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)
 
 ![](images/2022-11/20221105_Trossachs_1920x1080.jpg)
 
