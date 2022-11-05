@@ -1,3 +1,7 @@
+#### 20221106 1990年纽约市马拉松比赛，参赛者穿过韦拉扎诺海峡大桥 (© David Madison/Getty Images)
+
+![](20221106_MarathonSunday_1920x1080.jpg)
+
 #### 20221105 Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)
 
 ![](20221105_Trossachs_1920x1080.jpg)

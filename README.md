@@ -1,3 +1,7 @@
+#### 20221106 1990年纽约市马拉松比赛，参赛者穿过韦拉扎诺海峡大桥 (© David Madison/Getty Images)
+
+![](images/2022-11/20221106_MarathonSunday_1920x1080.jpg)
+
 #### 20221105 Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)
 
 ![](images/2022-11/20221105_Trossachs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221031 笑う 2 つのカボチャ (© sandsun/Getty Images)
 
 ![](images/2022-10/20221031_SmilingPunpkins_1920x1080.jpg)
-
-#### 20221030 Polar bear at the edge of Hudson Bay, Manitoba, Canada (© Sean Crane/Minden Pictures)
-
-![](images/2022-10/20221030_SealRiver_1920x1080.jpg)
 
 
 
