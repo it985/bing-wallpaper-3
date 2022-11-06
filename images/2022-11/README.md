@@ -1,4 +1,4 @@
-#### 20221106 1990年纽约市马拉松比赛，参赛者穿过韦拉扎诺海峡大桥 (© David Madison/Getty Images)
+#### 20221106 Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)
 
 ![](20221106_MarathonSunday_1920x1080.jpg)
 
