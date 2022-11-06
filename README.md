@@ -1,3 +1,11 @@
+#### 20221107 赤い実をついばむシジュウカラ (© Aflo Co., Ltd./Alamy Stock Photo)
+
+![](images/2022-11/20221107_Ritto_1920x1080.jpg)
+
+#### 20221107 庐山冬季美景，中国江西省 (© silkwayrain/Getty Images)
+
+![](images/2022-11/20221107_LiDong_1920x1080.jpg)
+
 #### 20221106 Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)
 
 ![](images/2022-11/20221106_MarathonSunday_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221101 Mount Kilimanjaro with Cape buffaloes in foreground, Amboseli Biosphere Reserve, Kenya (© RealityImages/Shutterstock)
 
 ![](images/2022-11/20221101_AmboseliBioshere_1920x1080.jpg)
-
-#### 20221031 Trees in Wychwood Forest near Chipping Norton, Oxfordshire, England (© Frederick Ardley/Getty Images)
-
-![](images/2022-10/20221031_WychwoodForest_1920x1080.jpg)
-
-#### 20221031 笑う 2 つのカボチャ (© sandsun/Getty Images)
-
-![](images/2022-10/20221031_SmilingPunpkins_1920x1080.jpg)
 
 
 

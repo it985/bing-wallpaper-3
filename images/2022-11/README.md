@@ -1,3 +1,11 @@
+#### 20221107 赤い実をついばむシジュウカラ (© Aflo Co., Ltd./Alamy Stock Photo)
+
+![](20221107_Ritto_1920x1080.jpg)
+
+#### 20221107 庐山冬季美景，中国江西省 (© silkwayrain/Getty Images)
+
+![](20221107_LiDong_1920x1080.jpg)
+
 #### 20221106 Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)
 
 ![](20221106_MarathonSunday_1920x1080.jpg)
