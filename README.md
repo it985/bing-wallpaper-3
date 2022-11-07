@@ -1,3 +1,7 @@
+#### 20221108 清迈易鹏节升起的天灯，泰国 (© Suttipong Sutiratanachai/Getty Images)
+
+![](images/2022-11/20221108_YiPeng_1920x1080.jpg)
+
 #### 20221107 赤い実をついばむシジュウカラ (© Aflo Co., Ltd./Alamy Stock Photo)
 
 ![](images/2022-11/20221107_Ritto_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221101 Hohenzollern Castle, Swabian Alps, Baden-Württemberg, Germany (© Cornelia Dorr/eStock Photo)
 
 ![](images/2022-11/20221101_HohenzollernHechingen_1920x1080.jpg)
-
-#### 20221101 Skeleton figures (calacas) dressed up for Día de los Muertos celebrations in Mexico (© Amelia Fuentes Marin/Getty Images)
-
-![](images/2022-11/20221101_Calacas_1920x1080.jpg)
 
 
 

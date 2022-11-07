@@ -1,3 +1,7 @@
+#### 20221108 清迈易鹏节升起的天灯，泰国 (© Suttipong Sutiratanachai/Getty Images)
+
+![](20221108_YiPeng_1920x1080.jpg)
+
 #### 20221107 赤い実をついばむシジュウカラ (© Aflo Co., Ltd./Alamy Stock Photo)
 
 ![](20221107_Ritto_1920x1080.jpg)
