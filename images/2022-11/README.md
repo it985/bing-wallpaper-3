@@ -6,6 +6,10 @@
 
 ![](20221107_LiDong_1920x1080.jpg)
 
+#### 20221107 Mondfinsternis über dem Crested Butte, Colorado, USA (© Mengzhonghua Photography/Getty Images)
+
+![](20221107_CrestedButteEclispe_1920x1080.jpg)
+
 #### 20221106 Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)
 
 ![](20221106_MarathonSunday_1920x1080.jpg)

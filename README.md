@@ -6,6 +6,10 @@
 
 ![](images/2022-11/20221107_LiDong_1920x1080.jpg)
 
+#### 20221107 Mondfinsternis über dem Crested Butte, Colorado, USA (© Mengzhonghua Photography/Getty Images)
+
+![](images/2022-11/20221107_CrestedButteEclispe_1920x1080.jpg)
+
 #### 20221106 Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)
 
 ![](images/2022-11/20221106_MarathonSunday_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221101 Skeleton figures (calacas) dressed up for Día de los Muertos celebrations in Mexico (© Amelia Fuentes Marin/Getty Images)
 
 ![](images/2022-11/20221101_Calacas_1920x1080.jpg)
-
-#### 20221101 Mount Kilimanjaro with Cape buffaloes in foreground, Amboseli Biosphere Reserve, Kenya (© RealityImages/Shutterstock)
-
-![](images/2022-11/20221101_AmboseliBioshere_1920x1080.jpg)
 
 
 
