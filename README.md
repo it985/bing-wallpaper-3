@@ -6,7 +6,7 @@
 
 ![](images/2022-11/20221107_LiDong_1920x1080.jpg)
 
-#### 20221107 Mondfinsternis über dem Crested Butte, Colorado, USA (© Mengzhonghua Photography/Getty Images)
+#### 20221107 Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)
 
 ![](images/2022-11/20221107_CrestedButteEclispe_1920x1080.jpg)
 
