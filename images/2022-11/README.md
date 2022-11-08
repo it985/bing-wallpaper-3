@@ -1,4 +1,4 @@
-#### 20221108 清迈易鹏节升起的天灯，泰国 (© Suttipong Sutiratanachai/Getty Images)
+#### 20221108 Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)
 
 ![](20221108_YiPeng_1920x1080.jpg)
 
