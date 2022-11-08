@@ -1,3 +1,7 @@
+#### 20221109 萨塞克斯郡的西欧刺猬，英国 (© Jules Cox/Minden Pictures)
+
+![](20221109_HedgehogNest_1920x1080.jpg)
+
 #### 20221108 Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)
 
 ![](20221108_YiPeng_1920x1080.jpg)

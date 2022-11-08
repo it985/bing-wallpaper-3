@@ -1,3 +1,7 @@
+#### 20221109 萨塞克斯郡的西欧刺猬，英国 (© Jules Cox/Minden Pictures)
+
+![](images/2022-11/20221109_HedgehogNest_1920x1080.jpg)
+
 #### 20221108 Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)
 
 ![](images/2022-11/20221108_YiPeng_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221102 Seufzerbrücke, Venedig, Italien (© Doug Pearson/Alamy)
 
 ![](images/2022-11/20221102_BridgeofSighs_1920x1080.jpg)
-
-#### 20221101 Hohenzollern Castle, Swabian Alps, Baden-Württemberg, Germany (© Cornelia Dorr/eStock Photo)
-
-![](images/2022-11/20221101_HohenzollernHechingen_1920x1080.jpg)
 
 
 
