@@ -1,3 +1,7 @@
+#### 20221110 雷暴中恶地国家公园的岩层，美国南达科他州 (© DEEPOL by plainpicture)
+
+![](20221110_BadLightning_1920x1080.jpg)
+
 #### 20221109 Rosen in einem Mauerspalt zum Gedenken an den Jahrestag des Falls der Berliner Mauer, Berlin (© Artur Widak/Shutterstock)
 
 ![](20221109_RosenMauer_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20221110 雷暴中恶地国家公园的岩层，美国南达科他州 (© DEEPOL by plainpicture)
+
+![](images/2022-11/20221110_BadLightning_1920x1080.jpg)
+
 #### 20221109 Rosen in einem Mauerspalt zum Gedenken an den Jahrestag des Falls der Berliner Mauer, Berlin (© Artur Widak/Shutterstock)
 
 ![](images/2022-11/20221109_RosenMauer_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221102 Fort National, Saint-Malo, Brittany, France (© stevanzz/Adobe Photostock)
 
 ![](images/2022-11/20221102_Malo_1920x1080.jpg)
-
-#### 20221102 Autumn colours in Kluane National Park and Reserve, Yukon (© David Noton Photography/Alamy Stock Photo)
-
-![](images/2022-11/20221102_KluaneAutumn_1920x1080.jpg)
 
 
 
