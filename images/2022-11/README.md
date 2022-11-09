@@ -1,3 +1,7 @@
+#### 20221109 Rosen in einem Mauerspalt zum Gedenken an den Jahrestag des Falls der Berliner Mauer, Berlin (© Artur Widak/Shutterstock)
+
+![](20221109_RosenMauer_1920x1080.jpg)
+
 #### 20221109 萨塞克斯郡的西欧刺猬，英国 (© Jules Cox/Minden Pictures)
 
 ![](20221109_HedgehogNest_1920x1080.jpg)

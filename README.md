@@ -1,3 +1,7 @@
+#### 20221109 Rosen in einem Mauerspalt zum Gedenken an den Jahrestag des Falls der Berliner Mauer, Berlin (© Artur Widak/Shutterstock)
+
+![](images/2022-11/20221109_RosenMauer_1920x1080.jpg)
+
 #### 20221109 萨塞克斯郡的西欧刺猬，英国 (© Jules Cox/Minden Pictures)
 
 ![](images/2022-11/20221109_HedgehogNest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221102 Autumn colours in Kluane National Park and Reserve, Yukon (© David Noton Photography/Alamy Stock Photo)
 
 ![](images/2022-11/20221102_KluaneAutumn_1920x1080.jpg)
-
-#### 20221102 Seufzerbrücke, Venedig, Italien (© Doug Pearson/Alamy)
-
-![](images/2022-11/20221102_BridgeofSighs_1920x1080.jpg)
 
 
 
