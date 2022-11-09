@@ -2,7 +2,7 @@
 
 ![](images/2022-11/20221109_RosenMauer_1920x1080.jpg)
 
-#### 20221109 萨塞克斯郡的西欧刺猬，英国 (© Jules Cox/Minden Pictures)
+#### 20221109 European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)
 
 ![](images/2022-11/20221109_HedgehogNest_1920x1080.jpg)
 
