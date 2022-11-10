@@ -1,4 +1,4 @@
-#### 20221110 雷暴中恶地国家公园的岩层，美国南达科他州 (© DEEPOL by plainpicture)
+#### 20221110 Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)
 
 ![](20221110_BadLightning_1920x1080.jpg)
 
