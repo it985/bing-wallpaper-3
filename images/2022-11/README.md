@@ -1,3 +1,7 @@
+#### 20221111 Wagon dans lequel fut signé l’armistice de 1918, exposé à l’hôtel des Invalides à Paris, de 1921 à 1927 (© Hulton-Deutsch Collection/CORBIS/Corbis via Getty Images)
+
+![](20221111_PeaceTreaty_1920x1080.jpg)
+
 #### 20221111 阿拉瓦利山脉的阿布山，印度拉贾斯坦邦 (© saiko3p/Shutterstock)
 
 ![](20221111_MountAbu_1920x1080.jpg)

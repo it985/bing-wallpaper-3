@@ -1,3 +1,7 @@
+#### 20221111 Wagon dans lequel fut signé l’armistice de 1918, exposé à l’hôtel des Invalides à Paris, de 1921 à 1927 (© Hulton-Deutsch Collection/CORBIS/Corbis via Getty Images)
+
+![](images/2022-11/20221111_PeaceTreaty_1920x1080.jpg)
+
 #### 20221111 阿拉瓦利山脉的阿布山，印度拉贾斯坦邦 (© saiko3p/Shutterstock)
 
 ![](images/2022-11/20221111_MountAbu_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221102 慕纳尔的茶园，印度喀拉拉邦 (© Mazur Travel/Shutterstock)
 
 ![](images/2022-11/20221102_TeaPlantationsMunnar_1920x1080.jpg)
-
-#### 20221102 The Hughes H-4 Hercules, aka the Spruce Goose, November 1947, Long Beach Harbor, California (© J R Eyerman/Shutterstock)
-
-![](images/2022-11/20221102_SpruceGoose_1920x1080.jpg)
 
 
 
