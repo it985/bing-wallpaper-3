@@ -1,3 +1,7 @@
+#### 20221112 阿拉斯加州海恩斯附近的秃鹰群，美国 (© Marion Vollborn/Minden Pictures)
+
+![](20221112_HainesEagle_1920x1080.jpg)
+
 #### 20221111 The Vietnam Women's Memorial in Washington, DC (© Cvandyke/Shutterstock)
 
 ![](20221111_WomensMemorialMall_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20221112 阿拉斯加州海恩斯附近的秃鹰群，美国 (© Marion Vollborn/Minden Pictures)
+
+![](images/2022-11/20221112_HainesEagle_1920x1080.jpg)
+
 #### 20221111 The Vietnam Women's Memorial in Washington, DC (© Cvandyke/Shutterstock)
 
 ![](images/2022-11/20221111_WomensMemorialMall_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221104 班夫国家公园的沛托湖，加拿大艾伯塔省 (© Ben Girardi/Cavan Images)
 
 ![](images/2022-11/20221104_PeytoIce_1920x1080.jpg)
-
-#### 20221104 Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)
-
-![](images/2022-11/20221104_Deities_1920x1080.jpg)
 
 
 
