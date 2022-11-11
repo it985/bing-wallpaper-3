@@ -1,3 +1,11 @@
+#### 20221111 The Vietnam Women's Memorial in Washington, DC (© Cvandyke/Shutterstock)
+
+![](20221111_WomensMemorialMall_1920x1080.jpg)
+
+#### 20221111 An aerial picture of the Canadian National Vimy Memorial in Vimy Ridge, France (© Denis Charlet/AFP via Getty Images)
+
+![](20221111_VimyRidge_1920x1080.jpg)
+
 #### 20221111 Wagon dans lequel fut signé l’armistice de 1918, exposé à l’hôtel des Invalides à Paris, de 1921 à 1927 (© Hulton-Deutsch Collection/CORBIS/Corbis via Getty Images)
 
 ![](20221111_PeaceTreaty_1920x1080.jpg)

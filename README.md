@@ -1,3 +1,11 @@
+#### 20221111 The Vietnam Women's Memorial in Washington, DC (© Cvandyke/Shutterstock)
+
+![](images/2022-11/20221111_WomensMemorialMall_1920x1080.jpg)
+
+#### 20221111 An aerial picture of the Canadian National Vimy Memorial in Vimy Ridge, France (© Denis Charlet/AFP via Getty Images)
+
+![](images/2022-11/20221111_VimyRidge_1920x1080.jpg)
+
 #### 20221111 Wagon dans lequel fut signé l’armistice de 1918, exposé à l’hôtel des Invalides à Paris, de 1921 à 1927 (© Hulton-Deutsch Collection/CORBIS/Corbis via Getty Images)
 
 ![](images/2022-11/20221111_PeaceTreaty_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221104 Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)
 
 ![](images/2022-11/20221104_Deities_1920x1080.jpg)
-
-#### 20221103 矢を放つ流鏑馬の射手, 東京 (© CHARLY TRIBALLEAU/Getty images)
-
-![](images/2022-11/20221103_CultureDay_1920x1080.jpg)
-
-#### 20221102 慕纳尔的茶园，印度喀拉拉邦 (© Mazur Travel/Shutterstock)
-
-![](images/2022-11/20221102_TeaPlantationsMunnar_1920x1080.jpg)
 
 
 
