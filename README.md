@@ -1,4 +1,4 @@
-#### 20221112 阿拉斯加州海恩斯附近的秃鹰群，美国 (© Marion Vollborn/Minden Pictures)
+#### 20221112 Bald eagles near Haines, Alaska (© Marion Vollborn/Minden Pictures)
 
 ![](images/2022-11/20221112_HainesEagle_1920x1080.jpg)
 
