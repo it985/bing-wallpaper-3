@@ -1,3 +1,7 @@
+#### 20221113 伊萨尔河鸟瞰图，德国伦格里斯 (© Martin Siepmann/Offset/Shutterstock)
+
+![](images/2022-11/20221113_IsarwinkelSylvenstein_1920x1080.jpg)
+
 #### 20221112 Bald eagles near Haines, Alaska (© Marion Vollborn/Minden Pictures)
 
 ![](images/2022-11/20221112_HainesEagle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221105 Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)
 
 ![](images/2022-11/20221105_Trossachs_1920x1080.jpg)
-
-#### 20221104 班夫国家公园的沛托湖，加拿大艾伯塔省 (© Ben Girardi/Cavan Images)
-
-![](images/2022-11/20221104_PeytoIce_1920x1080.jpg)
 
 
 
