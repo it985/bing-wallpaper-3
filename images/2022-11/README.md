@@ -1,3 +1,7 @@
+#### 20221113 Ruinen der mittelalterlichen Burg des Johanniterordens oberhalb des Dorfes Chorio, Insel Chalki, Griechenland (© Massimo Ripani/eStock Photo)
+
+![](20221113_SanGiovanni_1920x1080.jpg)
+
 #### 20221113 伊萨尔河鸟瞰图，德国伦格里斯 (© Martin Siepmann/Offset/Shutterstock)
 
 ![](20221113_IsarwinkelSylvenstein_1920x1080.jpg)

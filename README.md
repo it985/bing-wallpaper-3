@@ -1,3 +1,7 @@
+#### 20221113 Ruinen der mittelalterlichen Burg des Johanniterordens oberhalb des Dorfes Chorio, Insel Chalki, Griechenland (© Massimo Ripani/eStock Photo)
+
+![](images/2022-11/20221113_SanGiovanni_1920x1080.jpg)
+
 #### 20221113 伊萨尔河鸟瞰图，德国伦格里斯 (© Martin Siepmann/Offset/Shutterstock)
 
 ![](images/2022-11/20221113_IsarwinkelSylvenstein_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221106 Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)
 
 ![](images/2022-11/20221106_MarathonSunday_1920x1080.jpg)
-
-#### 20221105 Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)
-
-![](images/2022-11/20221105_Trossachs_1920x1080.jpg)
 
 
 
