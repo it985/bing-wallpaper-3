@@ -2,6 +2,10 @@
 
 ![](images/2022-11/20221113_SanGiovanni_1920x1080.jpg)
 
+#### 20221113 The Punch Bowl on the River Quoich in the Cairngorms, Aberdeenshire, Scotland (© AWL Images/Danita Delimont)
+
+![](images/2022-11/20221113_PunchBowl_1920x1080.jpg)
+
 #### 20221113 伊萨尔河鸟瞰图，德国伦格里斯 (© Martin Siepmann/Offset/Shutterstock)
 
 ![](images/2022-11/20221113_IsarwinkelSylvenstein_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221107 Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)
 
 ![](images/2022-11/20221107_CrestedButteEclispe_1920x1080.jpg)
-
-#### 20221106 Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)
-
-![](images/2022-11/20221106_MarathonSunday_1920x1080.jpg)
 
 
 

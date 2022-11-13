@@ -2,6 +2,10 @@
 
 ![](20221113_SanGiovanni_1920x1080.jpg)
 
+#### 20221113 The Punch Bowl on the River Quoich in the Cairngorms, Aberdeenshire, Scotland (© AWL Images/Danita Delimont)
+
+![](20221113_PunchBowl_1920x1080.jpg)
+
 #### 20221113 伊萨尔河鸟瞰图，德国伦格里斯 (© Martin Siepmann/Offset/Shutterstock)
 
 ![](20221113_IsarwinkelSylvenstein_1920x1080.jpg)
