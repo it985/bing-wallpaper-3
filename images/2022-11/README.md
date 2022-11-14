@@ -1,4 +1,4 @@
-#### 20221113 Ruinen der mittelalterlichen Burg des Johanniterordens oberhalb des Dorfes Chorio, Insel Chalki, Griechenland (© Massimo Ripani/eStock Photo)
+#### 20221113 Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)
 
 ![](20221113_SanGiovanni_1920x1080.jpg)
 
