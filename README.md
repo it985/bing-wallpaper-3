@@ -1,3 +1,7 @@
+#### 20221115 北美水獭在阿卡迪亚国家公园游泳，美国 (© George Sanker/Minden Pictures)
+
+![](images/2022-11/20221115_LontraCanadensis_1920x1080.jpg)
+
 #### 20221113 Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)
 
 ![](images/2022-11/20221113_SanGiovanni_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221107 庐山冬季美景，中国江西省 (© silkwayrain/Getty Images)
 
 ![](images/2022-11/20221107_LiDong_1920x1080.jpg)
-
-#### 20221107 Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)
-
-![](images/2022-11/20221107_CrestedButteEclispe_1920x1080.jpg)
 
 
 
