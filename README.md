@@ -1,4 +1,4 @@
-#### 20221115 北美水獭在阿卡迪亚国家公园游泳，美国 (© George Sanker/Minden Pictures)
+#### 20221115 North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)
 
 ![](images/2022-11/20221115_LontraCanadensis_1920x1080.jpg)
 
