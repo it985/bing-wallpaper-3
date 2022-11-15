@@ -1,3 +1,7 @@
+#### 20221116 梅萨维德国家公园的悬崖宫，美国 (© Brad McGinley Photography/Getty Images)
+
+![](20221116_Unesco_1920x1080.jpg)
+
 #### 20221115 North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)
 
 ![](20221115_LontraCanadensis_1920x1080.jpg)
