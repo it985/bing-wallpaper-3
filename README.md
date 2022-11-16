@@ -42,6 +42,10 @@
 
 ![](images/2022-11/20221111_MountAbu_1920x1080.jpg)
 
+#### 20221110 Peyto Lake, Banff National Park, Alberta, Canada (© Ben Girardi/Cavan Images)
+
+![](images/2022-11/20221110_PeytoIce_1920x1080.jpg)
+
 #### 20221110 Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)
 
 ![](images/2022-11/20221110_BadLightning_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221109 European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)
 
 ![](images/2022-11/20221109_HedgehogNest_1920x1080.jpg)
-
-#### 20221108 Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)
-
-![](images/2022-11/20221108_YiPeng_1920x1080.jpg)
 
 
 
