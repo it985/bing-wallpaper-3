@@ -1,4 +1,4 @@
-#### 20221116 梅萨维德国家公园的悬崖宫，美国 (© Brad McGinley Photography/Getty Images)
+#### 20221116 Cliff dwellings in Mesa Verde National Park, Colorado (© Brad McGinley Photography/Getty Images)
 
 ![](images/2022-11/20221116_Unesco_1920x1080.jpg)
 
