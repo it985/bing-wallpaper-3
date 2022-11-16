@@ -1,3 +1,7 @@
+#### 20221117 威拉米特国家森林麦肯齐河步道上的桥，美国 (© Don Paulson/Danita Delimont)
+
+![](images/2022-11/20221117_McKenzieRiverTrail_1920x1080.jpg)
+
 #### 20221116 Cliff dwellings in Mesa Verde National Park, Colorado (© Brad McGinley Photography/Getty Images)
 
 ![](images/2022-11/20221116_Unesco_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221108 Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)
 
 ![](images/2022-11/20221108_YiPeng_1920x1080.jpg)
-
-#### 20221107 赤い実をついばむシジュウカラ (© Aflo Co., Ltd./Alamy Stock Photo)
-
-![](images/2022-11/20221107_Ritto_1920x1080.jpg)
 
 
 
