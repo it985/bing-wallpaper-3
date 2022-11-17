@@ -1,4 +1,4 @@
-#### 20221117 威拉米特国家森林麦肯齐河步道上的桥，美国 (© Don Paulson/Danita Delimont)
+#### 20221117 Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)
 
 ![](images/2022-11/20221117_McKenzieRiverTrail_1920x1080.jpg)
 
