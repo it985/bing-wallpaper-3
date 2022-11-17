@@ -1,3 +1,7 @@
+#### 20221118 菲斯皇宫的大门，摩洛哥 (© Adam Smigielski/Getty Images)
+
+![](20221118_IslamicArt_1920x1080.jpg)
+
 #### 20221117 Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)
 
 ![](20221117_McKenzieRiverTrail_1920x1080.jpg)

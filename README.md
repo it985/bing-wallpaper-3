@@ -1,3 +1,7 @@
+#### 20221118 菲斯皇宫的大门，摩洛哥 (© Adam Smigielski/Getty Images)
+
+![](images/2022-11/20221118_IslamicArt_1920x1080.jpg)
+
 #### 20221117 Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)
 
 ![](images/2022-11/20221117_McKenzieRiverTrail_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221110 Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)
 
 ![](images/2022-11/20221110_BadLightning_1920x1080.jpg)
-
-#### 20221109 Rosen in einem Mauerspalt zum Gedenken an den Jahrestag des Falls der Berliner Mauer, Berlin (© Artur Widak/Shutterstock)
-
-![](images/2022-11/20221109_RosenMauer_1920x1080.jpg)
 
 
 
