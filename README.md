@@ -1,3 +1,7 @@
+#### 20221119 犹他州锡安国家公园的维尔京河，美国 (© Jonathan Ross/Getty)
+
+![](images/2022-11/20221119_ZNPVR_1920x1080.jpg)
+
 #### 20221118 The gates of the Royal Palace (Dar al-Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)
 
 ![](images/2022-11/20221118_IslamicArt_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221110 Peyto Lake, Banff National Park, Alberta, Canada (© Ben Girardi/Cavan Images)
 
 ![](images/2022-11/20221110_PeytoIce_1920x1080.jpg)
-
-#### 20221110 Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)
-
-![](images/2022-11/20221110_BadLightning_1920x1080.jpg)
 
 
 
