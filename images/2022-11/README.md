@@ -1,4 +1,4 @@
-#### 20221118 菲斯皇宫的大门，摩洛哥 (© Adam Smigielski/Getty Images)
+#### 20221118 The gates of the Royal Palace (Dar al-Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)
 
 ![](20221118_IslamicArt_1920x1080.jpg)
 
