@@ -1,3 +1,11 @@
+#### 20221120 "ワールド・イン・プログレス II" サイープ, 米国 ニューヨーク市 (© Valentin Flauraud/Shutterstock)
+
+![](images/2022-11/20221120_LandartPainting_1920x1080.jpg)
+
+#### 20221120 船底星云中的宇宙悬崖 (© NASA, ESA, CSA, and STScI)
+
+![](images/2022-11/20221120_CosmicCliffs_1920x1080.jpg)
+
 #### 20221119 Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)
 
 ![](images/2022-11/20221119_ZNPVR_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221111 Wagon dans lequel fut signé l’armistice de 1918, exposé à l’hôtel des Invalides à Paris, de 1921 à 1927 (© Hulton-Deutsch Collection/CORBIS/Corbis via Getty Images)
 
 ![](images/2022-11/20221111_PeaceTreaty_1920x1080.jpg)
-
-#### 20221111 阿拉瓦利山脉的阿布山，印度拉贾斯坦邦 (© saiko3p/Shutterstock)
-
-![](images/2022-11/20221111_MountAbu_1920x1080.jpg)
-
-#### 20221110 Peyto Lake, Banff National Park, Alberta, Canada (© Ben Girardi/Cavan Images)
-
-![](images/2022-11/20221110_PeytoIce_1920x1080.jpg)
 
 
 

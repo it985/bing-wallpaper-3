@@ -1,3 +1,11 @@
+#### 20221120 "ワールド・イン・プログレス II" サイープ, 米国 ニューヨーク市 (© Valentin Flauraud/Shutterstock)
+
+![](20221120_LandartPainting_1920x1080.jpg)
+
+#### 20221120 船底星云中的宇宙悬崖 (© NASA, ESA, CSA, and STScI)
+
+![](20221120_CosmicCliffs_1920x1080.jpg)
+
 #### 20221119 Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)
 
 ![](20221119_ZNPVR_1920x1080.jpg)
