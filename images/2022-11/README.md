@@ -1,4 +1,4 @@
-#### 20221119 犹他州锡安国家公园的维尔京河，美国 (© Jonathan Ross/Getty)
+#### 20221119 Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)
 
 ![](20221119_ZNPVR_1920x1080.jpg)
 
