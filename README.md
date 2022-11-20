@@ -1,4 +1,8 @@
-#### 20221120 "ワールド・イン・プログレス II" サイープ, 米国 ニューヨーク市 (© Valentin Flauraud/Shutterstock)
+#### 20221121 The Storr, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
+
+![](images/2022-11/20221121_StorrRocks_1920x1080.jpg)
+
+#### 20221120 'World in Progress II,' a land art painting by Saype, United Nations Headquarters, New York City (© Valentin Flauraud/Shutterstock)
 
 ![](images/2022-11/20221120_LandartPainting_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20221111 An aerial picture of the Canadian National Vimy Memorial in Vimy Ridge, France (© Denis Charlet/AFP via Getty Images)
 
 ![](images/2022-11/20221111_VimyRidge_1920x1080.jpg)
-
-#### 20221111 Wagon dans lequel fut signé l’armistice de 1918, exposé à l’hôtel des Invalides à Paris, de 1921 à 1927 (© Hulton-Deutsch Collection/CORBIS/Corbis via Getty Images)
-
-![](images/2022-11/20221111_PeaceTreaty_1920x1080.jpg)
 
 
 

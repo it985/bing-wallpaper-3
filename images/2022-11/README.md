@@ -1,4 +1,8 @@
-#### 20221120 "ワールド・イン・プログレス II" サイープ, 米国 ニューヨーク市 (© Valentin Flauraud/Shutterstock)
+#### 20221121 The Storr, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
+
+![](20221121_StorrRocks_1920x1080.jpg)
+
+#### 20221120 'World in Progress II,' a land art painting by Saype, United Nations Headquarters, New York City (© Valentin Flauraud/Shutterstock)
 
 ![](20221120_LandartPainting_1920x1080.jpg)
 
