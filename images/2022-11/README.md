@@ -34,6 +34,10 @@
 
 ![](20221115_LontraCanadensis_1920x1080.jpg)
 
+#### 20221115 Braunbrustigel in Sussex, England, Vereinigtes Königreich (© Jules Cox/Minden Pictures)
+
+![](20221115_HedgehogNest_1920x1080.jpg)
+
 #### 20221113 Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)
 
 ![](20221113_SanGiovanni_1920x1080.jpg)
