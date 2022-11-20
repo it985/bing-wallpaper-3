@@ -2,6 +2,14 @@
 
 ![](20221121_StorrRocks_1920x1080.jpg)
 
+#### 20221121 アフメド・ビン＝アリー・スタジアム, カタール ドーハ (© Qatar 2022/Supreme Committee via Getty Images)
+
+![](20221121_FIFA_1920x1080.jpg)
+
+#### 20221121 伊索拉贝拉岛，意大利马焦雷湖 (© Massimo Ripani/eStock)
+
+![](20221121_BorromeanIslands_1920x1080.jpg)
+
 #### 20221120 'World in Progress II,' a land art painting by Saype, United Nations Headquarters, New York City (© Valentin Flauraud/Shutterstock)
 
 ![](20221120_LandartPainting_1920x1080.jpg)
