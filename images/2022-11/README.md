@@ -2,7 +2,7 @@
 
 ![](20221121_StorrRocks_1920x1080.jpg)
 
-#### 20221121 アフメド・ビン＝アリー・スタジアム, カタール ドーハ (© Qatar 2022/Supreme Committee via Getty Images)
+#### 20221121 Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)
 
 ![](20221121_FIFA_1920x1080.jpg)
 
