@@ -1,3 +1,11 @@
+#### 20221122 阿姆斯特丹供水沙丘自然保护区的赤狐，荷兰 (© Edwin Giesbers/Minden Pictures)
+
+![](20221122_Waterleidingduinen_1920x1080.jpg)
+
+#### 20221122 兼六園, 金沢 (© Darby Sawchuk/Alamy Stock Photo)
+
+![](20221122_Shousetsu_1920x1080.jpg)
+
 #### 20221121 The Storr, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
 
 ![](20221121_StorrRocks_1920x1080.jpg)

@@ -1,3 +1,11 @@
+#### 20221122 阿姆斯特丹供水沙丘自然保护区的赤狐，荷兰 (© Edwin Giesbers/Minden Pictures)
+
+![](images/2022-11/20221122_Waterleidingduinen_1920x1080.jpg)
+
+#### 20221122 兼六園, 金沢 (© Darby Sawchuk/Alamy Stock Photo)
+
+![](images/2022-11/20221122_Shousetsu_1920x1080.jpg)
+
 #### 20221121 The Storr, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
 
 ![](images/2022-11/20221121_StorrRocks_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221113 Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)
 
 ![](images/2022-11/20221113_SanGiovanni_1920x1080.jpg)
-
-#### 20221113 The Punch Bowl on the River Quoich in the Cairngorms, Aberdeenshire, Scotland (© AWL Images/Danita Delimont)
-
-![](images/2022-11/20221113_PunchBowl_1920x1080.jpg)
-
-#### 20221113 伊萨尔河鸟瞰图，德国伦格里斯 (© Martin Siepmann/Offset/Shutterstock)
-
-![](images/2022-11/20221113_IsarwinkelSylvenstein_1920x1080.jpg)
 
 
 
