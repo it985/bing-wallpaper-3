@@ -1,4 +1,4 @@
-#### 20221122 阿姆斯特丹供水沙丘自然保护区的赤狐，荷兰 (© Edwin Giesbers/Minden Pictures)
+#### 20221122 Red fox in Amsterdamse Waterleidingduinen Nature Reserve, Netherlands (© Edwin Giesbers/Minden Pictures)
 
 ![](20221122_Waterleidingduinen_1920x1080.jpg)
 
