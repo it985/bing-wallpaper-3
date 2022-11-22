@@ -1,3 +1,7 @@
+#### 20221123 向日葵 (© Dileep Chandran/Alamy)
+
+![](20221123_HelianthusAnnuus_1920x1080.jpg)
+
 #### 20221122 Red fox in Amsterdamse Waterleidingduinen Nature Reserve, Netherlands (© Edwin Giesbers/Minden Pictures)
 
 ![](20221122_Waterleidingduinen_1920x1080.jpg)
