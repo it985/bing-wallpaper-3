@@ -1,3 +1,7 @@
+#### 20221124 坎彭万德山，基姆高地区阿绍，德国巴伐利亚州 (© Toni Anzenberger/plainpicture)
+
+![](20221124_AschauChiemgau_1920x1080.jpg)
+
 #### 20221123 Sunflower (© Dileep Chandran/Alamy)
 
 ![](20221123_HelianthusAnnuus_1920x1080.jpg)

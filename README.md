@@ -1,3 +1,7 @@
+#### 20221124 坎彭万德山，基姆高地区阿绍，德国巴伐利亚州 (© Toni Anzenberger/plainpicture)
+
+![](images/2022-11/20221124_AschauChiemgau_1920x1080.jpg)
+
 #### 20221123 Sunflower (© Dileep Chandran/Alamy)
 
 ![](images/2022-11/20221123_HelianthusAnnuus_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221115 North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)
 
 ![](images/2022-11/20221115_LontraCanadensis_1920x1080.jpg)
-
-#### 20221115 Braunbrustigel in Sussex, England, Vereinigtes Königreich (© Jules Cox/Minden Pictures)
-
-![](images/2022-11/20221115_HedgehogNest_1920x1080.jpg)
 
 
 
