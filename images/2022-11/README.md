@@ -1,4 +1,4 @@
-#### 20221123 向日葵 (© Dileep Chandran/Alamy)
+#### 20221123 Sunflower (© Dileep Chandran/Alamy)
 
 ![](20221123_HelianthusAnnuus_1920x1080.jpg)
 
