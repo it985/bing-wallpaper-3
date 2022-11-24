@@ -6,6 +6,14 @@
 
 ![](images/2022-11/20221124_TignesLake_1920x1080.jpg)
 
+#### 20221124 Preveli gorge with river and palm tree forest, South Chania, Crete, Greece (© borchee/Getty Images)
+
+![](images/2022-11/20221124_PreveliGorge_1920x1080.jpg)
+
+#### 20221124 Cranberry bog (© SHSPhotography/Getty Images)
+
+![](images/2022-11/20221124_CranberryBog_1920x1080.jpg)
+
 #### 20221124 坎彭万德山，基姆高地区阿绍，德国巴伐利亚州 (© Toni Anzenberger/plainpicture)
 
 ![](images/2022-11/20221124_AschauChiemgau_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221118 The gates of the Royal Palace (Dar al-Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)
 
 ![](images/2022-11/20221118_IslamicArt_1920x1080.jpg)
-
-#### 20221117 Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)
-
-![](images/2022-11/20221117_McKenzieRiverTrail_1920x1080.jpg)
-
-#### 20221117 Vignes en automne, Bourgogne (© javarman3/Getty Images)
-
-![](images/2022-11/20221117_Beaune_1920x1080.jpg)
 
 
 

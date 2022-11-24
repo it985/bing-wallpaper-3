@@ -6,6 +6,14 @@
 
 ![](20221124_TignesLake_1920x1080.jpg)
 
+#### 20221124 Preveli gorge with river and palm tree forest, South Chania, Crete, Greece (© borchee/Getty Images)
+
+![](20221124_PreveliGorge_1920x1080.jpg)
+
+#### 20221124 Cranberry bog (© SHSPhotography/Getty Images)
+
+![](20221124_CranberryBog_1920x1080.jpg)
+
 #### 20221124 坎彭万德山，基姆高地区阿绍，德国巴伐利亚州 (© Toni Anzenberger/plainpicture)
 
 ![](20221124_AschauChiemgau_1920x1080.jpg)
