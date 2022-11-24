@@ -1,3 +1,11 @@
+#### 20221124 Weihnachtsmarkt an der Frauenkirche, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)
+
+![](images/2022-11/20221124_WeihnachtsmarktFrauenkirche_1920x1080.jpg)
+
+#### 20221124 Vue sur un lac en automne, Tignes, Savoie  (© Yuterick Bell/500px/Getty Images)
+
+![](images/2022-11/20221124_TignesLake_1920x1080.jpg)
+
 #### 20221124 坎彭万德山，基姆高地区阿绍，德国巴伐利亚州 (© Toni Anzenberger/plainpicture)
 
 ![](images/2022-11/20221124_AschauChiemgau_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221117 Vignes en automne, Bourgogne (© javarman3/Getty Images)
 
 ![](images/2022-11/20221117_Beaune_1920x1080.jpg)
-
-#### 20221116 Cliff dwellings in Mesa Verde National Park, Colorado (© Brad McGinley Photography/Getty Images)
-
-![](images/2022-11/20221116_Unesco_1920x1080.jpg)
-
-#### 20221115 North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)
-
-![](images/2022-11/20221115_LontraCanadensis_1920x1080.jpg)
 
 
 

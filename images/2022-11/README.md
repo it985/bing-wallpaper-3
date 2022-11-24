@@ -1,3 +1,11 @@
+#### 20221124 Weihnachtsmarkt an der Frauenkirche, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)
+
+![](20221124_WeihnachtsmarktFrauenkirche_1920x1080.jpg)
+
+#### 20221124 Vue sur un lac en automne, Tignes, Savoie  (© Yuterick Bell/500px/Getty Images)
+
+![](20221124_TignesLake_1920x1080.jpg)
+
 #### 20221124 坎彭万德山，基姆高地区阿绍，德国巴伐利亚州 (© Toni Anzenberger/plainpicture)
 
 ![](20221124_AschauChiemgau_1920x1080.jpg)
