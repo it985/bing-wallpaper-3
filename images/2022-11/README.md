@@ -1,3 +1,7 @@
+#### 20221125 日出时分的蒂雷纳村庄，法国新阿基坦大区科雷兹省 (© Tim Mannakee/plainpicture)
+
+![](20221125_TurenneSunrise_1920x1080.jpg)
+
 #### 20221124 Weihnachtsmarkt an der Frauenkirche, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)
 
 ![](20221124_WeihnachtsmarktFrauenkirche_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20221125 日出时分的蒂雷纳村庄，法国新阿基坦大区科雷兹省 (© Tim Mannakee/plainpicture)
+
+![](images/2022-11/20221125_TurenneSunrise_1920x1080.jpg)
+
 #### 20221124 Weihnachtsmarkt an der Frauenkirche, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)
 
 ![](images/2022-11/20221124_WeihnachtsmarktFrauenkirche_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221119 Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)
 
 ![](images/2022-11/20221119_ZNPVR_1920x1080.jpg)
-
-#### 20221118 The gates of the Royal Palace (Dar al-Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)
-
-![](images/2022-11/20221118_IslamicArt_1920x1080.jpg)
 
 
 
