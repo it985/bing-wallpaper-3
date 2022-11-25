@@ -1,3 +1,7 @@
+#### 20221126 意大利西西里岛康科迪亚神庙前的一棵橄榄树 (© Alfio Finocchiaro/Shutterstock)
+
+![](images/2022-11/20221126_OliveTreeDay_1920x1080.jpg)
+
 #### 20221125 日出时分的蒂雷纳村庄，法国新阿基坦大区科雷兹省 (© Tim Mannakee/plainpicture)
 
 ![](images/2022-11/20221125_TurenneSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221121 伊索拉贝拉岛，意大利马焦雷湖 (© Massimo Ripani/eStock)
 
 ![](images/2022-11/20221121_BorromeanIslands_1920x1080.jpg)
-
-#### 20221120 'World in Progress II,' a land art painting by Saype, United Nations Headquarters, New York City (© Valentin Flauraud/Shutterstock)
-
-![](images/2022-11/20221120_LandartPainting_1920x1080.jpg)
 
 
 

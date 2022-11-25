@@ -1,3 +1,7 @@
+#### 20221126 意大利西西里岛康科迪亚神庙前的一棵橄榄树 (© Alfio Finocchiaro/Shutterstock)
+
+![](20221126_OliveTreeDay_1920x1080.jpg)
+
 #### 20221125 日出时分的蒂雷纳村庄，法国新阿基坦大区科雷兹省 (© Tim Mannakee/plainpicture)
 
 ![](20221125_TurenneSunrise_1920x1080.jpg)
