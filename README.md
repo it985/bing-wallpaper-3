@@ -2,6 +2,14 @@
 
 ![](images/2022-11/20221125_TurenneSunrise_1920x1080.jpg)
 
+#### 20221125 Juniper Springs in Ocala National Forest, Florida (© Michael Warren/Getty Images)
+
+![](images/2022-11/20221125_OcalaNF_1920x1080.jpg)
+
+#### 20221125 Monks Mound at the Cahokia Mounds UNESCO World Heritage Site near Collinsville, Illinois (© Matthew Gush/Alamy)
+
+![](images/2022-11/20221125_MonksMound_1920x1080.jpg)
+
 #### 20221124 Weihnachtsmarkt an der Frauenkirche, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)
 
 ![](images/2022-11/20221124_WeihnachtsmarktFrauenkirche_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20221120 'World in Progress II,' a land art painting by Saype, United Nations Headquarters, New York City (© Valentin Flauraud/Shutterstock)
 
 ![](images/2022-11/20221120_LandartPainting_1920x1080.jpg)
-
-#### 20221120 船底星云中的宇宙悬崖 (© NASA, ESA, CSA, and STScI)
-
-![](images/2022-11/20221120_CosmicCliffs_1920x1080.jpg)
-
-#### 20221119 Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)
-
-![](images/2022-11/20221119_ZNPVR_1920x1080.jpg)
 
 
 

@@ -2,6 +2,14 @@
 
 ![](20221125_TurenneSunrise_1920x1080.jpg)
 
+#### 20221125 Juniper Springs in Ocala National Forest, Florida (© Michael Warren/Getty Images)
+
+![](20221125_OcalaNF_1920x1080.jpg)
+
+#### 20221125 Monks Mound at the Cahokia Mounds UNESCO World Heritage Site near Collinsville, Illinois (© Matthew Gush/Alamy)
+
+![](20221125_MonksMound_1920x1080.jpg)
+
 #### 20221124 Weihnachtsmarkt an der Frauenkirche, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)
 
 ![](20221124_WeihnachtsmarktFrauenkirche_1920x1080.jpg)
