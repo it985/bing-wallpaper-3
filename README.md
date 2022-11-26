@@ -1,3 +1,7 @@
+#### 20221127 一片飘落在龙虾爪瓣上的号角树树叶，墨西哥 (© Gerry Ellis/Minden Pictures)
+
+![](images/2022-11/20221127_Cecropia_1920x1080.jpg)
+
 #### 20221126 An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)
 
 ![](images/2022-11/20221126_OliveTreeDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221121 The Storr, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
 
 ![](images/2022-11/20221121_StorrRocks_1920x1080.jpg)
-
-#### 20221121 Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)
-
-![](images/2022-11/20221121_FIFA_1920x1080.jpg)
 
 
 

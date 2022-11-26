@@ -1,3 +1,7 @@
+#### 20221127 一片飘落在龙虾爪瓣上的号角树树叶，墨西哥 (© Gerry Ellis/Minden Pictures)
+
+![](20221127_Cecropia_1920x1080.jpg)
+
 #### 20221126 An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)
 
 ![](20221126_OliveTreeDay_1920x1080.jpg)
