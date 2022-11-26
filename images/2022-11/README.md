@@ -1,6 +1,10 @@
-#### 20221126 意大利西西里岛康科迪亚神庙前的一棵橄榄树 (© Alfio Finocchiaro/Shutterstock)
+#### 20221126 An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)
 
 ![](20221126_OliveTreeDay_1920x1080.jpg)
+
+#### 20221126 People watch the Christmas lights and fireworks at the Nathan Phillips Square in Toronto on November 30, 2013 (© Canadapanda/Shutterstock)
+
+![](20221126_CavalcadeNathans_1920x1080.jpg)
 
 #### 20221125 日出时分的蒂雷纳村庄，法国新阿基坦大区科雷兹省 (© Tim Mannakee/plainpicture)
 
