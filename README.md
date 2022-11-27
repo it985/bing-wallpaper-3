@@ -1,3 +1,7 @@
+#### 20221128 火星（© NASA/Alamy）
+
+![](images/2022-11/20221128_RedPlanetDay_1920x1080.jpg)
+
 #### 20221127 Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)
 
 ![](images/2022-11/20221127_Cecropia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221122 兼六園, 金沢 (© Darby Sawchuk/Alamy Stock Photo)
 
 ![](images/2022-11/20221122_Shousetsu_1920x1080.jpg)
-
-#### 20221121 The Storr, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
-
-![](images/2022-11/20221121_StorrRocks_1920x1080.jpg)
 
 
 

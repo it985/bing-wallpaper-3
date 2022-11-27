@@ -1,3 +1,7 @@
+#### 20221128 火星（© NASA/Alamy）
+
+![](20221128_RedPlanetDay_1920x1080.jpg)
+
 #### 20221127 Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)
 
 ![](20221127_Cecropia_1920x1080.jpg)
