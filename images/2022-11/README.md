@@ -1,4 +1,4 @@
-#### 20221127 一片飘落在龙虾爪瓣上的号角树树叶，墨西哥 (© Gerry Ellis/Minden Pictures)
+#### 20221127 Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)
 
 ![](20221127_Cecropia_1920x1080.jpg)
 
