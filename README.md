@@ -1,4 +1,4 @@
-#### 20221128 火星（© NASA/Alamy）
+#### 20221128 Mars (© NASA/Alamy)
 
 ![](images/2022-11/20221128_RedPlanetDay_1920x1080.jpg)
 
