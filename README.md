@@ -1,3 +1,7 @@
+#### 20221129 正在筑巢的大蓝鹭，佛罗里达州瓦可达哈齐湿地，美国 (© Imagebroker/Alamy)
+
+![](images/2022-11/20221129_HeronGiving_1920x1080.jpg)
+
 #### 20221128 Mars (© NASA/Alamy)
 
 ![](images/2022-11/20221128_RedPlanetDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221122 Red fox in Amsterdamse Waterleidingduinen Nature Reserve, Netherlands (© Edwin Giesbers/Minden Pictures)
 
 ![](images/2022-11/20221122_Waterleidingduinen_1920x1080.jpg)
-
-#### 20221122 兼六園, 金沢 (© Darby Sawchuk/Alamy Stock Photo)
-
-![](images/2022-11/20221122_Shousetsu_1920x1080.jpg)
 
 
 
