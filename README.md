@@ -1,4 +1,4 @@
-#### 20221129 正在筑巢的大蓝鹭，佛罗里达州瓦可达哈齐湿地，美国 (© Imagebroker/Alamy)
+#### 20221129 Great blue herons building a nest in Wakodahatchee Wetlands, Delray Beach, Florida (© Imagebroker/Alamy)
 
 ![](images/2022-11/20221129_HeronGiving_1920x1080.jpg)
 
