@@ -1,3 +1,7 @@
+#### 20221130 罗维尼老城，克罗地亚 (© trabantos/Shutterstock)
+
+![](images/2022-11/20221130_RovinjCroatia_1920x1080.jpg)
+
 #### 20221129 Great blue herons building a nest in Wakodahatchee Wetlands, Delray Beach, Florida (© Imagebroker/Alamy)
 
 ![](images/2022-11/20221129_HeronGiving_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221123 Sunflower (© Dileep Chandran/Alamy)
 
 ![](images/2022-11/20221123_HelianthusAnnuus_1920x1080.jpg)
-
-#### 20221122 Red fox in Amsterdamse Waterleidingduinen Nature Reserve, Netherlands (© Edwin Giesbers/Minden Pictures)
-
-![](images/2022-11/20221122_Waterleidingduinen_1920x1080.jpg)
 
 
 

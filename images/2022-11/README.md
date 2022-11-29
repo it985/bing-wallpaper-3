@@ -1,3 +1,7 @@
+#### 20221130 罗维尼老城，克罗地亚 (© trabantos/Shutterstock)
+
+![](20221130_RovinjCroatia_1920x1080.jpg)
+
 #### 20221129 Great blue herons building a nest in Wakodahatchee Wetlands, Delray Beach, Florida (© Imagebroker/Alamy)
 
 ![](20221129_HeronGiving_1920x1080.jpg)
