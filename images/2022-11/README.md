@@ -1,4 +1,4 @@
-#### 20221130 罗维尼老城，克罗地亚 (© trabantos/Shutterstock)
+#### 20221130 The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)
 
 ![](20221130_RovinjCroatia_1920x1080.jpg)
 
