@@ -40,11 +40,11 @@ jobs:
           git config user.email ${{ secrets.USER_EMAIL }}
           gitstatus=`git status --porcelain`
           [ -n "$gitstatus" ] && echo 'git add' && git add images/ README.md
-          [ -n "$gitstatus" ] && echo 'git comit' && git commit -m "auto commit from github actions"
+          [ -n "$gitstatus" ] && echo 'git comit' && git commit -m "auto commit"
           [ -z "$gitstatus" ] && echo 'no update'
           echo 'commit end'
       - name: Push
         uses: ad-m/github-push-action@master
         with:
-          github_token: ${{ secrets.GITHUB_TOKEN }}
+          github_token: ${{ secrets.TOKEN }}
           branch: main
