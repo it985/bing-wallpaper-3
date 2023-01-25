@@ -1,4 +1,4 @@
-#### 20230125 位于阿伯费尔迪桦树林中的罗伯特·彭斯雕像, 苏格兰 (© Dennis Barnes/Getty Images)
+#### 20230125 Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)
 
 ![](images/2023-01/20230125_BirksofAberfeldy_1920x1080.jpg)
 
