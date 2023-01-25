@@ -1,3 +1,7 @@
+#### 20230126 天门洞，湖南天门山国家森林公园，中国 (© Shane P. White/Minden Pictures)
+
+![](images/2023-01/20230126_HighArchChina_1920x1080.jpg)
+
 #### 20230125 Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)
 
 ![](images/2023-01/20230125_BirksofAberfeldy_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20221129 Great blue herons building a nest in Wakodahatchee Wetlands, Delray Beach, Florida (© Imagebroker/Alamy)
 
 ![](images/2022-11/20221129_HeronGiving_1920x1080.jpg)
-
-#### 20221128 Mars (© NASA/Alamy)
-
-![](images/2022-11/20221128_RedPlanetDay_1920x1080.jpg)
 
 
 

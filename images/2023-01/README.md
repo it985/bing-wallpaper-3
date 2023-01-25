@@ -1,3 +1,7 @@
+#### 20230126 天门洞，湖南天门山国家森林公园，中国 (© Shane P. White/Minden Pictures)
+
+![](20230126_HighArchChina_1920x1080.jpg)
+
 #### 20230125 Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)
 
 ![](20230125_BirksofAberfeldy_1920x1080.jpg)
