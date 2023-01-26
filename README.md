@@ -1,3 +1,7 @@
+#### 20230127 瓜纳阿卡维韦斯半岛国家公园的红树林，古巴 (© Claudio Contreras/Minden Pictures)
+
+![](images/2023-01/20230127_RedMangrove_1920x1080.jpg)
+
 #### 20230126 Heaven's Gate Cave in Tianmen Mountain National Park, China (© Shane P. White/Minden Pictures)
 
 ![](images/2023-01/20230126_HighArchChina_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230118 White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)
 
 ![](images/2023-01/20230118_WhiteSands_1920x1080.jpg)
-
-#### 20221130 The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)
-
-![](images/2022-11/20221130_RovinjCroatia_1920x1080.jpg)
 
 
 
