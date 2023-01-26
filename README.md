@@ -1,6 +1,10 @@
-#### 20230126 天门洞，湖南天门山国家森林公园，中国 (© Shane P. White/Minden Pictures)
+#### 20230126 Heaven's Gate Cave in Tianmen Mountain National Park, China (© Shane P. White/Minden Pictures)
 
 ![](images/2023-01/20230126_HighArchChina_1920x1080.jpg)
+
+#### 20230126 Rainforest trails along Cypress Creek, West Vancouver, BC (© Jason Wilde/TANDEM Stills + Motion)
+
+![](images/2023-01/20230126_CypressCreek_1920x1080.jpg)
 
 #### 20230125 Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)
 
@@ -53,10 +57,6 @@
 #### 20221130 The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)
 
 ![](images/2022-11/20221130_RovinjCroatia_1920x1080.jpg)
-
-#### 20221129 Great blue herons building a nest in Wakodahatchee Wetlands, Delray Beach, Florida (© Imagebroker/Alamy)
-
-![](images/2022-11/20221129_HeronGiving_1920x1080.jpg)
 
 
 
