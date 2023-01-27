@@ -1,4 +1,4 @@
-#### 20230127 瓜纳阿卡维韦斯半岛国家公园的红树林，古巴 (© Claudio Contreras/Minden Pictures)
+#### 20230127 Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)
 
 ![](20230127_RedMangrove_1920x1080.jpg)
 
