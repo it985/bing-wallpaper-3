@@ -1,3 +1,7 @@
+#### 20230128 从国际空间站看到的巴哈马周围的蓝绿色水域 (© NASA)
+
+![](20230128_BlueBahamas_1920x1080.jpg)
+
 #### 20230127 Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)
 
 ![](20230127_RedMangrove_1920x1080.jpg)

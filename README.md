@@ -1,3 +1,7 @@
+#### 20230128 从国际空间站看到的巴哈马周围的蓝绿色水域 (© NASA)
+
+![](images/2023-01/20230128_BlueBahamas_1920x1080.jpg)
+
 #### 20230127 Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)
 
 ![](images/2023-01/20230127_RedMangrove_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230119 Park City, Utah (© Kruck20/Getty Images)
 
 ![](images/2023-01/20230119_SFFParkCity_1920x1080.jpg)
-
-#### 20230118 White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)
-
-![](images/2023-01/20230118_WhiteSands_1920x1080.jpg)
 
 
 
