@@ -1,3 +1,7 @@
+#### 20230129 埃塞克斯的乌鸫，英国 (© Bill Coster/Alamy Stock Photo)
+
+![](images/2023-01/20230129_BlackbirdDay_1920x1080.jpg)
+
 #### 20230128 Blue-green waters around the Bahamas as seen from the International Space Station (© NASA)
 
 ![](images/2023-01/20230128_BlueBahamas_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230120 雪に覆われた清水寺, 京都 (© Paitoon Pornsuksomboon/Shutterstock)
 
 ![](images/2023-01/20230120_Daikan_1920x1080.jpg)
-
-#### 20230119 Park City, Utah (© Kruck20/Getty Images)
-
-![](images/2023-01/20230119_SFFParkCity_1920x1080.jpg)
 
 
 
