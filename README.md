@@ -1,4 +1,4 @@
-#### 20230128 从国际空间站看到的巴哈马周围的蓝绿色水域 (© NASA)
+#### 20230128 Blue-green waters around the Bahamas as seen from the International Space Station (© NASA)
 
 ![](images/2023-01/20230128_BlueBahamas_1920x1080.jpg)
 
