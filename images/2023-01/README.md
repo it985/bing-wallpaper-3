@@ -1,3 +1,11 @@
+#### 20230130 卡纳塔克邦的纳加尔霍雷国家公园，印度 (© Vivek BR/Shutterstock)
+
+![](20230130_NagarholeNationalPark_1920x1080.jpg)
+
+#### 20230130 アイス・スノーセーリング世界選手権大会, ハンガリー (© mauritius images GmbH/Alamy Stock Photo)
+
+![](20230130_IceSailingBalaton_1920x1080.jpg)
+
 #### 20230129 Blackbird in Essex, England (© Bill Coster/Alamy)
 
 ![](20230129_BlackbirdDay_1920x1080.jpg)
