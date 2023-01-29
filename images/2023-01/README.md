@@ -1,4 +1,4 @@
-#### 20230129 埃塞克斯的乌鸫，英国 (© Bill Coster/Alamy Stock Photo)
+#### 20230129 Blackbird in Essex, England (© Bill Coster/Alamy)
 
 ![](20230129_BlackbirdDay_1920x1080.jpg)
 
