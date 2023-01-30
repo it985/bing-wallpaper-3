@@ -2,7 +2,7 @@
 
 ![](20230130_NagarholeNationalPark_1920x1080.jpg)
 
-#### 20230130 アイス・スノーセーリング世界選手権大会, ハンガリー (© mauritius images GmbH/Alamy Stock Photo)
+#### 20230130 Ice and Snow Sailing European Championships on Lake Balaton in Hungary (© mauritius images GmbH/Alamy Stock Photo)
 
 ![](20230130_IceSailingBalaton_1920x1080.jpg)
 
