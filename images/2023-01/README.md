@@ -1,3 +1,7 @@
+#### 20230131 南非自然保护区的斑马 (© Richard Du Toit/Minden Pictures)
+
+![](20230131_ZebraTrio_1920x1080.jpg)
+
 #### 20230130 卡纳塔克邦的纳加尔霍雷国家公园，印度 (© Vivek BR/Shutterstock)
 
 ![](20230130_NagarholeNationalPark_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20230131 南非自然保护区的斑马 (© Richard Du Toit/Minden Pictures)
+
+![](images/2023-01/20230131_ZebraTrio_1920x1080.jpg)
+
 #### 20230130 卡纳塔克邦的纳加尔霍雷国家公园，印度 (© Vivek BR/Shutterstock)
 
 ![](images/2023-01/20230130_NagarholeNationalPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230121 Kangaroo mother and baby (© Belle Ciezak/Shutterstock)
 
 ![](images/2023-01/20230121_HuggingKanga_1920x1080.jpg)
-
-#### 20230121 除夕夜的中国新年灯笼 (© Toa55/Getty Images)
-
-![](images/2023-01/20230121_ChineseNewYearEve_1920x1080.jpg)
 
 
 
