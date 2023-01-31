@@ -1,4 +1,4 @@
-#### 20230131 南非自然保护区的斑马 (© Richard Du Toit/Minden Pictures)
+#### 20230131 Burchell's zebras, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)
 
 ![](20230131_ZebraTrio_1920x1080.jpg)
 
