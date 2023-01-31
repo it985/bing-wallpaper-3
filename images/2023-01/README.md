@@ -2,6 +2,10 @@
 
 ![](20230131_ZebraTrio_1920x1080.jpg)
 
+#### 20230131 Samenköpfe der Kanadischen Goldrute im Raureif im Morgenlicht, Wasgau, NP Pfälzerwald, Biosphärenreservat Pfälzerwald-Nordvogesen, Rheinland-Pfalz (©  mauritius images GmbH/Alamy Stock Photo)
+
+![](20230131_GoldruteWinter_1920x1080.jpg)
+
 #### 20230130 卡纳塔克邦的纳加尔霍雷国家公园，印度 (© Vivek BR/Shutterstock)
 
 ![](20230130_NagarholeNationalPark_1920x1080.jpg)

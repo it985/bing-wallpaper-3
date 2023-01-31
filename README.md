@@ -2,6 +2,10 @@
 
 ![](images/2023-01/20230131_ZebraTrio_1920x1080.jpg)
 
+#### 20230131 Samenköpfe der Kanadischen Goldrute im Raureif im Morgenlicht, Wasgau, NP Pfälzerwald, Biosphärenreservat Pfälzerwald-Nordvogesen, Rheinland-Pfalz (©  mauritius images GmbH/Alamy Stock Photo)
+
+![](images/2023-01/20230131_GoldruteWinter_1920x1080.jpg)
+
 #### 20230130 卡纳塔克邦的纳加尔霍雷国家公园，印度 (© Vivek BR/Shutterstock)
 
 ![](images/2023-01/20230130_NagarholeNationalPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230121 Waschbär (Procyon Lotor) zwei Babys klettern auf den Baum (© Tim Fitzharris/Minden)
 
 ![](images/2023-01/20230121_WaschbaerBirke_1920x1080.jpg)
-
-#### 20230121 Kangaroo mother and baby (© Belle Ciezak/Shutterstock)
-
-![](images/2023-01/20230121_HuggingKanga_1920x1080.jpg)
 
 
 
