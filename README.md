@@ -1,3 +1,7 @@
+#### 20230202 高地陶恩国家公园内的高山土拨鼠，奥地利 (© Michaela Walch/Alamy)
+
+![](images/2023-02/20230202_GroundhogThree_1920x1080.jpg)
+
 #### 20230201 ジャスパー国立公園, カナダ アルバータ州 (© Jeff Foott/Minden Pictures)
 
 ![](images/2023-02/20230201_TangleCreekFalls_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230124 Colle Santa Lucia in the Dolomites, Italy (© mauritius images GmbH/Alamy)
 
 ![](images/2023-01/20230124_ColleSantaLucia_1920x1080.jpg)
-
-#### 20230123 Moai statues on Easter Island, Chile (© Karine Aigner/Tandem Stills + Motion)
-
-![](images/2023-01/20230123_SunriseMoai_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20230202 高地陶恩国家公园内的高山土拨鼠，奥地利 (© Michaela Walch/Alamy)
+
+![](20230202_GroundhogThree_1920x1080.jpg)
+
 #### 20230201 ジャスパー国立公園, カナダ アルバータ州 (© Jeff Foott/Minden Pictures)
 
 ![](20230201_TangleCreekFalls_1920x1080.jpg)
