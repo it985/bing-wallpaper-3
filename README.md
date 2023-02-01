@@ -6,6 +6,10 @@
 
 ![](images/2023-02/20230201_SunriseCastle_1920x1080.jpg)
 
+#### 20230201 'Testament: The Little Rock Nine Monument,' Little Rock, Arkansas (© Rex Lisman/Getty Images)
+
+![](images/2023-02/20230201_LittleRockNine_1920x1080.jpg)
+
 #### 20230131 Burchell's zebras, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)
 
 ![](images/2023-01/20230131_ZebraTrio_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230123 Moai statues on Easter Island, Chile (© Karine Aigner/Tandem Stills + Motion)
 
 ![](images/2023-01/20230123_SunriseMoai_1920x1080.jpg)
-
-#### 20230122 Mountain hare in Derbyshire, England (© Ben Hall/Minden Pictures)
-
-![](images/2023-01/20230122_YearRabbit_1920x1080.jpg)
 
 
 

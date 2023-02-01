@@ -6,3 +6,7 @@
 
 ![](20230201_SunriseCastle_1920x1080.jpg)
 
+#### 20230201 'Testament: The Little Rock Nine Monument,' Little Rock, Arkansas (© Rex Lisman/Getty Images)
+
+![](20230201_LittleRockNine_1920x1080.jpg)
+
