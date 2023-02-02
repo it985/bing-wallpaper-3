@@ -1,3 +1,11 @@
+#### 20230203 枡いっぱいの節分の福豆 (© Nishihama/Shutterstock)
+
+![](images/2023-02/20230203_Setsubun_1920x1080.jpg)
+
+#### 20230203 费尔蒙芳堤娜城堡酒店，魁北克省，加拿大 (© Romiana Lee/Shutterstock)
+
+![](images/2023-02/20230203_QuebecFrontenac_1920x1080.jpg)
+
 #### 20230202 Alpine marmots in Hohe Tauern National Park, Austria (© Michaela Walch/Alamy)
 
 ![](images/2023-02/20230202_GroundhogThree_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230126 Rainforest trails along Cypress Creek, West Vancouver, BC (© Jason Wilde/TANDEM Stills + Motion)
 
 ![](images/2023-01/20230126_CypressCreek_1920x1080.jpg)
-
-#### 20230125 Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)
-
-![](images/2023-01/20230125_BirksofAberfeldy_1920x1080.jpg)
-
-#### 20230124 Colle Santa Lucia in the Dolomites, Italy (© mauritius images GmbH/Alamy)
-
-![](images/2023-01/20230124_ColleSantaLucia_1920x1080.jpg)
 
 
 
