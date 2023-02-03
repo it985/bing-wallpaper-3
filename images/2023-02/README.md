@@ -1,3 +1,11 @@
+#### 20230204 初春の梅に飛来したメジロ (© tahirsphotography/Shutterstock)
+
+![](20230204_Risshun_1920x1080.jpg)
+
+#### 20230204 永福樱花园，福建省龙岩市, 中国 (© SEN LI/Getty Images)
+
+![](20230204_Lichun_1920x1080.jpg)
+
 #### 20230203 枡いっぱいの節分の福豆 (© Nishihama/Shutterstock)
 
 ![](20230203_Setsubun_1920x1080.jpg)

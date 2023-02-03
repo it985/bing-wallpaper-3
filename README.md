@@ -1,3 +1,11 @@
+#### 20230204 初春の梅に飛来したメジロ (© tahirsphotography/Shutterstock)
+
+![](images/2023-02/20230204_Risshun_1920x1080.jpg)
+
+#### 20230204 永福樱花园，福建省龙岩市, 中国 (© SEN LI/Getty Images)
+
+![](images/2023-02/20230204_Lichun_1920x1080.jpg)
+
 #### 20230203 枡いっぱいの節分の福豆 (© Nishihama/Shutterstock)
 
 ![](images/2023-02/20230203_Setsubun_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230127 Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)
 
 ![](images/2023-01/20230127_RedMangrove_1920x1080.jpg)
-
-#### 20230126 Heaven's Gate Cave in Tianmen Mountain National Park, China (© Shane P. White/Minden Pictures)
-
-![](images/2023-01/20230126_HighArchChina_1920x1080.jpg)
-
-#### 20230126 Rainforest trails along Cypress Creek, West Vancouver, BC (© Jason Wilde/TANDEM Stills + Motion)
-
-![](images/2023-01/20230126_CypressCreek_1920x1080.jpg)
 
 
 
