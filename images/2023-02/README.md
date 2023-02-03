@@ -2,7 +2,7 @@
 
 ![](20230203_Setsubun_1920x1080.jpg)
 
-#### 20230203 费尔蒙芳堤娜城堡酒店，魁北克省，加拿大 (© Romiana Lee/Shutterstock)
+#### 20230203 Château Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)
 
 ![](20230203_QuebecFrontenac_1920x1080.jpg)
 
