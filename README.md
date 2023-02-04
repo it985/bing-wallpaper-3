@@ -1,3 +1,7 @@
+#### 20230204 Rosa Parks sits in the front of a bus in Montgomery, Alabama, Dec 21, 1956 (© Bettmann Archive/Getty Images)
+
+![](images/2023-02/20230204_RosaParksBus_1920x1080.jpg)
+
 #### 20230204 初春の梅に飛来したメジロ (© tahirsphotography/Shutterstock)
 
 ![](images/2023-02/20230204_Risshun_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230130 Ice and Snow Sailing European Championships on Lake Balaton in Hungary (© mauritius images GmbH/Alamy Stock Photo)
 
 ![](images/2023-01/20230130_IceSailingBalaton_1920x1080.jpg)
-
-#### 20230129 Blackbird in Essex, England (© Bill Coster/Alamy)
-
-![](images/2023-01/20230129_BlackbirdDay_1920x1080.jpg)
 
 
 
