@@ -2,9 +2,17 @@
 
 ![](20230204_Risshun_1920x1080.jpg)
 
+#### 20230204 Village de Labro, Province de Rieti, Italie (© Marco Ilari/Shutterstock)
+
+![](20230204_MedievalLabro_1920x1080.jpg)
+
 #### 20230204 永福樱花园，福建省龙岩市, 中国 (© SEN LI/Getty Images)
 
 ![](20230204_Lichun_1920x1080.jpg)
+
+#### 20230204 Feldbergturm im Schwarzwald, Baden-Württemberg (© Hemis/Alamy)
+
+![](20230204_FeldbergSchnee_1920x1080.jpg)
 
 #### 20230203 枡いっぱいの節分の福豆 (© Nishihama/Shutterstock)
 

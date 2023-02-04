@@ -2,9 +2,17 @@
 
 ![](images/2023-02/20230204_Risshun_1920x1080.jpg)
 
+#### 20230204 Village de Labro, Province de Rieti, Italie (© Marco Ilari/Shutterstock)
+
+![](images/2023-02/20230204_MedievalLabro_1920x1080.jpg)
+
 #### 20230204 永福樱花园，福建省龙岩市, 中国 (© SEN LI/Getty Images)
 
 ![](images/2023-02/20230204_Lichun_1920x1080.jpg)
+
+#### 20230204 Feldbergturm im Schwarzwald, Baden-Württemberg (© Hemis/Alamy)
+
+![](images/2023-02/20230204_FeldbergSchnee_1920x1080.jpg)
 
 #### 20230203 枡いっぱいの節分の福豆 (© Nishihama/Shutterstock)
 
@@ -49,14 +57,6 @@
 #### 20230129 Blackbird in Essex, England (© Bill Coster/Alamy)
 
 ![](images/2023-01/20230129_BlackbirdDay_1920x1080.jpg)
-
-#### 20230128 Blue-green waters around the Bahamas as seen from the International Space Station (© NASA)
-
-![](images/2023-01/20230128_BlueBahamas_1920x1080.jpg)
-
-#### 20230127 Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)
-
-![](images/2023-01/20230127_RedMangrove_1920x1080.jpg)
 
 
 
