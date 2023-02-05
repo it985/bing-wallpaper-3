@@ -2,7 +2,7 @@
 
 ![](images/2023-02/20230205_YearRabbit_1920x1080.jpg)
 
-#### 20230205 Monarch butterflies at Pismo Beach, California, USA (© Mimi Ditchie/Getty Images)
+#### 20230205 Monarch butterflies at Pismo Beach, California (© Mimi Ditchie/Getty Images)
 
 ![](images/2023-02/20230205_MonarchPismo_1920x1080.jpg)
 
