@@ -1,3 +1,7 @@
+#### 20230206 峡湾国家公园，新西兰南岛 (© WitR/Adobe Stock)
+
+![](20230206_WaitangiFjordlandNP_1920x1080.jpg)
+
 #### 20230205 毛茸茸又可爱的山兔 (© Ben Hall/Minden Pictures)
 
 ![](20230205_YearRabbit_1920x1080.jpg)

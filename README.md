@@ -1,3 +1,7 @@
+#### 20230206 峡湾国家公园，新西兰南岛 (© WitR/Adobe Stock)
+
+![](images/2023-02/20230206_WaitangiFjordlandNP_1920x1080.jpg)
+
 #### 20230205 毛茸茸又可爱的山兔 (© Ben Hall/Minden Pictures)
 
 ![](images/2023-02/20230205_YearRabbit_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230131 Burchell's zebras, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)
 
 ![](images/2023-01/20230131_ZebraTrio_1920x1080.jpg)
-
-#### 20230131 Samenköpfe der Kanadischen Goldrute im Raureif im Morgenlicht, Wasgau, NP Pfälzerwald, Biosphärenreservat Pfälzerwald-Nordvogesen, Rheinland-Pfalz (©  mauritius images GmbH/Alamy Stock Photo)
-
-![](images/2023-01/20230131_GoldruteWinter_1920x1080.jpg)
 
 
 
