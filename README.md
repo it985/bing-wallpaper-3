@@ -1,4 +1,4 @@
-#### 20230206 峡湾国家公园，新西兰南岛 (© WitR/Adobe Stock)
+#### 20230206 Fiordland National Park in South Island, New Zealand (© WitR/Adobe Stock)
 
 ![](images/2023-02/20230206_WaitangiFjordlandNP_1920x1080.jpg)
 
