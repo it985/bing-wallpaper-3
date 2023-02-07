@@ -1,3 +1,11 @@
+#### 20230208 ウーレッドプラッセン, ノルウェー (© Eyesite/Alamy)
+
+![](20230208_NorwayRestArea_1920x1080.jpg)
+
+#### 20230208 艾琳多南堡，苏格兰高地 (© VisualCommunications/Getty Images)
+
+![](20230208_EileanDonanDawn_1920x1080.jpg)
+
 #### 20230207 Ski hors-piste, Courchevel, France (© Andrew Lloyd/Alamy Stock Photo)
 
 ![](20230207_SkiCourch_1920x1080.jpg)

@@ -1,3 +1,11 @@
+#### 20230208 ウーレッドプラッセン, ノルウェー (© Eyesite/Alamy)
+
+![](images/2023-02/20230208_NorwayRestArea_1920x1080.jpg)
+
+#### 20230208 艾琳多南堡，苏格兰高地 (© VisualCommunications/Getty Images)
+
+![](images/2023-02/20230208_EileanDonanDawn_1920x1080.jpg)
+
 #### 20230207 Ski hors-piste, Courchevel, France (© Andrew Lloyd/Alamy Stock Photo)
 
 ![](images/2023-02/20230207_SkiCourch_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230201 ジャスパー国立公園, カナダ アルバータ州 (© Jeff Foott/Minden Pictures)
 
 ![](images/2023-02/20230201_TangleCreekFalls_1920x1080.jpg)
-
-#### 20230201 皮埃尔丰城堡，皮卡第大区，法国 (© Hemis/Alamy)
-
-![](images/2023-02/20230201_SunriseCastle_1920x1080.jpg)
-
-#### 20230201 'Testament: The Little Rock Nine Monument,' Little Rock, Arkansas (© Rex Lisman/Getty Images)
-
-![](images/2023-02/20230201_LittleRockNine_1920x1080.jpg)
 
 
 
