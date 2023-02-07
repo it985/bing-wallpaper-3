@@ -1,3 +1,7 @@
+#### 20230207 Ski hors-piste, Courchevel, France (© Andrew Lloyd/Alamy Stock Photo)
+
+![](20230207_SkiCourch_1920x1080.jpg)
+
 #### 20230206 Fiordland National Park in South Island, New Zealand (© WitR/Adobe Stock)
 
 ![](20230206_WaitangiFjordlandNP_1920x1080.jpg)

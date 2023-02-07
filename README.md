@@ -1,3 +1,7 @@
+#### 20230207 Ski hors-piste, Courchevel, France (© Andrew Lloyd/Alamy Stock Photo)
+
+![](images/2023-02/20230207_SkiCourch_1920x1080.jpg)
+
 #### 20230206 Fiordland National Park in South Island, New Zealand (© WitR/Adobe Stock)
 
 ![](images/2023-02/20230206_WaitangiFjordlandNP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230201 'Testament: The Little Rock Nine Monument,' Little Rock, Arkansas (© Rex Lisman/Getty Images)
 
 ![](images/2023-02/20230201_LittleRockNine_1920x1080.jpg)
-
-#### 20230131 Burchell's zebras, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)
-
-![](images/2023-01/20230131_ZebraTrio_1920x1080.jpg)
 
 
 
