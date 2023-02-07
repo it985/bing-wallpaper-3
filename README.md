@@ -22,7 +22,7 @@
 
 ![](images/2023-02/20230204_Risshun_1920x1080.jpg)
 
-#### 20230204 Village de Labro, Province de Rieti, Italie (© Marco Ilari/Shutterstock)
+#### 20230204 Village of Labro, Rieti Province, Italy (© Marco Ilari/Shutterstock)
 
 ![](images/2023-02/20230204_MedievalLabro_1920x1080.jpg)
 
