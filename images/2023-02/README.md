@@ -1,4 +1,4 @@
-#### 20230208 ウーレッドプラッセン, ノルウェー (© Eyesite/Alamy)
+#### 20230208 Ureddplassen, a rest area on the Helgelandskysten scenic route, Norway (© Eyesite/Alamy)
 
 ![](20230208_NorwayRestArea_1920x1080.jpg)
 
