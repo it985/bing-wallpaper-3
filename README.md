@@ -1,3 +1,7 @@
+#### 20230209 下羚羊峡谷，亚利桑那州，美国 (© AZCat/Getty Images)
+
+![](images/2023-02/20230209_LowerAntelopeAZ_1920x1080.jpg)
+
 #### 20230208 Ureddplassen, a rest area on the Helgelandskysten scenic route, Norway (© Eyesite/Alamy)
 
 ![](images/2023-02/20230208_NorwayRestArea_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230202 Alpine marmots in Hohe Tauern National Park, Austria (© Michaela Walch/Alamy)
 
 ![](images/2023-02/20230202_GroundhogThree_1920x1080.jpg)
-
-#### 20230201 ジャスパー国立公園, カナダ アルバータ州 (© Jeff Foott/Minden Pictures)
-
-![](images/2023-02/20230201_TangleCreekFalls_1920x1080.jpg)
 
 
 
