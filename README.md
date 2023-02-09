@@ -1,3 +1,7 @@
+#### 20230210 埃庇道鲁斯剧场, 希腊阿尔戈利斯省 (© George Pachantouris/Getty Images)
+
+![](images/2023-02/20230210_EpidaurusGreece_1920x1080.jpg)
+
 #### 20230209 Lower Antelope Canyon near Page, Arizona (© AZCat/Getty Images)
 
 ![](images/2023-02/20230209_LowerAntelopeAZ_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230203 Château Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)
 
 ![](images/2023-02/20230203_QuebecFrontenac_1920x1080.jpg)
-
-#### 20230202 Alpine marmots in Hohe Tauern National Park, Austria (© Michaela Walch/Alamy)
-
-![](images/2023-02/20230202_GroundhogThree_1920x1080.jpg)
 
 
 
