@@ -1,4 +1,4 @@
-#### 20230209 下羚羊峡谷，亚利桑那州，美国 (© AZCat/Getty Images)
+#### 20230209 Lower Antelope Canyon near Page, Arizona (© AZCat/Getty Images)
 
 ![](20230209_LowerAntelopeAZ_1920x1080.jpg)
 
