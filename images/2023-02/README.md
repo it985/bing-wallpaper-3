@@ -1,3 +1,7 @@
+#### 20230211 死亡谷扎布里斯基角上空的银河，美国加利福尼亚州 (© Matt Anderson Photography/Getty Images)
+
+![](20230211_DarkSkiesDV_1920x1080.jpg)
+
 #### 20230210 Ancient theater of Epidaurus in Argolis province, Greece (© George Pachantouris/Getty Images)
 
 ![](20230210_EpidaurusGreece_1920x1080.jpg)

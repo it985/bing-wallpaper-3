@@ -1,3 +1,7 @@
+#### 20230211 死亡谷扎布里斯基角上空的银河，美国加利福尼亚州 (© Matt Anderson Photography/Getty Images)
+
+![](images/2023-02/20230211_DarkSkiesDV_1920x1080.jpg)
+
 #### 20230210 Ancient theater of Epidaurus in Argolis province, Greece (© George Pachantouris/Getty Images)
 
 ![](images/2023-02/20230210_EpidaurusGreece_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230203 枡いっぱいの節分の福豆 (© Nishihama/Shutterstock)
 
 ![](images/2023-02/20230203_Setsubun_1920x1080.jpg)
-
-#### 20230203 Château Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)
-
-![](images/2023-02/20230203_QuebecFrontenac_1920x1080.jpg)
 
 
 
