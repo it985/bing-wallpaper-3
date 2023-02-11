@@ -1,3 +1,7 @@
+#### 20230212 一对蓝脚鲣鸟，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)
+
+![](20230212_BoobyDarwinDay_1920x1080.jpg)
+
 #### 20230211 Temple chinois Fête du Citron de 2015, Menton, Cote d'Azur, France (© Peter Seyfferth/imageBROKER/Shutterstock)
 
 ![](20230211_MentonLemons_1920x1080.jpg)
