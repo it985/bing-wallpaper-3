@@ -1,3 +1,7 @@
+#### 20230211 Temple chinois Fête du Citron de 2015, Menton, Cote d'Azur, France (© Peter Seyfferth/imageBROKER/Shutterstock)
+
+![](20230211_MentonLemons_1920x1080.jpg)
+
 #### 20230211 死亡谷扎布里斯基角上空的银河，美国加利福尼亚州 (© Matt Anderson Photography/Getty Images)
 
 ![](20230211_DarkSkiesDV_1920x1080.jpg)
