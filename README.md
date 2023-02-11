@@ -2,7 +2,7 @@
 
 ![](images/2023-02/20230211_MentonLemons_1920x1080.jpg)
 
-#### 20230211 死亡谷扎布里斯基角上空的银河，美国加利福尼亚州 (© Matt Anderson Photography/Getty Images)
+#### 20230211 The Milky Way over Zabriskie Point, Death Valley, California (© Matt Anderson Photography/Getty Images)
 
 ![](images/2023-02/20230211_DarkSkiesDV_1920x1080.jpg)
 
