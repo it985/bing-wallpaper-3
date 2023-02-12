@@ -1,3 +1,7 @@
+#### 20230213 阿卡切斯瞭望台，月亮谷，智利 (© Ignacio Palacios/Getty Images)
+
+![](images/2023-02/20230213_MoonValley_1920x1080.jpg)
+
 #### 20230212 Blue-footed booby, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](images/2023-02/20230212_BoobyDarwinDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230204 Village of Labro, Rieti Province, Italy (© Marco Ilari/Shutterstock)
 
 ![](images/2023-02/20230204_MedievalLabro_1920x1080.jpg)
-
-#### 20230204 永福樱花园，福建省龙岩市, 中国 (© SEN LI/Getty Images)
-
-![](images/2023-02/20230204_Lichun_1920x1080.jpg)
 
 
 
