@@ -1,4 +1,4 @@
-#### 20230212 一对蓝脚鲣鸟，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)
+#### 20230212 Blue-footed booby, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](images/2023-02/20230212_BoobyDarwinDay_1920x1080.jpg)
 
