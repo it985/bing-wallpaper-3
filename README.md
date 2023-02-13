@@ -1,4 +1,4 @@
-#### 20230213 阿卡切斯瞭望台，月亮谷，智利 (© Ignacio Palacios/Getty Images)
+#### 20230213 Achaches lookout, El Valle de la Luna, Chile (© Ignacio Palacios/Getty Images)
 
 ![](images/2023-02/20230213_MoonValley_1920x1080.jpg)
 
