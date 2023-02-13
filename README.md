@@ -1,3 +1,7 @@
+#### 20230214 日本北海道小樽雪灯之路的冰屋 (© T Photography/Shutterstock)
+
+![](images/2023-02/20230214_OtaruIgloo_1920x1080.jpg)
+
 #### 20230213 Achaches lookout, El Valle de la Luna, Chile (© Ignacio Palacios/Getty Images)
 
 ![](images/2023-02/20230213_MoonValley_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230204 初春の梅に飛来したメジロ (© tahirsphotography/Shutterstock)
 
 ![](images/2023-02/20230204_Risshun_1920x1080.jpg)
-
-#### 20230204 Village of Labro, Rieti Province, Italy (© Marco Ilari/Shutterstock)
-
-![](images/2023-02/20230204_MedievalLabro_1920x1080.jpg)
 
 
 
