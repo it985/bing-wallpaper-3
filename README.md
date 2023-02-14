@@ -1,3 +1,7 @@
+#### 20230215 河马妈妈和宝宝，乔贝国家公园，博茨瓦纳 (© jacobeukman/Getty Images)
+
+![](images/2023-02/20230215_HippoDayChobe_1920x1080.jpg)
+
 #### 20230214 Igloo at Otaru Snow Light Path Festival, Hokkaido, Japan (© T Photography/Shutterstock)
 
 ![](images/2023-02/20230214_OtaruIgloo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230204 Rosa Parks sits in the front of a bus in Montgomery, Alabama, Dec 21, 1956 (© Bettmann Archive/Getty Images)
 
 ![](images/2023-02/20230204_RosaParksBus_1920x1080.jpg)
-
-#### 20230204 初春の梅に飛来したメジロ (© tahirsphotography/Shutterstock)
-
-![](images/2023-02/20230204_Risshun_1920x1080.jpg)
 
 
 

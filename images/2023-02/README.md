@@ -1,3 +1,7 @@
+#### 20230215 河马妈妈和宝宝，乔贝国家公园，博茨瓦纳 (© jacobeukman/Getty Images)
+
+![](20230215_HippoDayChobe_1920x1080.jpg)
+
 #### 20230214 Igloo at Otaru Snow Light Path Festival, Hokkaido, Japan (© T Photography/Shutterstock)
 
 ![](20230214_OtaruIgloo_1920x1080.jpg)
