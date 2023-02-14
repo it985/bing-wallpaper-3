@@ -1,4 +1,4 @@
-#### 20230214 日本北海道小樽雪灯之路的冰屋 (© T Photography/Shutterstock)
+#### 20230214 Igloo at Otaru Snow Light Path Festival, Hokkaido, Japan (© T Photography/Shutterstock)
 
 ![](20230214_OtaruIgloo_1920x1080.jpg)
 
