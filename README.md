@@ -1,3 +1,7 @@
+#### 20230216 “火流”马尾瀑布，约塞米蒂国家公园，美国加利福尼亚州 (© Jeff Lewis/Tandem Stills + Motion)
+
+![](images/2023-02/20230216_FireFallYosemite_1920x1080.jpg)
+
 #### 20230215 Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)
 
 ![](images/2023-02/20230215_HippoDayChobe_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230205 Monarch butterflies at Pismo Beach, California (© Mimi Ditchie/Getty Images)
 
 ![](images/2023-02/20230205_MonarchPismo_1920x1080.jpg)
-
-#### 20230204 Rosa Parks sits in the front of a bus in Montgomery, Alabama, Dec 21, 1956 (© Bettmann Archive/Getty Images)
-
-![](images/2023-02/20230204_RosaParksBus_1920x1080.jpg)
 
 
 
