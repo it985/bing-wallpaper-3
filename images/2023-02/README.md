@@ -2,6 +2,10 @@
 
 ![](20230216_FireFallYosemite_1920x1080.jpg)
 
+#### 20230216 Industriekletterer besteigen den Berlinale-Bären im Kino Zoo-Palast, Berlin (© Britta Pedersen/dpa/Alamy Live News)
+
+![](20230216_BerlinaleEroeffnung_1920x1080.jpg)
+
 #### 20230215 Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)
 
 ![](20230215_HippoDayChobe_1920x1080.jpg)
