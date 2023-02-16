@@ -1,3 +1,7 @@
+#### 20230217 栖息在红袋鼠爪枝干上的艾氏煌蜂鸟 (© GypsyPictureShow/Shutterstock)
+
+![](20230217_BirdcountAllen_1920x1080.jpg)
+
 #### 20230216 'Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](20230216_FireFallYosemite_1920x1080.jpg)

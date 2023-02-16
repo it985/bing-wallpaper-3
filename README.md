@@ -1,3 +1,7 @@
+#### 20230217 栖息在红袋鼠爪枝干上的艾氏煌蜂鸟 (© GypsyPictureShow/Shutterstock)
+
+![](images/2023-02/20230217_BirdcountAllen_1920x1080.jpg)
+
 #### 20230216 'Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](images/2023-02/20230216_FireFallYosemite_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230206 Fiordland National Park in South Island, New Zealand (© WitR/Adobe Stock)
 
 ![](images/2023-02/20230206_WaitangiFjordlandNP_1920x1080.jpg)
-
-#### 20230205 毛茸茸又可爱的山兔 (© Ben Hall/Minden Pictures)
-
-![](images/2023-02/20230205_YearRabbit_1920x1080.jpg)
 
 
 
