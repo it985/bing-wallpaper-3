@@ -1,4 +1,4 @@
-#### 20230216 “火流”马尾瀑布，约塞米蒂国家公园，美国加利福尼亚州 (© Jeff Lewis/Tandem Stills + Motion)
+#### 20230216 'Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](20230216_FireFallYosemite_1920x1080.jpg)
 
