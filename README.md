@@ -1,3 +1,7 @@
+#### 20230217 Les toits de Paris sous la neige (© Brasil2/iStock/Getty Images Plus)
+
+![](images/2023-02/20230217_SnoweyParis_1920x1080.jpg)
+
 #### 20230217 栖息在红袋鼠爪枝干上的艾氏煌蜂鸟 (© GypsyPictureShow/Shutterstock)
 
 ![](images/2023-02/20230217_BirdcountAllen_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230207 Ski hors-piste, Courchevel, France (© Andrew Lloyd/Alamy Stock Photo)
 
 ![](images/2023-02/20230207_SkiCourch_1920x1080.jpg)
-
-#### 20230206 Fiordland National Park in South Island, New Zealand (© WitR/Adobe Stock)
-
-![](images/2023-02/20230206_WaitangiFjordlandNP_1920x1080.jpg)
 
 
 

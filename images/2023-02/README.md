@@ -1,3 +1,7 @@
+#### 20230217 Les toits de Paris sous la neige (© Brasil2/iStock/Getty Images Plus)
+
+![](20230217_SnoweyParis_1920x1080.jpg)
+
 #### 20230217 栖息在红袋鼠爪枝干上的艾氏煌蜂鸟 (© GypsyPictureShow/Shutterstock)
 
 ![](20230217_BirdcountAllen_1920x1080.jpg)
