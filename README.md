@@ -1,3 +1,7 @@
+#### 20230218 埃本冰洞，密歇根上半岛，美国 (© Dean Pennala/Shutterstock)
+
+![](images/2023-02/20230218_EbenIceCave_1920x1080.jpg)
+
 #### 20230217 Les toits de Paris sous la neige (© Brasil2/iStock/Getty Images Plus)
 
 ![](images/2023-02/20230217_SnoweyParis_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230208 艾琳多南堡，苏格兰高地 (© VisualCommunications/Getty Images)
 
 ![](images/2023-02/20230208_EileanDonanDawn_1920x1080.jpg)
-
-#### 20230207 Ski hors-piste, Courchevel, France (© Andrew Lloyd/Alamy Stock Photo)
-
-![](images/2023-02/20230207_SkiCourch_1920x1080.jpg)
 
 
 

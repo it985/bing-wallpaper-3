@@ -1,3 +1,7 @@
+#### 20230218 埃本冰洞，密歇根上半岛，美国 (© Dean Pennala/Shutterstock)
+
+![](20230218_EbenIceCave_1920x1080.jpg)
+
 #### 20230217 Les toits de Paris sous la neige (© Brasil2/iStock/Getty Images Plus)
 
 ![](20230217_SnoweyParis_1920x1080.jpg)
