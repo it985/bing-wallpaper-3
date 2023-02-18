@@ -1,4 +1,4 @@
-#### 20230218 埃本冰洞，密歇根上半岛，美国 (© Dean Pennala/Shutterstock)
+#### 20230218 Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)
 
 ![](20230218_EbenIceCave_1920x1080.jpg)
 
