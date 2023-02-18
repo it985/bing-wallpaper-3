@@ -1,3 +1,7 @@
+#### 20230219 毛伊岛附近的座头鲸，美国夏威夷 (© Flip Nicklin/Minden Pictures)
+
+![](images/2023-02/20230219_MauiWhale_1920x1080.jpg)
+
 #### 20230218 Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)
 
 ![](images/2023-02/20230218_EbenIceCave_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230208 Ureddplassen, a rest area on the Helgelandskysten scenic route, Norway (© Eyesite/Alamy)
 
 ![](images/2023-02/20230208_NorwayRestArea_1920x1080.jpg)
-
-#### 20230208 艾琳多南堡，苏格兰高地 (© VisualCommunications/Getty Images)
-
-![](images/2023-02/20230208_EileanDonanDawn_1920x1080.jpg)
 
 
 
