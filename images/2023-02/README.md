@@ -1,3 +1,11 @@
+#### 20230220 カナダヅル, 米国 ニューメキシコ州 (© Jay Goodrich/Tandem Stills + Motion)
+
+![](20230220_SandhillSleeping_1920x1080.jpg)
+
+#### 20230220 Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)
+
+![](20230220_Itaimbezinho_1920x1080.jpg)
+
 #### 20230219 Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)
 
 ![](20230219_MauiWhale_1920x1080.jpg)

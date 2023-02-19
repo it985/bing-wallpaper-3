@@ -1,3 +1,11 @@
+#### 20230220 カナダヅル, 米国 ニューメキシコ州 (© Jay Goodrich/Tandem Stills + Motion)
+
+![](images/2023-02/20230220_SandhillSleeping_1920x1080.jpg)
+
+#### 20230220 Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)
+
+![](images/2023-02/20230220_Itaimbezinho_1920x1080.jpg)
+
 #### 20230219 Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)
 
 ![](images/2023-02/20230219_MauiWhale_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230210 Ancient theater of Epidaurus in Argolis province, Greece (© George Pachantouris/Getty Images)
 
 ![](images/2023-02/20230210_EpidaurusGreece_1920x1080.jpg)
-
-#### 20230209 Lower Antelope Canyon near Page, Arizona (© AZCat/Getty Images)
-
-![](images/2023-02/20230209_LowerAntelopeAZ_1920x1080.jpg)
-
-#### 20230208 Ureddplassen, a rest area on the Helgelandskysten scenic route, Norway (© Eyesite/Alamy)
-
-![](images/2023-02/20230208_NorwayRestArea_1920x1080.jpg)
 
 
 
