@@ -2,9 +2,17 @@
 
 ![](images/2023-02/20230220_SandhillSleeping_1920x1080.jpg)
 
+#### 20230220 Washington Monument and Capitol Building on the National Mall, Washington, DC (© AevanStock/Shutterstock)
+
+![](images/2023-02/20230220_PresDayDC_1920x1080.jpg)
+
 #### 20230220 Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)
 
 ![](images/2023-02/20230220_Itaimbezinho_1920x1080.jpg)
+
+#### 20230220 Guggenheim Museum Bilbao, Bilbao, Spain (© Jeremy Horner/Getty Images)
+
+![](images/2023-02/20230220_GB_1920x1080.jpg)
 
 #### 20230219 Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)
 
@@ -49,14 +57,6 @@
 #### 20230211 Temple chinois Fête du Citron de 2015, Menton, Cote d'Azur, France (© Peter Seyfferth/imageBROKER/Shutterstock)
 
 ![](images/2023-02/20230211_MentonLemons_1920x1080.jpg)
-
-#### 20230211 The Milky Way over Zabriskie Point, Death Valley, California (© Matt Anderson Photography/Getty Images)
-
-![](images/2023-02/20230211_DarkSkiesDV_1920x1080.jpg)
-
-#### 20230210 Ancient theater of Epidaurus in Argolis province, Greece (© George Pachantouris/Getty Images)
-
-![](images/2023-02/20230210_EpidaurusGreece_1920x1080.jpg)
 
 
 

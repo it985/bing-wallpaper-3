@@ -2,9 +2,17 @@
 
 ![](20230220_SandhillSleeping_1920x1080.jpg)
 
+#### 20230220 Washington Monument and Capitol Building on the National Mall, Washington, DC (© AevanStock/Shutterstock)
+
+![](20230220_PresDayDC_1920x1080.jpg)
+
 #### 20230220 Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)
 
 ![](20230220_Itaimbezinho_1920x1080.jpg)
+
+#### 20230220 Guggenheim Museum Bilbao, Bilbao, Spain (© Jeremy Horner/Getty Images)
+
+![](20230220_GB_1920x1080.jpg)
 
 #### 20230219 Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)
 
