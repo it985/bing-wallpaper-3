@@ -1,3 +1,7 @@
+#### 20230221 新奥尔良法语区，路易斯安那州 (© f11photo/Getty Images)
+
+![](images/2023-02/20230221_MardiGrasNOLA_1920x1080.jpg)
+
 #### 20230220 カナダヅル, 米国 ニューメキシコ州 (© Jay Goodrich/Tandem Stills + Motion)
 
 ![](images/2023-02/20230220_SandhillSleeping_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230212 Blue-footed booby, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](images/2023-02/20230212_BoobyDarwinDay_1920x1080.jpg)
-
-#### 20230211 Temple chinois Fête du Citron de 2015, Menton, Cote d'Azur, France (© Peter Seyfferth/imageBROKER/Shutterstock)
-
-![](images/2023-02/20230211_MentonLemons_1920x1080.jpg)
 
 
 

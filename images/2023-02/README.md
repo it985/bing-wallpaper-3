@@ -1,3 +1,7 @@
+#### 20230221 新奥尔良法语区，路易斯安那州 (© f11photo/Getty Images)
+
+![](20230221_MardiGrasNOLA_1920x1080.jpg)
+
 #### 20230220 カナダヅル, 米国 ニューメキシコ州 (© Jay Goodrich/Tandem Stills + Motion)
 
 ![](20230220_SandhillSleeping_1920x1080.jpg)
