@@ -1,4 +1,4 @@
-#### 20230221 新奥尔良法语区，路易斯安那州 (© f11photo/Getty Images)
+#### 20230221 French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)
 
 ![](20230221_MardiGrasNOLA_1920x1080.jpg)
 
