@@ -1,3 +1,11 @@
+#### 20230222 パリ, フランス (© somchaij/Shutterstock)
+
+![](20230222_ParisWinter_1920x1080.jpg)
+
+#### 20230222 菲希特尔山脉上的和平钟，萨克森州，德国 (© Jan Drahokoupil/Getty Images)
+
+![](20230222_FriedensglockeFichtelberg_1920x1080.jpg)
+
 #### 20230221 French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)
 
 ![](20230221_MardiGrasNOLA_1920x1080.jpg)

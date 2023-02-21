@@ -1,3 +1,11 @@
+#### 20230222 パリ, フランス (© somchaij/Shutterstock)
+
+![](images/2023-02/20230222_ParisWinter_1920x1080.jpg)
+
+#### 20230222 菲希特尔山脉上的和平钟，萨克森州，德国 (© Jan Drahokoupil/Getty Images)
+
+![](images/2023-02/20230222_FriedensglockeFichtelberg_1920x1080.jpg)
+
 #### 20230221 French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)
 
 ![](images/2023-02/20230221_MardiGrasNOLA_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230214 Igloo at Otaru Snow Light Path Festival, Hokkaido, Japan (© T Photography/Shutterstock)
 
 ![](images/2023-02/20230214_OtaruIgloo_1920x1080.jpg)
-
-#### 20230213 Achaches lookout, El Valle de la Luna, Chile (© Ignacio Palacios/Getty Images)
-
-![](images/2023-02/20230213_MoonValley_1920x1080.jpg)
-
-#### 20230212 Blue-footed booby, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
-
-![](images/2023-02/20230212_BoobyDarwinDay_1920x1080.jpg)
 
 
 
