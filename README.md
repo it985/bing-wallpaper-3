@@ -34,6 +34,10 @@
 
 ![](images/2023-02/20230220_GB_1920x1080.jpg)
 
+#### 20230220 Voie lactée au-dessus de Zabriskie Point, Vallée de la Mort, Californie (© Matt Anderson Photography/Getty Images)
+
+![](images/2023-02/20230220_DarkSkiesDV_1920x1080.jpg)
+
 #### 20230219 Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)
 
 ![](images/2023-02/20230219_MauiWhale_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230216 'Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](images/2023-02/20230216_FireFallYosemite_1920x1080.jpg)
-
-#### 20230216 Industriekletterer besteigen den Berlinale-Bären im Kino Zoo-Palast, Berlin (© Britta Pedersen/dpa/Alamy Live News)
-
-![](images/2023-02/20230216_BerlinaleEroeffnung_1920x1080.jpg)
 
 
 

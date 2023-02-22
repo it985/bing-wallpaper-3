@@ -34,6 +34,10 @@
 
 ![](20230220_GB_1920x1080.jpg)
 
+#### 20230220 Voie lactée au-dessus de Zabriskie Point, Vallée de la Mort, Californie (© Matt Anderson Photography/Getty Images)
+
+![](20230220_DarkSkiesDV_1920x1080.jpg)
+
 #### 20230219 Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)
 
 ![](20230219_MauiWhale_1920x1080.jpg)
