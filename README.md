@@ -6,6 +6,14 @@
 
 ![](images/2023-02/20230222_FriedensglockeFichtelberg_1920x1080.jpg)
 
+#### 20230222 Freedom Sunday rally, Soldier Field, Chicago, Illinois, July 10, 1966 (© Bettmann/Getty Images)
+
+![](images/2023-02/20230222_FreedomRallyChi_1920x1080.jpg)
+
+#### 20230222 Foster Covered Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)
+
+![](images/2023-02/20230222_FosterCoveredBridge_1920x1080.jpg)
+
 #### 20230221 French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)
 
 ![](images/2023-02/20230221_MardiGrasNOLA_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230216 Industriekletterer besteigen den Berlinale-Bären im Kino Zoo-Palast, Berlin (© Britta Pedersen/dpa/Alamy Live News)
 
 ![](images/2023-02/20230216_BerlinaleEroeffnung_1920x1080.jpg)
-
-#### 20230215 Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)
-
-![](images/2023-02/20230215_HippoDayChobe_1920x1080.jpg)
-
-#### 20230214 Igloo at Otaru Snow Light Path Festival, Hokkaido, Japan (© T Photography/Shutterstock)
-
-![](images/2023-02/20230214_OtaruIgloo_1920x1080.jpg)
 
 
 

@@ -6,6 +6,14 @@
 
 ![](20230222_FriedensglockeFichtelberg_1920x1080.jpg)
 
+#### 20230222 Freedom Sunday rally, Soldier Field, Chicago, Illinois, July 10, 1966 (© Bettmann/Getty Images)
+
+![](20230222_FreedomRallyChi_1920x1080.jpg)
+
+#### 20230222 Foster Covered Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)
+
+![](20230222_FosterCoveredBridge_1920x1080.jpg)
+
 #### 20230221 French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)
 
 ![](20230221_MardiGrasNOLA_1920x1080.jpg)
