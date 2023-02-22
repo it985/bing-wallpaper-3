@@ -1,3 +1,11 @@
+#### 20230223 水面に映る紅富士, 山梨 (© Nyoman Sundra/Getty Images)
+
+![](20230223_MtFuji_1920x1080.jpg)
+
+#### 20230223 克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士 (© Matthew Williams Ellis/Plainpicture)
+
+![](20230223_BabblingBrook_1920x1080.jpg)
+
 #### 20230222 パリ, フランス (© somchaij/Shutterstock)
 
 ![](20230222_ParisWinter_1920x1080.jpg)

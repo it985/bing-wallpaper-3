@@ -1,3 +1,11 @@
+#### 20230223 水面に映る紅富士, 山梨 (© Nyoman Sundra/Getty Images)
+
+![](images/2023-02/20230223_MtFuji_1920x1080.jpg)
+
+#### 20230223 克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士 (© Matthew Williams Ellis/Plainpicture)
+
+![](images/2023-02/20230223_BabblingBrook_1920x1080.jpg)
+
 #### 20230222 パリ, フランス (© somchaij/Shutterstock)
 
 ![](images/2023-02/20230222_ParisWinter_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230217 Les toits de Paris sous la neige (© Brasil2/iStock/Getty Images Plus)
 
 ![](images/2023-02/20230217_SnoweyParis_1920x1080.jpg)
-
-#### 20230217 Allen's hummingbird perched on a red kangaroo paw plant (© GypsyPictureShow/Shutterstock)
-
-![](images/2023-02/20230217_BirdcountAllen_1920x1080.jpg)
-
-#### 20230216 'Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)
-
-![](images/2023-02/20230216_FireFallYosemite_1920x1080.jpg)
 
 
 
