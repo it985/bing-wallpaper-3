@@ -1,3 +1,7 @@
+#### 20230224 里士满公园的鸳鸯，伦敦，英国 (© Oscar Dewhurst/Minden Pictures)
+
+![](images/2023-02/20230224_RichmondParkDuck_1920x1080.jpg)
+
 #### 20230223 水面に映る紅富士, 山梨 (© Nyoman Sundra/Getty Images)
 
 ![](images/2023-02/20230223_MtFuji_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230219 Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)
 
 ![](images/2023-02/20230219_MauiWhale_1920x1080.jpg)
-
-#### 20230218 Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)
-
-![](images/2023-02/20230218_EbenIceCave_1920x1080.jpg)
 
 
 

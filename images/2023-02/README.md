@@ -1,3 +1,7 @@
+#### 20230224 里士满公园的鸳鸯，伦敦，英国 (© Oscar Dewhurst/Minden Pictures)
+
+![](20230224_RichmondParkDuck_1920x1080.jpg)
+
 #### 20230223 水面に映る紅富士, 山梨 (© Nyoman Sundra/Getty Images)
 
 ![](20230223_MtFuji_1920x1080.jpg)
