@@ -2,6 +2,10 @@
 
 ![](20230223_MtFuji_1920x1080.jpg)
 
+#### 20230223 Paris, France (© somchaij/Shutterstock)
+
+![](20230223_BlueWinterParis_1920x1080.jpg)
+
 #### 20230223 克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士 (© Matthew Williams Ellis/Plainpicture)
 
 ![](20230223_BabblingBrook_1920x1080.jpg)

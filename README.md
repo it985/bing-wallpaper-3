@@ -2,6 +2,10 @@
 
 ![](images/2023-02/20230223_MtFuji_1920x1080.jpg)
 
+#### 20230223 Paris, France (© somchaij/Shutterstock)
+
+![](images/2023-02/20230223_BlueWinterParis_1920x1080.jpg)
+
 #### 20230223 克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士 (© Matthew Williams Ellis/Plainpicture)
 
 ![](images/2023-02/20230223_BabblingBrook_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230218 Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)
 
 ![](images/2023-02/20230218_EbenIceCave_1920x1080.jpg)
-
-#### 20230217 Les toits de Paris sous la neige (© Brasil2/iStock/Getty Images Plus)
-
-![](images/2023-02/20230217_SnoweyParis_1920x1080.jpg)
 
 
 
