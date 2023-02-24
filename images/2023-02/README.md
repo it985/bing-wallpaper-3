@@ -1,4 +1,4 @@
-#### 20230224 里士满公园的鸳鸯，伦敦，英国 (© Oscar Dewhurst/Minden Pictures)
+#### 20230224 Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)
 
 ![](20230224_RichmondParkDuck_1920x1080.jpg)
 
