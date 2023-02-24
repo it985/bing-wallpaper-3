@@ -1,3 +1,7 @@
+#### 20230225 布莱斯峡谷国家公园的石林，犹他州，美国 (© Piriya Photography/Getty Images)
+
+![](20230225_BryceAnniv_1920x1080.jpg)
+
 #### 20230224 Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)
 
 ![](20230224_RichmondParkDuck_1920x1080.jpg)

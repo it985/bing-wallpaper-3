@@ -1,3 +1,7 @@
+#### 20230225 布莱斯峡谷国家公园的石林，犹他州，美国 (© Piriya Photography/Getty Images)
+
+![](images/2023-02/20230225_BryceAnniv_1920x1080.jpg)
+
 #### 20230224 Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)
 
 ![](images/2023-02/20230224_RichmondParkDuck_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230220 Voie lactée au-dessus de Zabriskie Point, Vallée de la Mort, Californie (© Matt Anderson Photography/Getty Images)
 
 ![](images/2023-02/20230220_DarkSkiesDV_1920x1080.jpg)
-
-#### 20230219 Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)
-
-![](images/2023-02/20230219_MauiWhale_1920x1080.jpg)
 
 
 
