@@ -1,3 +1,7 @@
+#### 20230226 亚马孙雨林的树冠探险，秘鲁 (© Pere Rubi/Getty Images)
+
+![](20230226_CanopyPeru_1920x1080.jpg)
+
 #### 20230225 Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)
 
 ![](20230225_BryceAnniv_1920x1080.jpg)

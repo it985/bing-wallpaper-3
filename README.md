@@ -1,3 +1,7 @@
+#### 20230226 亚马孙雨林的树冠探险，秘鲁 (© Pere Rubi/Getty Images)
+
+![](images/2023-02/20230226_CanopyPeru_1920x1080.jpg)
+
 #### 20230225 Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)
 
 ![](images/2023-02/20230225_BryceAnniv_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230220 Guggenheim Museum Bilbao, Bilbao, Spain (© Jeremy Horner/Getty Images)
 
 ![](images/2023-02/20230220_GB_1920x1080.jpg)
-
-#### 20230220 Voie lactée au-dessus de Zabriskie Point, Vallée de la Mort, Californie (© Matt Anderson Photography/Getty Images)
-
-![](images/2023-02/20230220_DarkSkiesDV_1920x1080.jpg)
 
 
 
