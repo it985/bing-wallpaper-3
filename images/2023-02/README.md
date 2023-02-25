@@ -1,4 +1,4 @@
-#### 20230225 布莱斯峡谷国家公园的石林，犹他州，美国 (© Piriya Photography/Getty Images)
+#### 20230225 Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)
 
 ![](20230225_BryceAnniv_1920x1080.jpg)
 
