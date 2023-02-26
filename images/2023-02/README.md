@@ -1,3 +1,7 @@
+#### 20230226 Reproductions fresques de la Grotte de Chauvet, Ardèche, France (© Abaca Press/Alamy Stock Photo)
+
+![](20230226_ChauvetCave_1920x1080.jpg)
+
 #### 20230226 亚马孙雨林的树冠探险，秘鲁 (© Pere Rubi/Getty Images)
 
 ![](20230226_CanopyPeru_1920x1080.jpg)

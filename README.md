@@ -1,3 +1,7 @@
+#### 20230226 Reproductions fresques de la Grotte de Chauvet, Ardèche, France (© Abaca Press/Alamy Stock Photo)
+
+![](images/2023-02/20230226_ChauvetCave_1920x1080.jpg)
+
 #### 20230226 亚马孙雨林的树冠探险，秘鲁 (© Pere Rubi/Getty Images)
 
 ![](images/2023-02/20230226_CanopyPeru_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230220 Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)
 
 ![](images/2023-02/20230220_Itaimbezinho_1920x1080.jpg)
-
-#### 20230220 Guggenheim Museum Bilbao, Bilbao, Spain (© Jeremy Horner/Getty Images)
-
-![](images/2023-02/20230220_GB_1920x1080.jpg)
 
 
 
