@@ -1,3 +1,7 @@
+#### 20230227 北极熊在加拿大沉睡 (© David Pike/Minden Pictures)
+
+![](images/2023-02/20230227_PolarBearFrost_1920x1080.jpg)
+
 #### 20230226 Reproductions fresques de la Grotte de Chauvet, Ardèche, France (© Abaca Press/Alamy Stock Photo)
 
 ![](images/2023-02/20230226_ChauvetCave_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230220 Washington Monument and Capitol Building on the National Mall, Washington, DC (© AevanStock/Shutterstock)
 
 ![](images/2023-02/20230220_PresDayDC_1920x1080.jpg)
-
-#### 20230220 Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)
-
-![](images/2023-02/20230220_Itaimbezinho_1920x1080.jpg)
 
 
 
