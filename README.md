@@ -1,3 +1,7 @@
+#### 20230228 阿特拉尼，阿马尔菲海岸，意大利 (© Amazing Aerial/Shutterstock)
+
+![](images/2023-02/20230228_AtraniAmalfi_1920x1080.jpg)
+
 #### 20230227 Polar bears asleep in Canada (© David Pike/Minden Pictures)
 
 ![](images/2023-02/20230227_PolarBearFrost_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230220 カナダヅル, 米国 ニューメキシコ州 (© Jay Goodrich/Tandem Stills + Motion)
 
 ![](images/2023-02/20230220_SandhillSleeping_1920x1080.jpg)
-
-#### 20230220 Washington Monument and Capitol Building on the National Mall, Washington, DC (© AevanStock/Shutterstock)
-
-![](images/2023-02/20230220_PresDayDC_1920x1080.jpg)
 
 
 
