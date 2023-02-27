@@ -1,4 +1,4 @@
-#### 20230227 北极熊在加拿大沉睡 (© David Pike/Minden Pictures)
+#### 20230227 Polar bears asleep in Canada (© David Pike/Minden Pictures)
 
 ![](20230227_PolarBearFrost_1920x1080.jpg)
 
