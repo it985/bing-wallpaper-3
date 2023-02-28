@@ -1,4 +1,4 @@
-#### 20230228 阿特拉尼，阿马尔菲海岸，意大利 (© Amazing Aerial/Shutterstock)
+#### 20230228 Atrani, Amalfi Coast, Italy (© Amazing Aerial/Shutterstock)
 
 ![](20230228_AtraniAmalfi_1920x1080.jpg)
 
