@@ -1,4 +1,12 @@
+#### 20230301 Portrait Monument of women's suffrage pioneers, Capitol Rotunda, Washington, DC (© Andrew Harrer/Bloomberg/Getty Images)
+
+![](20230301_SuffrageMonumentDC_1920x1080.jpg)
+
 #### 20230301 吕贝克的霍尔斯滕门，德国 (© Harald Nachtmann/Getty Images)
 
 ![](20230301_LuebeckCityGate_1920x1080.jpg)
+
+#### 20230301 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
+
+![](20230301_BridalVeilFalls_1920x1080.jpg)
 
