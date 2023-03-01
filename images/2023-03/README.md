@@ -1,3 +1,7 @@
+#### 20230302 内格拉廷湖，格拉纳达，西班牙 (© Andres Martinez Olmedo/Getty Images)
+
+![](20230302_NegratinSpain_1920x1080.jpg)
+
 #### 20230301 Portrait Monument of women's suffrage pioneers, Capitol Rotunda, Washington, DC (© Andrew Harrer/Bloomberg/Getty Images)
 
 ![](20230301_SuffrageMonumentDC_1920x1080.jpg)

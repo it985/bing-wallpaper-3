@@ -1,3 +1,7 @@
+#### 20230302 内格拉廷湖，格拉纳达，西班牙 (© Andres Martinez Olmedo/Getty Images)
+
+![](images/2023-03/20230302_NegratinSpain_1920x1080.jpg)
+
 #### 20230301 Portrait Monument of women's suffrage pioneers, Capitol Rotunda, Washington, DC (© Andrew Harrer/Bloomberg/Getty Images)
 
 ![](images/2023-03/20230301_SuffrageMonumentDC_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230222 菲希特尔山脉上的和平钟，萨克森州，德国 (© Jan Drahokoupil/Getty Images)
 
 ![](images/2023-02/20230222_FriedensglockeFichtelberg_1920x1080.jpg)
-
-#### 20230222 Freedom Sunday rally, Soldier Field, Chicago, Illinois, July 10, 1966 (© Bettmann/Getty Images)
-
-![](images/2023-02/20230222_FreedomRallyChi_1920x1080.jpg)
 
 
 
