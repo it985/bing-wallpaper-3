@@ -1,4 +1,4 @@
-#### 20230302 内格拉廷湖，格拉纳达，西班牙 (© Andres Martinez Olmedo/Getty Images)
+#### 20230302 Negratín Reservoir, Granada, Spain (© Andres Martinez Olmedo/Getty Images)
 
 ![](20230302_NegratinSpain_1920x1080.jpg)
 
