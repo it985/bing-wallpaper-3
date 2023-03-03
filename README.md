@@ -1,4 +1,4 @@
-#### 20230303 斯皮尔德拉的虎鲸，挪威 (© Alex Mustard/Minden Pictures)
+#### 20230303 Killer whales in the waters off Spildra, Norway (© Alex Mustard/Minden Pictures)
 
 ![](images/2023-03/20230303_OrcaNorway_1920x1080.jpg)
 
