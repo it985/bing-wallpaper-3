@@ -1,3 +1,7 @@
+#### 20230304 通往皮库山的道路，葡萄牙 (© Marco Bottigelli/Getty Images)
+
+![](20230304_PicoVolcano_1920x1080.jpg)
+
 #### 20230303 Killer whales in the waters off Spildra, Norway (© Alex Mustard/Minden Pictures)
 
 ![](20230303_OrcaNorway_1920x1080.jpg)
