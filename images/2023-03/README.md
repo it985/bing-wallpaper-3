@@ -1,4 +1,4 @@
-#### 20230304 通往皮库山的道路，葡萄牙 (© Marco Bottigelli/Getty Images)
+#### 20230304 Road to Mount Pico, Portugal (© Marco Bottigelli/Getty Images)
 
 ![](20230304_PicoVolcano_1920x1080.jpg)
 
