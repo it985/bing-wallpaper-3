@@ -38,6 +38,10 @@
 
 ![](images/2023-03/20230301_LuebeckCityGate_1920x1080.jpg)
 
+#### 20230301 フィヒテルベルク, ドイツ (© Jan Drahokoupil/Getty Images)
+
+![](images/2023-03/20230301_FriedensglockeFichtelberg_1920x1080.jpg)
+
 #### 20230301 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
 
 ![](images/2023-03/20230301_BridalVeilFalls_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230226 Reproductions fresques de la Grotte de Chauvet, Ardèche, France (© Abaca Press/Alamy Stock Photo)
 
 ![](images/2023-02/20230226_ChauvetCave_1920x1080.jpg)
-
-#### 20230226 Suspension bridge in Tambopata National Reserve, Amazon Basin, Peru (© Pere Rubi/Getty Images)
-
-![](images/2023-02/20230226_CanopyPeru_1920x1080.jpg)
 
 
 

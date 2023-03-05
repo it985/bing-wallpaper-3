@@ -38,6 +38,10 @@
 
 ![](20230301_LuebeckCityGate_1920x1080.jpg)
 
+#### 20230301 フィヒテルベルク, ドイツ (© Jan Drahokoupil/Getty Images)
+
+![](20230301_FriedensglockeFichtelberg_1920x1080.jpg)
+
 #### 20230301 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
 
 ![](20230301_BridalVeilFalls_1920x1080.jpg)
