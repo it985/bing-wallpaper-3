@@ -6,6 +6,10 @@
 
 ![](images/2023-03/20230305_Waterleidingduinen_1920x1080.jpg)
 
+#### 20230305 Cherry trees in full bloom near the Imperial Palace with Tokyo Tower in the background, Tokyo, Japan (© Jon Arnold/Danita Delimont)
+
+![](images/2023-03/20230305_TokyoMoat_1920x1080.jpg)
+
 #### 20230305 袋鼠妈妈和宝宝 (© Belle Ciezak/Shutterstock)
 
 ![](images/2023-03/20230305_HuggingKanga_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230227 Polar bears asleep in Canada (© David Pike/Minden Pictures)
 
 ![](images/2023-02/20230227_PolarBearFrost_1920x1080.jpg)
-
-#### 20230226 Reproductions fresques de la Grotte de Chauvet, Ardèche, France (© Abaca Press/Alamy Stock Photo)
-
-![](images/2023-02/20230226_ChauvetCave_1920x1080.jpg)
 
 
 

@@ -6,6 +6,10 @@
 
 ![](20230305_Waterleidingduinen_1920x1080.jpg)
 
+#### 20230305 Cherry trees in full bloom near the Imperial Palace with Tokyo Tower in the background, Tokyo, Japan (© Jon Arnold/Danita Delimont)
+
+![](20230305_TokyoMoat_1920x1080.jpg)
+
 #### 20230305 袋鼠妈妈和宝宝 (© Belle Ciezak/Shutterstock)
 
 ![](20230305_HuggingKanga_1920x1080.jpg)
