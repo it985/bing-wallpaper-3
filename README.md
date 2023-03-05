@@ -1,3 +1,7 @@
+#### 20230306 站在自己领域的冰岛马，冰岛 (© Rodrigo Lourezini/Shutterstock)
+
+![](images/2023-03/20230306_IcelandHorses_1920x1080.jpg)
+
 #### 20230305 Luftaufnahme von terrassierten Reisfeldern, Yuanyang, China (© AlexGcs/Getty Images)
 
 ![](images/2023-03/20230305_YuanyangChina_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230228 Atrani, Amalfi Coast, Italy (© Amazing Aerial/Shutterstock)
 
 ![](images/2023-02/20230228_AtraniAmalfi_1920x1080.jpg)
-
-#### 20230227 Polar bears asleep in Canada (© David Pike/Minden Pictures)
-
-![](images/2023-02/20230227_PolarBearFrost_1920x1080.jpg)
 
 
 
