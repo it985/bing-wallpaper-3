@@ -1,3 +1,7 @@
+#### 20230307 Parktheater im Kurhaus Göggingen, Architekt Jean Keller, Bayern (© imageBROKER/Alamy Stock Photo)
+
+![](20230307_ParktheaterGoeggingen_1920x1080.jpg)
+
 #### 20230306 Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)
 
 ![](20230306_IcelandHorses_1920x1080.jpg)

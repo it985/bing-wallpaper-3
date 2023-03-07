@@ -1,3 +1,7 @@
+#### 20230307 Parktheater im Kurhaus Göggingen, Architekt Jean Keller, Bayern (© imageBROKER/Alamy Stock Photo)
+
+![](images/2023-03/20230307_ParktheaterGoeggingen_1920x1080.jpg)
+
 #### 20230306 Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)
 
 ![](images/2023-03/20230306_IcelandHorses_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230301 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
 
 ![](images/2023-03/20230301_BridalVeilFalls_1920x1080.jpg)
-
-#### 20230228 Atrani, Amalfi Coast, Italy (© Amazing Aerial/Shutterstock)
-
-![](images/2023-02/20230228_AtraniAmalfi_1920x1080.jpg)
 
 
 
