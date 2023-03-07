@@ -1,3 +1,11 @@
+#### 20230308 极光展示，怀特霍斯，育空地区，加拿大 (© John Hyde/plainpicture/Design Pics)
+
+![](20230308_WhitehorseAurora_1920x1080.jpg)
+
+#### 20230308 シベーレスの噴水とマドリード市庁舎, スペイン マドリード (© dpa picture alliance/Alamy)
+
+![](20230308_IntlWomensDayChange_1920x1080.jpg)
+
 #### 20230307 Cabins in Valley Forge National Historic Site, Pennsylvania (© Mark C. Morris/Shutterstock)
 
 ![](20230307_ValleyForge_1920x1080.jpg)
