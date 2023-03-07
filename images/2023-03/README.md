@@ -66,6 +66,10 @@
 
 ![](20230301_FriedensglockeFichtelberg_1920x1080.jpg)
 
+#### 20230301 Aventure dans la canopée péruvienne, réserve naturelle de Tambopata, Pérou (© Pere Rubi/Getty Images)
+
+![](20230301_CanopyPeru_1920x1080.jpg)
+
 #### 20230301 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
 
 ![](20230301_BridalVeilFalls_1920x1080.jpg)
