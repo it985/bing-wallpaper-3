@@ -1,3 +1,7 @@
+#### 20230307 Cabins in Valley Forge National Historic Site, Pennsylvania (© Mark C. Morris/Shutterstock)
+
+![](20230307_ValleyForge_1920x1080.jpg)
+
 #### 20230307 Parktheater im Kurhaus Göggingen, Architekt Jean Keller, Bayern (© imageBROKER/Alamy Stock Photo)
 
 ![](20230307_ParktheaterGoeggingen_1920x1080.jpg)
@@ -6,7 +10,7 @@
 
 ![](20230306_IcelandHorses_1920x1080.jpg)
 
-#### 20230305 Luftaufnahme von terrassierten Reisfeldern, Yuanyang, China (© AlexGcs/Getty Images)
+#### 20230305 Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)
 
 ![](20230305_YuanyangChina_1920x1080.jpg)
 

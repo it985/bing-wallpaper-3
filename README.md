@@ -1,3 +1,7 @@
+#### 20230307 Cabins in Valley Forge National Historic Site, Pennsylvania (© Mark C. Morris/Shutterstock)
+
+![](images/2023-03/20230307_ValleyForge_1920x1080.jpg)
+
 #### 20230307 Parktheater im Kurhaus Göggingen, Architekt Jean Keller, Bayern (© imageBROKER/Alamy Stock Photo)
 
 ![](images/2023-03/20230307_ParktheaterGoeggingen_1920x1080.jpg)
@@ -6,7 +10,7 @@
 
 ![](images/2023-03/20230306_IcelandHorses_1920x1080.jpg)
 
-#### 20230305 Luftaufnahme von terrassierten Reisfeldern, Yuanyang, China (© AlexGcs/Getty Images)
+#### 20230305 Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)
 
 ![](images/2023-03/20230305_YuanyangChina_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20230301 フィヒテルベルク, ドイツ (© Jan Drahokoupil/Getty Images)
 
 ![](images/2023-03/20230301_FriedensglockeFichtelberg_1920x1080.jpg)
-
-#### 20230301 Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
-
-![](images/2023-03/20230301_BridalVeilFalls_1920x1080.jpg)
 
 
 
