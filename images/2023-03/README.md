@@ -1,3 +1,7 @@
+#### 20230309 威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国 (© Beverley Van Praagh/Getty Images)
+
+![](20230309_WaimeaRainbow_1920x1080.jpg)
+
 #### 20230308 极光展示，怀特霍斯，育空地区，加拿大 (© John Hyde/plainpicture/Design Pics)
 
 ![](20230308_WhitehorseAurora_1920x1080.jpg)
