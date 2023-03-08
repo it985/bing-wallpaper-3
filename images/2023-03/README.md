@@ -2,7 +2,7 @@
 
 ![](20230308_WhitehorseAurora_1920x1080.jpg)
 
-#### 20230308 シベーレスの噴水とマドリード市庁舎, スペイン マドリード (© dpa picture alliance/Alamy)
+#### 20230308 Cibeles Fountain and Madrid City Hall lit for International Women's Day, Madrid, Spain (© dpa picture alliance/Alamy)
 
 ![](20230308_IntlWomensDayChange_1920x1080.jpg)
 
