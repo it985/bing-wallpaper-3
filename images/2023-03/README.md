@@ -1,3 +1,7 @@
+#### 20230310 埃代尔，峰区，英国 (© John Finney/Getty Images)
+
+![](20230310_EdaleValley_1920x1080.jpg)
+
 #### 20230309 Rainbow over Waimea Canyon and Waipo'o Falls, Kauai, Hawaii (© Beverley Van Praagh/Getty Images)
 
 ![](20230309_WaimeaRainbow_1920x1080.jpg)

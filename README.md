@@ -1,3 +1,7 @@
+#### 20230310 埃代尔，峰区，英国 (© John Finney/Getty Images)
+
+![](images/2023-03/20230310_EdaleValley_1920x1080.jpg)
+
 #### 20230309 Rainbow over Waimea Canyon and Waipo'o Falls, Kauai, Hawaii (© Beverley Van Praagh/Getty Images)
 
 ![](images/2023-03/20230309_WaimeaRainbow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230303 ひな人形 (© Masayoshi Hirose/Shutterstock)
 
 ![](images/2023-03/20230303_DollsFestival_1920x1080.jpg)
-
-#### 20230302 Negratín Reservoir, Granada, Spain (© Andres Martinez Olmedo/Getty Images)
-
-![](images/2023-03/20230302_NegratinSpain_1920x1080.jpg)
 
 
 
