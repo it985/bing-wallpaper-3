@@ -1,4 +1,4 @@
-#### 20230309 威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国 (© Beverley Van Praagh/Getty Images)
+#### 20230309 Rainbow over Waimea Canyon and Waipo'o Falls, Kauai, Hawaii (© Beverley Van Praagh/Getty Images)
 
 ![](20230309_WaimeaRainbow_1920x1080.jpg)
 
