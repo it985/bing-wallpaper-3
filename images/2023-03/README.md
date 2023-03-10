@@ -1,4 +1,4 @@
-#### 20230310 埃代尔，峰区，英国 (© John Finney/Getty Images)
+#### 20230310 Vale of Edale, Peak District, England (© John Finney/Getty Images)
 
 ![](20230310_EdaleValley_1920x1080.jpg)
 
