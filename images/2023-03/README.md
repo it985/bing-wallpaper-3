@@ -1,4 +1,4 @@
-#### 20230311 马萨诸塞州格洛斯特的沼泽地 (© Thomas H. Mitchell/Getty Images)
+#### 20230311 Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)
 
 ![](20230311_LongWharf_1920x1080.jpg)
 
