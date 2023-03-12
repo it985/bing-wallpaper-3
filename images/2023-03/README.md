@@ -1,4 +1,4 @@
-#### 20230312 クルジュ・ナポカ国立劇場, ルーマニア (© Thomas Mueller/Shutterstock)
+#### 20230312 Lucian Blaga National Theater, Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)
 
 ![](20230312_TheaterRomania_1920x1080.jpg)
 
