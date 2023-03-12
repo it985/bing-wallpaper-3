@@ -6,6 +6,10 @@
 
 ![](20230312_SouthDownsSheep_1920x1080.jpg)
 
+#### 20230312 Nahaufnahme von Gerste und Kornblumen, Nordhausen (© Mandy Tabatt/EyeEm/Getty Images)
+
+![](20230312_Kornblume_1920x1080.jpg)
+
 #### 20230311 Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)
 
 ![](20230311_LongWharf_1920x1080.jpg)
