@@ -1,3 +1,7 @@
+#### 20230313 正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚 (© Cavan Images/Shutterstock)
+
+![](20230313_LionessesNap_1920x1080.jpg)
+
 #### 20230312 Lucian Blaga National Theater, Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)
 
 ![](20230312_TheaterRomania_1920x1080.jpg)
