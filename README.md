@@ -2,6 +2,10 @@
 
 ![](images/2023-03/20230313_LionessesNap_1920x1080.jpg)
 
+#### 20230313 Flags of the Commonwealth of Nations (© hamzehsh12/iStock/Getty Images Plus)
+
+![](images/2023-03/20230313_CommonwealthDay_1920x1080.jpg)
+
 #### 20230313 Atoll de Kauehi, archipel des Tuamotu, Polynésie française (© WaterFrame/Alamy Stock Photo)
 
 ![](images/2023-03/20230313_Atoll_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230306 Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)
 
 ![](images/2023-03/20230306_IcelandHorses_1920x1080.jpg)
-
-#### 20230305 Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)
-
-![](images/2023-03/20230305_YuanyangChina_1920x1080.jpg)
 
 
 
