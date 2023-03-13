@@ -2,6 +2,10 @@
 
 ![](20230313_LionessesNap_1920x1080.jpg)
 
+#### 20230313 Atoll de Kauehi, archipel des Tuamotu, Polynésie française (© WaterFrame/Alamy Stock Photo)
+
+![](20230313_Atoll_1920x1080.jpg)
+
 #### 20230312 Lucian Blaga National Theater, Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)
 
 ![](20230312_TheaterRomania_1920x1080.jpg)

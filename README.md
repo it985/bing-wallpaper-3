@@ -2,6 +2,10 @@
 
 ![](images/2023-03/20230313_LionessesNap_1920x1080.jpg)
 
+#### 20230313 Atoll de Kauehi, archipel des Tuamotu, Polynésie française (© WaterFrame/Alamy Stock Photo)
+
+![](images/2023-03/20230313_Atoll_1920x1080.jpg)
+
 #### 20230312 Lucian Blaga National Theater, Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)
 
 ![](images/2023-03/20230312_TheaterRomania_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230305 Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)
 
 ![](images/2023-03/20230305_YuanyangChina_1920x1080.jpg)
-
-#### 20230305 アムステルダムのウォーターライディングドゥイネン自然保護区, オランダ (© Edwin Giesbers/Minden Pictures)
-
-![](images/2023-03/20230305_Waterleidingduinen_1920x1080.jpg)
 
 
 
