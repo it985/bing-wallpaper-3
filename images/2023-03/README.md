@@ -1,3 +1,7 @@
+#### 20230314 阿伊纳帕植物园灌木丛迷宫，塞浦路斯 (© Tpopova/Getty Images)
+
+![](20230314_CyprusMaze_1920x1080.jpg)
+
 #### 20230313 Female lions sleeping, Serengeti National Park, Tanzania (© Cavan Images/Shutterstock)
 
 ![](20230313_LionessesNap_1920x1080.jpg)
