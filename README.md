@@ -1,4 +1,4 @@
-#### 20230313 正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚 (© Cavan Images/Shutterstock)
+#### 20230313 Female lions sleeping, Serengeti National Park, Tanzania (© Cavan Images/Shutterstock)
 
 ![](images/2023-03/20230313_LionessesNap_1920x1080.jpg)
 
