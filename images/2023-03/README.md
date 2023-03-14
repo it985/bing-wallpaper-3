@@ -1,4 +1,4 @@
-#### 20230314 阿伊纳帕植物园灌木丛迷宫，塞浦路斯 (© Tpopova/Getty Images)
+#### 20230314 Hedge maze in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)
 
 ![](20230314_CyprusMaze_1920x1080.jpg)
 
