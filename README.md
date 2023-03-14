@@ -1,3 +1,7 @@
+#### 20230315 阿圭罗村庄，西班牙 (© Andrea Comi/Getty Images)
+
+![](images/2023-03/20230315_AgueroSpain_1920x1080.jpg)
+
 #### 20230314 Hedge maze in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)
 
 ![](images/2023-03/20230314_CyprusMaze_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230307 Cabins in Valley Forge National Historic Site, Pennsylvania (© Mark C. Morris/Shutterstock)
 
 ![](images/2023-03/20230307_ValleyForge_1920x1080.jpg)
-
-#### 20230307 Parktheater im Kurhaus Göggingen, Architekt Jean Keller, Bayern (© imageBROKER/Alamy Stock Photo)
-
-![](images/2023-03/20230307_ParktheaterGoeggingen_1920x1080.jpg)
 
 
 
