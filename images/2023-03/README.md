@@ -1,4 +1,4 @@
-#### 20230315 阿圭罗村庄，西班牙 (© Andrea Comi/Getty Images)
+#### 20230315 Agüero, Spain (© Andrea Comi/Getty Images)
 
 ![](20230315_AgueroSpain_1920x1080.jpg)
 
