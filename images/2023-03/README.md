@@ -1,4 +1,4 @@
-#### 20230316 成都大熊猫繁育研究基地，中国 (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)
+#### 20230316 Giant panda at Chengdu Panda Base, China (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)
 
 ![](20230316_ChengduPanda_1920x1080.jpg)
 
