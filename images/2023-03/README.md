@@ -1,4 +1,4 @@
-#### 20230317 ballyvooney海岸，科佩海岸地质公园，爱尔兰 (© Andrea Pistolesi/Getty Images)
+#### 20230317 Ballyvooney Cove, Copper Coast Geopark, County Waterford, Ireland (© Andrea Pistolesi/Getty Images)
 
 ![](20230317_BallyvooneyCove_1920x1080.jpg)
 
