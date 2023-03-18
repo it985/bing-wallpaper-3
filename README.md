@@ -2,6 +2,10 @@
 
 ![](images/2023-03/20230318_MarsTars_1920x1080.jpg)
 
+#### 20230318 Mur peint des écrivains, Lyon, France (© Russ Bishop/Alamy Stock Photo)
+
+![](images/2023-03/20230318_Francophonie_1920x1080.jpg)
+
 #### 20230317 Ballyvooney Cove, Copper Coast Geopark, County Waterford, Ireland (© Andrea Pistolesi/Getty Images)
 
 ![](images/2023-03/20230317_BallyvooneyCove_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230310 Vale of Edale, Peak District, England (© John Finney/Getty Images)
 
 ![](images/2023-03/20230310_EdaleValley_1920x1080.jpg)
-
-#### 20230309 Rainbow over Waimea Canyon and Waipo'o Falls, Kauai, Hawaii (© Beverley Van Praagh/Getty Images)
-
-![](images/2023-03/20230309_WaimeaRainbow_1920x1080.jpg)
 
 
 

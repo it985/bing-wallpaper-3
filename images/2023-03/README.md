@@ -2,6 +2,10 @@
 
 ![](20230318_MarsTars_1920x1080.jpg)
 
+#### 20230318 Mur peint des écrivains, Lyon, France (© Russ Bishop/Alamy Stock Photo)
+
+![](20230318_Francophonie_1920x1080.jpg)
+
 #### 20230317 Ballyvooney Cove, Copper Coast Geopark, County Waterford, Ireland (© Andrea Pistolesi/Getty Images)
 
 ![](20230317_BallyvooneyCove_1920x1080.jpg)
