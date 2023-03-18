@@ -1,3 +1,7 @@
+#### 20230319 仓鸮，英格兰 (© Ondrej Prosicky/Getty Images)
+
+![](images/2023-03/20230319_BarnOwlWinter_1920x1080.jpg)
+
 #### 20230318 Gamboa Crater, Mars (© NASA/JPL-Caltech/University of Arizona)
 
 ![](images/2023-03/20230318_MarsTars_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230311 秋元湖の朝, 福島 (© I am happy taking photographs./Getty Images)
 
 ![](images/2023-03/20230311_Fukushima_1920x1080.jpg)
-
-#### 20230310 Vale of Edale, Peak District, England (© John Finney/Getty Images)
-
-![](images/2023-03/20230310_EdaleValley_1920x1080.jpg)
 
 
 
