@@ -1,4 +1,4 @@
-#### 20230318 甘博阿陨击坑，火星 (© NASA/JPL-Caltech/University of Arizona)
+#### 20230318 Gamboa Crater, Mars (© NASA/JPL-Caltech/University of Arizona)
 
 ![](images/2023-03/20230318_MarsTars_1920x1080.jpg)
 
