@@ -1,3 +1,7 @@
+#### 20230319 Aurora Borealis at Two Jack Lake, Alberta, Canada (© Jesús M. García/Getty Images)
+
+![](images/2023-03/20230319_MilkyWayTwoJackLake_1920x1080.jpg)
+
 #### 20230319 Erlebnisholzkugel, Steinberg am See, Bayern (© Rüdiger Hess/geo-select FotoArt)
 
 ![](images/2023-03/20230319_Erlebnisholzkugel_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230312 Nahaufnahme von Gerste und Kornblumen, Nordhausen (© Mandy Tabatt/EyeEm/Getty Images)
 
 ![](images/2023-03/20230312_Kornblume_1920x1080.jpg)
-
-#### 20230311 Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)
-
-![](images/2023-03/20230311_LongWharf_1920x1080.jpg)
 
 
 

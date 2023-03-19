@@ -1,3 +1,7 @@
+#### 20230319 Aurora Borealis at Two Jack Lake, Alberta, Canada (© Jesús M. García/Getty Images)
+
+![](20230319_MilkyWayTwoJackLake_1920x1080.jpg)
+
 #### 20230319 Erlebnisholzkugel, Steinberg am See, Bayern (© Rüdiger Hess/geo-select FotoArt)
 
 ![](20230319_Erlebnisholzkugel_1920x1080.jpg)
