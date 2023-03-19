@@ -6,7 +6,7 @@
 
 ![](20230319_Erlebnisholzkugel_1920x1080.jpg)
 
-#### 20230319 仓鸮，英格兰 (© Ondrej Prosicky/Getty Images)
+#### 20230319 Barn owl, England (© Ondrej Prosicky/Getty Images)
 
 ![](20230319_BarnOwlWinter_1920x1080.jpg)
 
