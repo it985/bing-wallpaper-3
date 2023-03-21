@@ -2,7 +2,7 @@
 
 ![](20230320_PurpleCrocus_1920x1080.jpg)
 
-#### 20230320 カラフルなパステル (© Stephen Shepherd/plainpicture)
+#### 20230320 Colorful pastel chalk (© Stephen Shepherd/plainpicture)
 
 ![](20230320_ColourDay_1920x1080.jpg)
 
