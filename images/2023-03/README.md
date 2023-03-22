@@ -1,4 +1,4 @@
-#### 20230322 鲍威尔湖，美国 (© Peter Schaefer/Alamy)
+#### 20230322 Lake Powell on the Colorado River (© Peter Schaefer/Alamy)
 
 ![](20230322_LakePowellAerial_1920x1080.jpg)
 
