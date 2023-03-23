@@ -2,7 +2,7 @@
 
 ![](images/2023-03/20230323_LuebeckCityGate_1920x1080.jpg)
 
-#### 20230323 Lenticularis-Wolken, Patagonien (© Sasha Juliard/Shutterstock)
+#### 20230323 Lenticular clouds, Patagonia (© Sasha Juliard/Shutterstock)
 
 ![](images/2023-03/20230323_CloudsPatagonia_1920x1080.jpg)
 
