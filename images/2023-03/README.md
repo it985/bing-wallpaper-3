@@ -2,6 +2,10 @@
 
 ![](20230323_LuebeckCityGate_1920x1080.jpg)
 
+#### 20230323 Lenticularis-Wolken, Patagonien (© Sasha Juliard/Shutterstock)
+
+![](20230323_CloudsPatagonia_1920x1080.jpg)
+
 #### 20230323 杜费里峡谷，上萨瓦省，法国 (© Jean-Philippe Delobelle/Biosphoto/Alamy)
 
 ![](20230323_ChavarocheWinter_1920x1080.jpg)

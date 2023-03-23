@@ -2,6 +2,10 @@
 
 ![](images/2023-03/20230323_LuebeckCityGate_1920x1080.jpg)
 
+#### 20230323 Lenticularis-Wolken, Patagonien (© Sasha Juliard/Shutterstock)
+
+![](images/2023-03/20230323_CloudsPatagonia_1920x1080.jpg)
+
 #### 20230323 杜费里峡谷，上萨瓦省，法国 (© Jean-Philippe Delobelle/Biosphoto/Alamy)
 
 ![](images/2023-03/20230323_ChavarocheWinter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230314 Hedge maze in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)
 
 ![](images/2023-03/20230314_CyprusMaze_1920x1080.jpg)
-
-#### 20230313 Female lions sleeping, Serengeti National Park, Tanzania (© Cavan Images/Shutterstock)
-
-![](images/2023-03/20230313_LionessesNap_1920x1080.jpg)
 
 
 
