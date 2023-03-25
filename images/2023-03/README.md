@@ -6,7 +6,7 @@
 
 ![](20230325_JavaBromo_1920x1080.jpg)
 
-#### 20230325 塞西尔布鲁尔楼梯，伦敦，英国 (© Yiran An/Getty Images)
+#### 20230325 Cecil Brewer Staircase, the Heal's Building, London, England (© Yiran An/Getty Images)
 
 ![](20230325_CecilBrewerStaircase_1920x1080.jpg)
 
