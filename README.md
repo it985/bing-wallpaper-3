@@ -1,3 +1,7 @@
+#### 20230326 安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国 (© Ron and Patty Thomas/Getty Images)
+
+![](images/2023-03/20230326_WildAnza_1920x1080.jpg)
+
 #### 20230325 Blühender Mohn und Kornblumen in einem Rapsfeld, Penzlin (© Sandra Bartocha/Minden)
 
 ![](images/2023-03/20230325_Mohnblumen_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230318 Gamboa Crater, Mars (© NASA/JPL-Caltech/University of Arizona)
 
 ![](images/2023-03/20230318_MarsTars_1920x1080.jpg)
-
-#### 20230318 Mur peint des écrivains, Lyon, France (© Russ Bishop/Alamy Stock Photo)
-
-![](images/2023-03/20230318_Francophonie_1920x1080.jpg)
 
 
 

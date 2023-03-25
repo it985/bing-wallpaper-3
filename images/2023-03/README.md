@@ -1,3 +1,7 @@
+#### 20230326 安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国 (© Ron and Patty Thomas/Getty Images)
+
+![](20230326_WildAnza_1920x1080.jpg)
+
 #### 20230325 Blühender Mohn und Kornblumen in einem Rapsfeld, Penzlin (© Sandra Bartocha/Minden)
 
 ![](20230325_Mohnblumen_1920x1080.jpg)
