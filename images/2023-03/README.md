@@ -1,4 +1,4 @@
-#### 20230326 安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国 (© Ron and Patty Thomas/Getty Images)
+#### 20230326 Wildflowers in Anza-Borrego Desert State Park, California (© Ron and Patty Thomas/Getty Images)
 
 ![](20230326_WildAnza_1920x1080.jpg)
 
