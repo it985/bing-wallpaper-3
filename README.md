@@ -1,3 +1,7 @@
+#### 20230327 云层中的纽约市天际线 (© Orbon Alija/Getty Images)
+
+![](images/2023-03/20230327_NYCClouds_1920x1080.jpg)
+
 #### 20230326 Wildflowers in Anza-Borrego Desert State Park, California (© Ron and Patty Thomas/Getty Images)
 
 ![](images/2023-03/20230326_WildAnza_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230319 Barn owl, England (© Ondrej Prosicky/Getty Images)
 
 ![](images/2023-03/20230319_BarnOwlWinter_1920x1080.jpg)
-
-#### 20230318 Gamboa Crater, Mars (© NASA/JPL-Caltech/University of Arizona)
-
-![](images/2023-03/20230318_MarsTars_1920x1080.jpg)
 
 
 
