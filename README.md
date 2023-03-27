@@ -1,3 +1,7 @@
+#### 20230328 意大利三峰山上空的银河 (© Juan Romero/Cavan Images)
+
+![](images/2023-03/20230328_MWDolomites_1920x1080.jpg)
+
 #### 20230327 New York City skyline in fog (© Orbon Alija/Getty Images)
 
 ![](images/2023-03/20230327_NYCClouds_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230319 Erlebnisholzkugel, Steinberg am See, Bayern (© Rüdiger Hess/geo-select FotoArt)
 
 ![](images/2023-03/20230319_Erlebnisholzkugel_1920x1080.jpg)
-
-#### 20230319 Barn owl, England (© Ondrej Prosicky/Getty Images)
-
-![](images/2023-03/20230319_BarnOwlWinter_1920x1080.jpg)
 
 
 
