@@ -1,4 +1,4 @@
-#### 20230327 云层中的纽约市天际线 (© Orbon Alija/Getty Images)
+#### 20230327 New York City skyline in fog (© Orbon Alija/Getty Images)
 
 ![](images/2023-03/20230327_NYCClouds_1920x1080.jpg)
 
