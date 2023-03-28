@@ -1,3 +1,7 @@
+#### 20230329 两只海牛，佛罗里达州的水晶河，美国 (© Gregory Sweeney/Getty Images)
+
+![](images/2023-03/20230329_NuzzleManatee_1920x1080.jpg)
+
 #### 20230328 Milky Way above the Tre Cime di Lavaredo, South Tyrol, Italy (© Juan Romero/Cavan Images)
 
 ![](images/2023-03/20230328_MWDolomites_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230319 Aurora Borealis at Two Jack Lake, Alberta, Canada (© Jesús M. García/Getty Images)
 
 ![](images/2023-03/20230319_MilkyWayTwoJackLake_1920x1080.jpg)
-
-#### 20230319 Erlebnisholzkugel, Steinberg am See, Bayern (© Rüdiger Hess/geo-select FotoArt)
-
-![](images/2023-03/20230319_Erlebnisholzkugel_1920x1080.jpg)
 
 
 
