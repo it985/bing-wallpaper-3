@@ -1,4 +1,4 @@
-#### 20230328 意大利三峰山上空的银河 (© Juan Romero/Cavan Images)
+#### 20230328 Milky Way above the Tre Cime di Lavaredo, South Tyrol, Italy (© Juan Romero/Cavan Images)
 
 ![](20230328_MWDolomites_1920x1080.jpg)
 
