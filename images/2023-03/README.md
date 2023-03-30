@@ -1,4 +1,4 @@
-#### 20230330 孔雀羽毛 (© sarayut Thaneerat/Getty Images)
+#### 20230330 Peacock feathers (© Sarayut Thaneerat/Getty Images)
 
 ![](20230330_PeacockFeathers_1920x1080.jpg)
 
