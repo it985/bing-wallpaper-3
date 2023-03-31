@@ -1,4 +1,4 @@
-#### 20230331 斯太尔河, 奥地利 (© guenterguni/Getty Images)
+#### 20230331 Steyr River, Austria (© guenterguni/Getty Images)
 
 ![](images/2023-03/20230331_SteyrRiver_1920x1080.jpg)
 
