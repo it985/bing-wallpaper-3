@@ -1,3 +1,7 @@
+#### 20230402 クーサモの春, フィンランド (© Markus Varesvuo/Minden Pictures)
+
+![](20230402_BlackGrouseLekking_1920x1080.jpg)
+
 #### 20230401 Phare du Petit-Minou, Plouzané, France (© RooM the Agency/Alamy Stock Photo)
 
 ![](20230401_MinouLighthouse_1920x1080.jpg)

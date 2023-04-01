@@ -1,3 +1,7 @@
+#### 20230402 クーサモの春, フィンランド (© Markus Varesvuo/Minden Pictures)
+
+![](images/2023-04/20230402_BlackGrouseLekking_1920x1080.jpg)
+
 #### 20230401 Phare du Petit-Minou, Plouzané, France (© RooM the Agency/Alamy Stock Photo)
 
 ![](images/2023-04/20230401_MinouLighthouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230323 Lenticular clouds, Patagonia (© Sasha Juliard/Shutterstock)
 
 ![](images/2023-03/20230323_CloudsPatagonia_1920x1080.jpg)
-
-#### 20230323 杜费里峡谷，上萨瓦省，法国 (© Jean-Philippe Delobelle/Biosphoto/Alamy)
-
-![](images/2023-03/20230323_ChavarocheWinter_1920x1080.jpg)
 
 
 
