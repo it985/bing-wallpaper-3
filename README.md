@@ -1,3 +1,7 @@
+#### 20230401 Phare du Petit-Minou, Plouzané, France (© RooM the Agency/Alamy Stock Photo)
+
+![](images/2023-04/20230401_MinouLighthouse_1920x1080.jpg)
+
 #### 20230401 爪哇树蛙 (© kuritafsheen/Getty Images)
 
 ![](images/2023-04/20230401_FrogMonth_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230323 杜费里峡谷，上萨瓦省，法国 (© Jean-Philippe Delobelle/Biosphoto/Alamy)
 
 ![](images/2023-03/20230323_ChavarocheWinter_1920x1080.jpg)
-
-#### 20230322 Lake Powell on the Colorado River (© Peter Schaefer/Alamy)
-
-![](images/2023-03/20230322_LakePowellAerial_1920x1080.jpg)
 
 
 
