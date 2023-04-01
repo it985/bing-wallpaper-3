@@ -2,7 +2,7 @@
 
 ![](20230401_MinouLighthouse_1920x1080.jpg)
 
-#### 20230401 爪哇树蛙 (© kuritafsheen/Getty Images)
+#### 20230401 Javan tree frog (© kuritafsheen/Getty Images)
 
 ![](20230401_FrogMonth_1920x1080.jpg)
 
