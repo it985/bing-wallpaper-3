@@ -42,7 +42,7 @@
 
 ![](images/2023-03/20230325_Mohnblumen_1920x1080.jpg)
 
-#### 20230325 Mont Bromo, dans l’est de Java, Indonésie (© Bento Fotography/Getty Images)
+#### 20230325 Bromo Tengger Semeru National Park, East Java, Indonesia (© Bento Fotography/Getty Images)
 
 ![](images/2023-03/20230325_JavaBromo_1920x1080.jpg)
 
