@@ -1,3 +1,7 @@
+#### 20230402 Coureurs lors du Marathon de Paris, Obélisque de la place de la Concorde, Paris (© REUTERS/Regis Duvignau)
+
+![](images/2023-04/20230402_ParisRunners_1920x1080.jpg)
+
 #### 20230402 クーサモの春, フィンランド (© Markus Varesvuo/Minden Pictures)
 
 ![](images/2023-04/20230402_BlackGrouseLekking_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230323 リューベック旧市街, ドイツ (© Harald Nachtmann/Getty Images)
 
 ![](images/2023-03/20230323_LuebeckCityGate_1920x1080.jpg)
-
-#### 20230323 Lenticular clouds, Patagonia (© Sasha Juliard/Shutterstock)
-
-![](images/2023-03/20230323_CloudsPatagonia_1920x1080.jpg)
 
 
 
