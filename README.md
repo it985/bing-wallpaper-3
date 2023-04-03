@@ -1,3 +1,7 @@
+#### 20230404 科尔多瓦的古罗马桥，西班牙 (© Jeremy Woodhouse/Getty Images)
+
+![](images/2023-04/20230404_RomanBridge_1920x1080.jpg)
+
 #### 20230403 Insel Helgoland, Schleswig-Holstein (© Iurii Buriak/Alamy Stock Photo)
 
 ![](images/2023-04/20230403_SchleswigHolsteinHelgoland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230325 Bromo Tengger Semeru National Park, East Java, Indonesia (© Bento Fotography/Getty Images)
 
 ![](images/2023-03/20230325_JavaBromo_1920x1080.jpg)
-
-#### 20230325 Cecil Brewer Staircase, the Heal's Building, London, England (© Yiran An/Getty Images)
-
-![](images/2023-03/20230325_CecilBrewerStaircase_1920x1080.jpg)
 
 
 
