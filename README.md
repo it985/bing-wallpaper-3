@@ -2,6 +2,10 @@
 
 ![](images/2023-04/20230404_RomanBridge_1920x1080.jpg)
 
+#### 20230404 The Canadian Museum for Human Rights, Winnipeg (© Cavan Images/Alamy Stock Photo)
+
+![](images/2023-04/20230404_CanadianMuseumforHumanRights_1920x1080.jpg)
+
 #### 20230403 Insel Helgoland, Schleswig-Holstein (© Iurii Buriak/Alamy Stock Photo)
 
 ![](images/2023-04/20230403_SchleswigHolsteinHelgoland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230325 Blühender Mohn und Kornblumen in einem Rapsfeld, Penzlin (© Sandra Bartocha/Minden)
 
 ![](images/2023-03/20230325_Mohnblumen_1920x1080.jpg)
-
-#### 20230325 Bromo Tengger Semeru National Park, East Java, Indonesia (© Bento Fotography/Getty Images)
-
-![](images/2023-03/20230325_JavaBromo_1920x1080.jpg)
 
 
 

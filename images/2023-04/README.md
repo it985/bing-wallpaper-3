@@ -2,6 +2,10 @@
 
 ![](20230404_RomanBridge_1920x1080.jpg)
 
+#### 20230404 The Canadian Museum for Human Rights, Winnipeg (© Cavan Images/Alamy Stock Photo)
+
+![](20230404_CanadianMuseumforHumanRights_1920x1080.jpg)
+
 #### 20230403 Insel Helgoland, Schleswig-Holstein (© Iurii Buriak/Alamy Stock Photo)
 
 ![](20230403_SchleswigHolsteinHelgoland_1920x1080.jpg)
