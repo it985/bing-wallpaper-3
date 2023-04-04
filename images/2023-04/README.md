@@ -1,4 +1,4 @@
-#### 20230404 科尔多瓦的古罗马桥，西班牙 (© Jeremy Woodhouse/Getty Images)
+#### 20230404 Roman bridge, Córdoba, Spain (© Jeremy Woodhouse/Getty Images)
 
 ![](20230404_RomanBridge_1920x1080.jpg)
 
