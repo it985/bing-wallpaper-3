@@ -1,3 +1,7 @@
+#### 20230406 姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)
+
+![](images/2023-04/20230406_CastleDay_1920x1080.jpg)
+
 #### 20230405 杭州西湖水墨意境般的风景，浙江省，中国 (© zhangshuang/Getty Images)
 
 ![](images/2023-04/20230405_QingMing_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230328 Milky Way above the Tre Cime di Lavaredo, South Tyrol, Italy (© Juan Romero/Cavan Images)
 
 ![](images/2023-03/20230328_MWDolomites_1920x1080.jpg)
-
-#### 20230327 New York City skyline in fog (© Orbon Alija/Getty Images)
-
-![](images/2023-03/20230327_NYCClouds_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20230406 姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)
+
+![](20230406_CastleDay_1920x1080.jpg)
+
 #### 20230405 杭州西湖水墨意境般的风景，浙江省，中国 (© zhangshuang/Getty Images)
 
 ![](20230405_QingMing_1920x1080.jpg)
