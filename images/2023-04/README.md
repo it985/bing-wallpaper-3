@@ -26,7 +26,7 @@
 
 ![](20230402_ParisRunners_1920x1080.jpg)
 
-#### 20230402 クーサモの春, フィンランド (© Markus Varesvuo/Minden Pictures)
+#### 20230402 Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)
 
 ![](20230402_BlackGrouseLekking_1920x1080.jpg)
 
