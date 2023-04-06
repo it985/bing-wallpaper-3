@@ -6,7 +6,7 @@
 
 ![](20230405_QingMing_1920x1080.jpg)
 
-#### 20230405 ツーソンの夜空に現れた月, 米国 アリゾナ州 (© Tim Murphy/Shutterstock)
+#### 20230405 Moon rising, Tucson, Arizona (© Tim Murphy/Shutterstock)
 
 ![](20230405_ArizonaPinkMoon_1920x1080.jpg)
 
