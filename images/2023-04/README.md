@@ -1,3 +1,7 @@
+#### 20230407 欧亚河狸宝宝，芬兰 (© Danny Green/Minden Pictures)
+
+![](20230407_KitsAspen_1920x1080.jpg)
+
 #### 20230406 姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)
 
 ![](20230406_CastleDay_1920x1080.jpg)

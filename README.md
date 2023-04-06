@@ -1,3 +1,7 @@
+#### 20230407 欧亚河狸宝宝，芬兰 (© Danny Green/Minden Pictures)
+
+![](images/2023-04/20230407_KitsAspen_1920x1080.jpg)
+
 #### 20230406 姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)
 
 ![](images/2023-04/20230406_CastleDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230329 Manatees, Crystal River, Florida (© Gregory Sweeney/Getty Images)
 
 ![](images/2023-03/20230329_NuzzleManatee_1920x1080.jpg)
-
-#### 20230328 Milky Way above the Tre Cime di Lavaredo, South Tyrol, Italy (© Juan Romero/Cavan Images)
-
-![](images/2023-03/20230328_MWDolomites_1920x1080.jpg)
 
 
 
