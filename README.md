@@ -1,3 +1,11 @@
+#### 20230408 巨人之路，北爱尔兰，英国 (© DieterMeyrl/Getty Images)
+
+![](images/2023-04/20230408_NIrelandGiants_1920x1080.jpg)
+
+#### 20230408 池に咲く睡蓮 (© Masahiro Noguchi/GettyImages)
+
+![](images/2023-04/20230408_BuddhasBirthday_1920x1080.jpg)
+
 #### 20230407 Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)
 
 ![](images/2023-04/20230407_KitsAspen_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230331 Steyr River, Austria (© guenterguni/Getty Images)
 
 ![](images/2023-03/20230331_SteyrRiver_1920x1080.jpg)
-
-#### 20230330 Peacock feathers (© Sarayut Thaneerat/Getty Images)
-
-![](images/2023-03/20230330_PeacockFeathers_1920x1080.jpg)
-
-#### 20230329 Manatees, Crystal River, Florida (© Gregory Sweeney/Getty Images)
-
-![](images/2023-03/20230329_NuzzleManatee_1920x1080.jpg)
 
 
 

@@ -1,3 +1,11 @@
+#### 20230408 巨人之路，北爱尔兰，英国 (© DieterMeyrl/Getty Images)
+
+![](20230408_NIrelandGiants_1920x1080.jpg)
+
+#### 20230408 池に咲く睡蓮 (© Masahiro Noguchi/GettyImages)
+
+![](20230408_BuddhasBirthday_1920x1080.jpg)
+
 #### 20230407 Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)
 
 ![](20230407_KitsAspen_1920x1080.jpg)
