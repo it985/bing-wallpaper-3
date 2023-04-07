@@ -42,6 +42,10 @@
 
 ![](20230402_ParisRunners_1920x1080.jpg)
 
+#### 20230402 Bromo Tengger Semeru National Park, East Java, Indonesia (© Bento Fotography/Getty Images)
+
+![](20230402_JavaBromo_1920x1080.jpg)
+
 #### 20230402 Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)
 
 ![](20230402_BlackGrouseLekking_1920x1080.jpg)

@@ -42,6 +42,10 @@
 
 ![](images/2023-04/20230402_ParisRunners_1920x1080.jpg)
 
+#### 20230402 Bromo Tengger Semeru National Park, East Java, Indonesia (© Bento Fotography/Getty Images)
+
+![](images/2023-04/20230402_JavaBromo_1920x1080.jpg)
+
 #### 20230402 Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)
 
 ![](images/2023-04/20230402_BlackGrouseLekking_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230401 Javan tree frog (© kuritafsheen/Getty Images)
 
 ![](images/2023-04/20230401_FrogMonth_1920x1080.jpg)
-
-#### 20230331 Steyr River, Austria (© guenterguni/Getty Images)
-
-![](images/2023-03/20230331_SteyrRiver_1920x1080.jpg)
 
 
 
