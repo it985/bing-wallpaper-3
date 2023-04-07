@@ -1,4 +1,4 @@
-#### 20230407 欧亚河狸宝宝，芬兰 (© Danny Green/Minden Pictures)
+#### 20230407 Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)
 
 ![](20230407_KitsAspen_1920x1080.jpg)
 
