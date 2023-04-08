@@ -1,4 +1,4 @@
-#### 20230408 巨人之路，北爱尔兰，英国 (© DieterMeyrl/Getty Images)
+#### 20230408 The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)
 
 ![](images/2023-04/20230408_NIrelandGiants_1920x1080.jpg)
 
