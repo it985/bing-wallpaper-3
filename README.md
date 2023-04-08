@@ -1,3 +1,7 @@
+#### 20230409 复活节彩蛋 (© fotomem/Getty Images)
+
+![](images/2023-04/20230409_LithuanianEggs_1920x1080.jpg)
+
 #### 20230408 The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)
 
 ![](images/2023-04/20230408_NIrelandGiants_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230401 Phare du Petit-Minou, Plouzané, France (© RooM the Agency/Alamy Stock Photo)
 
 ![](images/2023-04/20230401_MinouLighthouse_1920x1080.jpg)
-
-#### 20230401 Javan tree frog (© kuritafsheen/Getty Images)
-
-![](images/2023-04/20230401_FrogMonth_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20230409 复活节彩蛋 (© fotomem/Getty Images)
+
+![](20230409_LithuanianEggs_1920x1080.jpg)
+
 #### 20230408 The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)
 
 ![](20230408_NIrelandGiants_1920x1080.jpg)
