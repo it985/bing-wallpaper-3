@@ -2,6 +2,10 @@
 
 ![](20230410_MilkyWayTwoJackLake_1920x1080.jpg)
 
+#### 20230410 安博塞利国家公园的大象，肯尼亚 (© Diana Robinson/Getty Images)
+
+![](20230410_ElephantTwins_1920x1080.jpg)
+
 #### 20230409 Lithuanian Easter eggs (© fotomem/Getty Images)
 
 ![](20230409_LithuanianEggs_1920x1080.jpg)

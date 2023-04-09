@@ -2,6 +2,10 @@
 
 ![](images/2023-04/20230410_MilkyWayTwoJackLake_1920x1080.jpg)
 
+#### 20230410 安博塞利国家公园的大象，肯尼亚 (© Diana Robinson/Getty Images)
+
+![](images/2023-04/20230410_ElephantTwins_1920x1080.jpg)
+
 #### 20230409 Lithuanian Easter eggs (© fotomem/Getty Images)
 
 ![](images/2023-04/20230409_LithuanianEggs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230402 Bromo Tengger Semeru National Park, East Java, Indonesia (© Bento Fotography/Getty Images)
 
 ![](images/2023-04/20230402_JavaBromo_1920x1080.jpg)
-
-#### 20230402 Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)
-
-![](images/2023-04/20230402_BlackGrouseLekking_1920x1080.jpg)
 
 
 
