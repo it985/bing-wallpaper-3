@@ -1,4 +1,8 @@
-#### 20230409 复活节彩蛋 (© fotomem/Getty Images)
+#### 20230410 Aurora at Two Jack Lake, Banff National Park, Alberta, Canada (© Jesús M. García/Getty Images)
+
+![](images/2023-04/20230410_MilkyWayTwoJackLake_1920x1080.jpg)
+
+#### 20230409 Lithuanian Easter eggs (© fotomem/Getty Images)
 
 ![](images/2023-04/20230409_LithuanianEggs_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20230402 Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)
 
 ![](images/2023-04/20230402_BlackGrouseLekking_1920x1080.jpg)
-
-#### 20230401 Phare du Petit-Minou, Plouzané, France (© RooM the Agency/Alamy Stock Photo)
-
-![](images/2023-04/20230401_MinouLighthouse_1920x1080.jpg)
 
 
 

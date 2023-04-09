@@ -1,4 +1,8 @@
-#### 20230409 复活节彩蛋 (© fotomem/Getty Images)
+#### 20230410 Aurora at Two Jack Lake, Banff National Park, Alberta, Canada (© Jesús M. García/Getty Images)
+
+![](20230410_MilkyWayTwoJackLake_1920x1080.jpg)
+
+#### 20230409 Lithuanian Easter eggs (© fotomem/Getty Images)
 
 ![](20230409_LithuanianEggs_1920x1080.jpg)
 
