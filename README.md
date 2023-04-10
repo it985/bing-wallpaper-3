@@ -6,6 +6,10 @@
 
 ![](images/2023-04/20230410_ElephantTwins_1920x1080.jpg)
 
+#### 20230410 Colibri d'Allen perché sur la plante patte de kangourou rouge (© GypsyPictureShow/Shutterstock)
+
+![](images/2023-04/20230410_BirdcountAllen_1920x1080.jpg)
+
 #### 20230409 Lithuanian Easter eggs (© fotomem/Getty Images)
 
 ![](images/2023-04/20230409_LithuanianEggs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230402 Coureurs lors du Marathon de Paris, Obélisque de la place de la Concorde, Paris (© REUTERS/Regis Duvignau)
 
 ![](images/2023-04/20230402_ParisRunners_1920x1080.jpg)
-
-#### 20230402 Bromo Tengger Semeru National Park, East Java, Indonesia (© Bento Fotography/Getty Images)
-
-![](images/2023-04/20230402_JavaBromo_1920x1080.jpg)
 
 
 

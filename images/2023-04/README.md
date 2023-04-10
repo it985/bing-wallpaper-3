@@ -6,6 +6,10 @@
 
 ![](20230410_ElephantTwins_1920x1080.jpg)
 
+#### 20230410 Colibri d'Allen perché sur la plante patte de kangourou rouge (© GypsyPictureShow/Shutterstock)
+
+![](20230410_BirdcountAllen_1920x1080.jpg)
+
 #### 20230409 Lithuanian Easter eggs (© fotomem/Getty Images)
 
 ![](20230409_LithuanianEggs_1920x1080.jpg)
