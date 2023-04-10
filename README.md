@@ -1,3 +1,7 @@
+#### 20230411 哥伦比亚河峡谷，俄勒冈州，美国 (© Chase Dekker Wild-Life Images/Getty Images)
+
+![](images/2023-04/20230411_MossyGrottoFalls_1920x1080.jpg)
+
 #### 20230410 Aurora at Two Jack Lake, Banff National Park, Alberta, Canada (© Jesús M. García/Getty Images)
 
 ![](images/2023-04/20230410_MilkyWayTwoJackLake_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230403 Pu'uhonua o Hōnaunau National Historical Park, Big Island, Hawaii (© Westend61/Getty Images)
 
 ![](images/2023-04/20230403_HonaunauNP_1920x1080.jpg)
-
-#### 20230402 Coureurs lors du Marathon de Paris, Obélisque de la place de la Concorde, Paris (© REUTERS/Regis Duvignau)
-
-![](images/2023-04/20230402_ParisRunners_1920x1080.jpg)
 
 
 

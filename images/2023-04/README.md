@@ -1,3 +1,7 @@
+#### 20230411 哥伦比亚河峡谷，俄勒冈州，美国 (© Chase Dekker Wild-Life Images/Getty Images)
+
+![](20230411_MossyGrottoFalls_1920x1080.jpg)
+
 #### 20230410 Aurora at Two Jack Lake, Banff National Park, Alberta, Canada (© Jesús M. García/Getty Images)
 
 ![](20230410_MilkyWayTwoJackLake_1920x1080.jpg)
