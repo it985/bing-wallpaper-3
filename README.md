@@ -6,7 +6,7 @@
 
 ![](images/2023-04/20230411_Tatzlwurmbruecke_1920x1080.jpg)
 
-#### 20230411 哥伦比亚河峡谷，俄勒冈州，美国 (© Chase Dekker Wild-Life Images/Getty Images)
+#### 20230411 Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)
 
 ![](images/2023-04/20230411_MossyGrottoFalls_1920x1080.jpg)
 
