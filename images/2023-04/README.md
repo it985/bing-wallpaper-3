@@ -50,6 +50,10 @@
 
 ![](20230405_QingMing_1920x1080.jpg)
 
+#### 20230405 Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)
+
+![](20230405_BlackGrouseLekking_1920x1080.jpg)
+
 #### 20230405 Moon rising, Tucson, Arizona (© Tim Murphy/Shutterstock)
 
 ![](20230405_ArizonaPinkMoon_1920x1080.jpg)
