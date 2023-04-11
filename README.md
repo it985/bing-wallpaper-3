@@ -1,3 +1,7 @@
+#### 20230411 Tatzelwurm Holzbrücke, Essing, (© Rüdiger Hess/geo-select FotoArt)
+
+![](images/2023-04/20230411_Tatzlwurmbruecke_1920x1080.jpg)
+
 #### 20230411 哥伦比亚河峡谷，俄勒冈州，美国 (© Chase Dekker Wild-Life Images/Getty Images)
 
 ![](images/2023-04/20230411_MossyGrottoFalls_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230403 Insel Helgoland, Schleswig-Holstein (© Iurii Buriak/Alamy Stock Photo)
 
 ![](images/2023-04/20230403_SchleswigHolsteinHelgoland_1920x1080.jpg)
-
-#### 20230403 Pu'uhonua o Hōnaunau National Historical Park, Big Island, Hawaii (© Westend61/Getty Images)
-
-![](images/2023-04/20230403_HonaunauNP_1920x1080.jpg)
 
 
 
