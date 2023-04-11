@@ -1,3 +1,7 @@
+#### 20230412 从国际空间站拍摄的地球 (© Tim Peake/ESA/NASA via Getty Images)
+
+![](images/2023-04/20230412_EuropeFromISS_1920x1080.jpg)
+
 #### 20230411 Canada Continental Divide, Yoho National Park, Canada (© Peter Essick/Cavan Images)
 
 ![](images/2023-04/20230411_TheCanadaContinentalDivide_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230404 Roman bridge, Córdoba, Spain (© Jeremy Woodhouse/Getty Images)
 
 ![](images/2023-04/20230404_RomanBridge_1920x1080.jpg)
-
-#### 20230404 The Canadian Museum for Human Rights, Winnipeg (© Cavan Images/Alamy Stock Photo)
-
-![](images/2023-04/20230404_CanadianMuseumforHumanRights_1920x1080.jpg)
 
 
 

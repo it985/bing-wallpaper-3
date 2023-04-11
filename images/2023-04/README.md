@@ -1,3 +1,7 @@
+#### 20230412 从国际空间站拍摄的地球 (© Tim Peake/ESA/NASA via Getty Images)
+
+![](20230412_EuropeFromISS_1920x1080.jpg)
+
 #### 20230411 Canada Continental Divide, Yoho National Park, Canada (© Peter Essick/Cavan Images)
 
 ![](20230411_TheCanadaContinentalDivide_1920x1080.jpg)
