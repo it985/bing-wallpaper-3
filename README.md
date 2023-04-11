@@ -1,3 +1,7 @@
+#### 20230411 Canada Continental Divide, Yoho National Park, Canada (© Peter Essick/Cavan Images)
+
+![](images/2023-04/20230411_TheCanadaContinentalDivide_1920x1080.jpg)
+
 #### 20230411 Tatzelwurm Holzbrücke, Essing, (© Rüdiger Hess/geo-select FotoArt)
 
 ![](images/2023-04/20230411_Tatzlwurmbruecke_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230404 The Canadian Museum for Human Rights, Winnipeg (© Cavan Images/Alamy Stock Photo)
 
 ![](images/2023-04/20230404_CanadianMuseumforHumanRights_1920x1080.jpg)
-
-#### 20230403 Insel Helgoland, Schleswig-Holstein (© Iurii Buriak/Alamy Stock Photo)
-
-![](images/2023-04/20230403_SchleswigHolsteinHelgoland_1920x1080.jpg)
 
 
 

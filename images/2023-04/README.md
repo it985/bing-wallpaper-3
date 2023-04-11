@@ -1,3 +1,7 @@
+#### 20230411 Canada Continental Divide, Yoho National Park, Canada (© Peter Essick/Cavan Images)
+
+![](20230411_TheCanadaContinentalDivide_1920x1080.jpg)
+
 #### 20230411 Tatzelwurm Holzbrücke, Essing, (© Rüdiger Hess/geo-select FotoArt)
 
 ![](20230411_Tatzlwurmbruecke_1920x1080.jpg)
