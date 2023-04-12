@@ -1,3 +1,7 @@
+#### 20230412 Yuhina de Taïwan, Aire panoramique nationale d’Alishan, Taïwan (© Staffan Widstrand/Minden Pictures)
+
+![](20230412_TaiwanYuhina_1920x1080.jpg)
+
 #### 20230412 从国际空间站拍摄的地球 (© Tim Peake/ESA/NASA via Getty Images)
 
 ![](20230412_EuropeFromISS_1920x1080.jpg)

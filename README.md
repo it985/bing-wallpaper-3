@@ -1,3 +1,7 @@
+#### 20230412 Yuhina de Taïwan, Aire panoramique nationale d’Alishan, Taïwan (© Staffan Widstrand/Minden Pictures)
+
+![](images/2023-04/20230412_TaiwanYuhina_1920x1080.jpg)
+
 #### 20230412 从国际空间站拍摄的地球 (© Tim Peake/ESA/NASA via Getty Images)
 
 ![](images/2023-04/20230412_EuropeFromISS_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230405 Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)
 
 ![](images/2023-04/20230405_BlackGrouseLekking_1920x1080.jpg)
-
-#### 20230405 Moon rising, Tucson, Arizona (© Tim Murphy/Shutterstock)
-
-![](images/2023-04/20230405_ArizonaPinkMoon_1920x1080.jpg)
 
 
 
