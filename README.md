@@ -2,7 +2,7 @@
 
 ![](images/2023-04/20230412_TaiwanYuhina_1920x1080.jpg)
 
-#### 20230412 从国际空间站拍摄的地球 (© Tim Peake/ESA/NASA via Getty Images)
+#### 20230412 Earth seen from the International Space Station (© Tim Peake/ESA/NASA via Getty Images)
 
 ![](images/2023-04/20230412_EuropeFromISS_1920x1080.jpg)
 
