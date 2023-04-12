@@ -1,3 +1,11 @@
+#### 20230413 斯诺登尼亚国家公园，威尔士，英国 (© Sebastian Wasek/eStock Photo)
+
+![](20230413_SnowdoniaNational_1920x1080.jpg)
+
+#### 20230413 羊山公園, 埼玉県 (© Takashi Images/Shutterstock)
+
+![](20230413_PhloxSubulata_1920x1080.jpg)
+
 #### 20230412 Yuhina de Taïwan, Aire panoramique nationale d’Alishan, Taïwan (© Staffan Widstrand/Minden Pictures)
 
 ![](20230412_TaiwanYuhina_1920x1080.jpg)
