@@ -2,7 +2,7 @@
 
 ![](20230413_SnowdoniaNational_1920x1080.jpg)
 
-#### 20230413 羊山公園, 埼玉県 (© Takashi Images/Shutterstock)
+#### 20230413 Moss pink displays at Hitsujiyama Park, Saitama Prefecture, Japan (© Takashi Images/Shutterstock)
 
 ![](20230413_PhloxSubulata_1920x1080.jpg)
 
