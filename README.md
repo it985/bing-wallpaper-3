@@ -1,3 +1,7 @@
+#### 20230414 红海星, 地中海 (© Hans Leijnse/Minden Pictures)
+
+![](images/2023-04/20230414_RedSeaStars_1920x1080.jpg)
+
 #### 20230413 斯诺登尼亚国家公园，威尔士，英国 (© Sebastian Wasek/eStock Photo)
 
 ![](images/2023-04/20230413_SnowdoniaNational_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230407 Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)
 
 ![](images/2023-04/20230407_KitsAspen_1920x1080.jpg)
-
-#### 20230406 姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)
-
-![](images/2023-04/20230406_CastleDay_1920x1080.jpg)
 
 
 
