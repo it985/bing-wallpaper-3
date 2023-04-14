@@ -2,6 +2,10 @@
 
 ![](20230414_RedSeaStars_1920x1080.jpg)
 
+#### 20230414 Wasserturm, Mannheim (© tichr/Getty Images)
+
+![](20230414_Mannheim_1920x1080.jpg)
+
 #### 20230413 斯诺登尼亚国家公园，威尔士，英国 (© Sebastian Wasek/eStock Photo)
 
 ![](20230413_SnowdoniaNational_1920x1080.jpg)

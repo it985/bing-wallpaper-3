@@ -2,6 +2,10 @@
 
 ![](images/2023-04/20230414_RedSeaStars_1920x1080.jpg)
 
+#### 20230414 Wasserturm, Mannheim (© tichr/Getty Images)
+
+![](images/2023-04/20230414_Mannheim_1920x1080.jpg)
+
 #### 20230413 斯诺登尼亚国家公园，威尔士，英国 (© Sebastian Wasek/eStock Photo)
 
 ![](images/2023-04/20230413_SnowdoniaNational_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230408 池に咲く睡蓮 (© Masahiro Noguchi/GettyImages)
 
 ![](images/2023-04/20230408_BuddhasBirthday_1920x1080.jpg)
-
-#### 20230407 Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)
-
-![](images/2023-04/20230407_KitsAspen_1920x1080.jpg)
 
 
 
