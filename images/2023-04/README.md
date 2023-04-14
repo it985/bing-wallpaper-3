@@ -1,4 +1,4 @@
-#### 20230414 红海星, 地中海 (© Hans Leijnse/Minden Pictures)
+#### 20230414 Mediterranean red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)
 
 ![](20230414_RedSeaStars_1920x1080.jpg)
 
