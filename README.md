@@ -1,3 +1,11 @@
+#### 20230415 从纳哈加尔城堡鸟瞰斋浦尔，印度 (© Sean3810/iStock/Getty Images Plus)
+
+![](images/2023-04/20230415_NahargarhFort_1920x1080.jpg)
+
+#### 20230415 ギザの大ピラミッド, エジプト (© Sima Diab/Getty Images)
+
+![](images/2023-04/20230415_LorenzoQuinn_1920x1080.jpg)
+
 #### 20230414 Mediterranean red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)
 
 ![](images/2023-04/20230414_RedSeaStars_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230409 Lithuanian Easter eggs (© fotomem/Getty Images)
 
 ![](images/2023-04/20230409_LithuanianEggs_1920x1080.jpg)
-
-#### 20230408 The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)
-
-![](images/2023-04/20230408_NIrelandGiants_1920x1080.jpg)
-
-#### 20230408 池に咲く睡蓮 (© Masahiro Noguchi/GettyImages)
-
-![](images/2023-04/20230408_BuddhasBirthday_1920x1080.jpg)
 
 
 

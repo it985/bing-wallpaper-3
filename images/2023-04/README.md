@@ -1,3 +1,11 @@
+#### 20230415 从纳哈加尔城堡鸟瞰斋浦尔，印度 (© Sean3810/iStock/Getty Images Plus)
+
+![](20230415_NahargarhFort_1920x1080.jpg)
+
+#### 20230415 ギザの大ピラミッド, エジプト (© Sima Diab/Getty Images)
+
+![](20230415_LorenzoQuinn_1920x1080.jpg)
+
 #### 20230414 Mediterranean red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)
 
 ![](20230414_RedSeaStars_1920x1080.jpg)
