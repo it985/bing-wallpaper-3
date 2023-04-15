@@ -1,3 +1,7 @@
+#### 20230415 Japanese cherry blossom trees in High Park, Toronto (© Oleksandra Korobova/Getty Images)
+
+![](images/2023-04/20230415_Thecherryblossomtrees_1920x1080.jpg)
+
 #### 20230415 从纳哈加尔城堡鸟瞰斋浦尔，印度 (© Sean3810/iStock/Getty Images Plus)
 
 ![](images/2023-04/20230415_NahargarhFort_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230410 Colibri d'Allen perché sur la plante patte de kangourou rouge (© GypsyPictureShow/Shutterstock)
 
 ![](images/2023-04/20230410_BirdcountAllen_1920x1080.jpg)
-
-#### 20230409 Lithuanian Easter eggs (© fotomem/Getty Images)
-
-![](images/2023-04/20230409_LithuanianEggs_1920x1080.jpg)
 
 
 

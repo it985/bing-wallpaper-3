@@ -1,3 +1,7 @@
+#### 20230415 Japanese cherry blossom trees in High Park, Toronto (© Oleksandra Korobova/Getty Images)
+
+![](20230415_Thecherryblossomtrees_1920x1080.jpg)
+
 #### 20230415 从纳哈加尔城堡鸟瞰斋浦尔，印度 (© Sean3810/iStock/Getty Images Plus)
 
 ![](20230415_NahargarhFort_1920x1080.jpg)
