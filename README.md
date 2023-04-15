@@ -6,7 +6,7 @@
 
 ![](images/2023-04/20230415_NahargarhFort_1920x1080.jpg)
 
-#### 20230415 ギザの大ピラミッド, エジプト (© Sima Diab/Getty Images)
+#### 20230415 'Together' sculpture by Lorenzo Quinn, Great Pyramids of Giza, Cairo, Egypt (© Sima Diab/Getty Images)
 
 ![](images/2023-04/20230415_LorenzoQuinn_1920x1080.jpg)
 
