@@ -1,3 +1,7 @@
+#### 20230416 阿德莱德国际风筝节，澳大利亚 (© Andrey Moisseyev/Alamy)
+
+![](images/2023-04/20230416_KiteDay_1920x1080.jpg)
+
 #### 20230415 Japanese cherry blossom trees in High Park, Toronto (© Oleksandra Korobova/Getty Images)
 
 ![](images/2023-04/20230415_Thecherryblossomtrees_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230410 Elephant family in Amboseli National Park, Kenya (© Diana Robinson/Getty Images)
 
 ![](images/2023-04/20230410_ElephantTwins_1920x1080.jpg)
-
-#### 20230410 Colibri d'Allen perché sur la plante patte de kangourou rouge (© GypsyPictureShow/Shutterstock)
-
-![](images/2023-04/20230410_BirdcountAllen_1920x1080.jpg)
 
 
 
