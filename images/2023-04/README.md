@@ -1,3 +1,11 @@
+#### 20230417 キュー王立植物園のアートインスタレーション, ロンドン (© Guy Bell/Alamy Live News)
+
+![](20230417_OneThousandSprings_1920x1080.jpg)
+
+#### 20230417 布列塔尼的小米努灯塔，法国 (© RooM the Agency/Alamy)
+
+![](20230417_MinouLighthouse_1920x1080.jpg)
+
 #### 20230416 Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)
 
 ![](20230416_KiteDay_1920x1080.jpg)

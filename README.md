@@ -1,3 +1,11 @@
+#### 20230417 キュー王立植物園のアートインスタレーション, ロンドン (© Guy Bell/Alamy Live News)
+
+![](images/2023-04/20230417_OneThousandSprings_1920x1080.jpg)
+
+#### 20230417 布列塔尼的小米努灯塔，法国 (© RooM the Agency/Alamy)
+
+![](images/2023-04/20230417_MinouLighthouse_1920x1080.jpg)
+
 #### 20230416 Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)
 
 ![](images/2023-04/20230416_KiteDay_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230411 Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)
 
 ![](images/2023-04/20230411_MossyGrottoFalls_1920x1080.jpg)
-
-#### 20230410 Aurora at Two Jack Lake, Banff National Park, Alberta, Canada (© Jesús M. García/Getty Images)
-
-![](images/2023-04/20230410_MilkyWayTwoJackLake_1920x1080.jpg)
-
-#### 20230410 Elephant family in Amboseli National Park, Kenya (© Diana Robinson/Getty Images)
-
-![](images/2023-04/20230410_ElephantTwins_1920x1080.jpg)
 
 
 
