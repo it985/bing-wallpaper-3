@@ -1,4 +1,4 @@
-#### 20230416 阿德莱德国际风筝节，澳大利亚 (© Andrey Moisseyev/Alamy)
+#### 20230416 Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)
 
 ![](20230416_KiteDay_1920x1080.jpg)
 
