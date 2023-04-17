@@ -1,3 +1,7 @@
+#### 20230418 马丘比丘，秘鲁 (© Dora Dalton/Getty Images)
+
+![](20230418_MPPUnesco_1920x1080.jpg)
+
 #### 20230417 'One Thousand Springs' haiku art installation by Chiharu Shiota, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)
 
 ![](20230417_OneThousandSprings_1920x1080.jpg)
