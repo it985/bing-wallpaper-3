@@ -1,4 +1,4 @@
-#### 20230417 キュー王立植物園のアートインスタレーション, ロンドン (© Guy Bell/Alamy Live News)
+#### 20230417 'One Thousand Springs' haiku art installation by Chiharu Shiota, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)
 
 ![](images/2023-04/20230417_OneThousandSprings_1920x1080.jpg)
 
