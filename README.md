@@ -30,6 +30,10 @@
 
 ![](images/2023-04/20230414_RedSeaStars_1920x1080.jpg)
 
+#### 20230414 ジャイアンツ・コーズウェー, イギリス 北アイルランド (© Dieter Meyrl/Getty Images)
+
+![](images/2023-04/20230414_NIrelandGiants_1920x1080.jpg)
+
 #### 20230414 Wasserturm, Mannheim (© tichr/Getty Images)
 
 ![](images/2023-04/20230414_Mannheim_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230411 Canada Continental Divide, Yoho National Park, Canada (© Peter Essick/Cavan Images)
 
 ![](images/2023-04/20230411_TheCanadaContinentalDivide_1920x1080.jpg)
-
-#### 20230411 Tatzelwurm Holzbrücke, Essing, (© Rüdiger Hess/geo-select FotoArt)
-
-![](images/2023-04/20230411_Tatzlwurmbruecke_1920x1080.jpg)
 
 
 

@@ -30,6 +30,10 @@
 
 ![](20230414_RedSeaStars_1920x1080.jpg)
 
+#### 20230414 ジャイアンツ・コーズウェー, イギリス 北アイルランド (© Dieter Meyrl/Getty Images)
+
+![](20230414_NIrelandGiants_1920x1080.jpg)
+
 #### 20230414 Wasserturm, Mannheim (© tichr/Getty Images)
 
 ![](20230414_Mannheim_1920x1080.jpg)
