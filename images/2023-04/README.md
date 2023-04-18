@@ -1,4 +1,4 @@
-#### 20230418 马丘比丘，秘鲁 (© Dora Dalton/Getty Images)
+#### 20230418 Machu Picchu, Peru (© Dora Dalton/Getty Images)
 
 ![](20230418_MPPUnesco_1920x1080.jpg)
 
