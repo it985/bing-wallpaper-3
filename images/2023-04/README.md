@@ -1,3 +1,11 @@
+#### 20230420 南三ツ谷町の水田, 滋賀県彦根市 (© imagewerks/Getty Images)
+
+![](20230420_JapanKokuu_1920x1080.jpg)
+
+#### 20230420 克雷斯特德比特山上方的月食，科罗拉多州，美国 (© Mengzhonghua Photography/Getty Images)
+
+![](20230420_CrestedButteEclispe_1920x1080.jpg)
+
 #### 20230419 Hugh Coltman sur la scène du Printemps de Bourges (© Guillaume Souvant/AFP via Getty Images)
 
 ![](20230419_BourgesFestival_1920x1080.jpg)
