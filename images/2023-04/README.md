@@ -50,7 +50,7 @@
 
 ![](20230413_PhloxSubulata_1920x1080.jpg)
 
-#### 20230412 Yuhina de Taïwan, Aire panoramique nationale d’Alishan, Taïwan (© Staffan Widstrand/Minden Pictures)
+#### 20230412 Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)
 
 ![](20230412_TaiwanYuhina_1920x1080.jpg)
 
