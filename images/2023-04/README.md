@@ -1,3 +1,7 @@
+#### 20230419 Hugh Coltman sur la scène du Printemps de Bourges (© Guillaume Souvant/AFP via Getty Images)
+
+![](20230419_BourgesFestival_1920x1080.jpg)
+
 #### 20230418 Machu Picchu, Peru (© Dora Dalton/Getty Images)
 
 ![](20230418_MPPUnesco_1920x1080.jpg)

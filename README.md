@@ -1,3 +1,7 @@
+#### 20230419 Hugh Coltman sur la scène du Printemps de Bourges (© Guillaume Souvant/AFP via Getty Images)
+
+![](images/2023-04/20230419_BourgesFestival_1920x1080.jpg)
+
 #### 20230418 Machu Picchu, Peru (© Dora Dalton/Getty Images)
 
 ![](images/2023-04/20230418_MPPUnesco_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230412 Earth seen from the International Space Station (© Tim Peake/ESA/NASA via Getty Images)
 
 ![](images/2023-04/20230412_EuropeFromISS_1920x1080.jpg)
-
-#### 20230411 Canada Continental Divide, Yoho National Park, Canada (© Peter Essick/Cavan Images)
-
-![](images/2023-04/20230411_TheCanadaContinentalDivide_1920x1080.jpg)
 
 
 
