@@ -1,3 +1,7 @@
+#### 20230420 Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)
+
+![](20230420_YuanyangChina_1920x1080.jpg)
+
 #### 20230420 南三ツ谷町の水田, 滋賀県彦根市 (© imagewerks/Getty Images)
 
 ![](20230420_JapanKokuu_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20230420 Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)
+
+![](images/2023-04/20230420_YuanyangChina_1920x1080.jpg)
+
 #### 20230420 南三ツ谷町の水田, 滋賀県彦根市 (© imagewerks/Getty Images)
 
 ![](images/2023-04/20230420_JapanKokuu_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230413 斯诺登尼亚国家公园，威尔士，英国 (© Sebastian Wasek/eStock Photo)
 
 ![](images/2023-04/20230413_SnowdoniaNational_1920x1080.jpg)
-
-#### 20230413 Moss pink displays at Hitsujiyama Park, Saitama Prefecture, Japan (© Takashi Images/Shutterstock)
-
-![](images/2023-04/20230413_PhloxSubulata_1920x1080.jpg)
 
 
 
