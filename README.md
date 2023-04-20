@@ -1,6 +1,18 @@
+#### 20230421 Anjuna Beach, Goa, India (© Dmitry Rukhlenko/Shutterstock)
+
+![](images/2023-04/20230421_AnjunaBeachGoa_1920x1080.jpg)
+
 #### 20230420 Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)
 
 ![](images/2023-04/20230420_YuanyangChina_1920x1080.jpg)
+
+#### 20230420 Juniper Springs in Ocala National Forest, Florida (© Michael Warren/Getty Images)
+
+![](images/2023-04/20230420_OcalaNF_1920x1080.jpg)
+
+#### 20230420 Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)
+
+![](images/2023-04/20230420_MossyGrottoFalls_1920x1080.jpg)
 
 #### 20230420 南三ツ谷町の水田, 滋賀県彦根市 (© imagewerks/Getty Images)
 
@@ -45,18 +57,6 @@
 #### 20230414 Mediterranean red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)
 
 ![](images/2023-04/20230414_RedSeaStars_1920x1080.jpg)
-
-#### 20230414 ジャイアンツ・コーズウェー, イギリス 北アイルランド (© Dieter Meyrl/Getty Images)
-
-![](images/2023-04/20230414_NIrelandGiants_1920x1080.jpg)
-
-#### 20230414 Wasserturm, Mannheim (© tichr/Getty Images)
-
-![](images/2023-04/20230414_Mannheim_1920x1080.jpg)
-
-#### 20230413 斯诺登尼亚国家公园，威尔士，英国 (© Sebastian Wasek/eStock Photo)
-
-![](images/2023-04/20230413_SnowdoniaNational_1920x1080.jpg)
 
 
 

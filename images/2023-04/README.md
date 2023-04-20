@@ -1,6 +1,18 @@
+#### 20230421 Anjuna Beach, Goa, India (© Dmitry Rukhlenko/Shutterstock)
+
+![](20230421_AnjunaBeachGoa_1920x1080.jpg)
+
 #### 20230420 Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)
 
 ![](20230420_YuanyangChina_1920x1080.jpg)
+
+#### 20230420 Juniper Springs in Ocala National Forest, Florida (© Michael Warren/Getty Images)
+
+![](20230420_OcalaNF_1920x1080.jpg)
+
+#### 20230420 Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)
+
+![](20230420_MossyGrottoFalls_1920x1080.jpg)
 
 #### 20230420 南三ツ谷町の水田, 滋賀県彦根市 (© imagewerks/Getty Images)
 
