@@ -1,3 +1,7 @@
+#### 20230421 普罗奇达岛，意大利 (© Sean Pavone/Shutterstock)
+
+![](20230421_ProcidaItaly_1920x1080.jpg)
+
 #### 20230421 Anjuna Beach, Goa, India (© Dmitry Rukhlenko/Shutterstock)
 
 ![](20230421_AnjunaBeachGoa_1920x1080.jpg)
@@ -25,6 +29,10 @@
 #### 20230420 克雷斯特德比特山上方的月食，科罗拉多州，美国 (© Mengzhonghua Photography/Getty Images)
 
 ![](20230420_CrestedButteEclispe_1920x1080.jpg)
+
+#### 20230419 Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)
+
+![](20230419_TaiwanYuhina_1920x1080.jpg)
 
 #### 20230419 Hugh Coltman sur la scène du Printemps de Bourges (© Guillaume Souvant/AFP via Getty Images)
 

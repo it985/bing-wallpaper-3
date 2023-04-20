@@ -1,3 +1,7 @@
+#### 20230421 普罗奇达岛，意大利 (© Sean Pavone/Shutterstock)
+
+![](images/2023-04/20230421_ProcidaItaly_1920x1080.jpg)
+
 #### 20230421 Anjuna Beach, Goa, India (© Dmitry Rukhlenko/Shutterstock)
 
 ![](images/2023-04/20230421_AnjunaBeachGoa_1920x1080.jpg)
@@ -26,6 +30,10 @@
 
 ![](images/2023-04/20230420_CrestedButteEclispe_1920x1080.jpg)
 
+#### 20230419 Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)
+
+![](images/2023-04/20230419_TaiwanYuhina_1920x1080.jpg)
+
 #### 20230419 Hugh Coltman sur la scène du Printemps de Bourges (© Guillaume Souvant/AFP via Getty Images)
 
 ![](images/2023-04/20230419_BourgesFestival_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230415 Japanese cherry blossom trees in High Park, Toronto (© Oleksandra Korobova/Getty Images)
 
 ![](images/2023-04/20230415_Thecherryblossomtrees_1920x1080.jpg)
-
-#### 20230415 从纳哈加尔城堡鸟瞰斋浦尔，印度 (© Sean3810/iStock/Getty Images Plus)
-
-![](images/2023-04/20230415_NahargarhFort_1920x1080.jpg)
-
-#### 20230415 'Together' sculpture by Lorenzo Quinn, Great Pyramids of Giza, Cairo, Egypt (© Sima Diab/Getty Images)
-
-![](images/2023-04/20230415_LorenzoQuinn_1920x1080.jpg)
 
 
 
