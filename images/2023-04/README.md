@@ -18,6 +18,10 @@
 
 ![](20230420_JapanKokuu_1920x1080.jpg)
 
+#### 20230420 La Terre depuis la Station Spatiale Internationale (© Tim Peake/ESA/NASA via Getty Images)
+
+![](20230420_EuropeFromISS_1920x1080.jpg)
+
 #### 20230420 克雷斯特德比特山上方的月食，科罗拉多州，美国 (© Mengzhonghua Photography/Getty Images)
 
 ![](20230420_CrestedButteEclispe_1920x1080.jpg)
