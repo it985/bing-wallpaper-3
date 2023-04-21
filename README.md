@@ -2,6 +2,10 @@
 
 ![](images/2023-04/20230421_ProcidaItaly_1920x1080.jpg)
 
+#### 20230421 Saugues et de sa sculpture en bois de la bête du Gevaudan, Haute-Loire (© Gautier Stephane/Alamy Stock Photo)
+
+![](images/2023-04/20230421_Gevaudan_1920x1080.jpg)
+
 #### 20230421 Anjuna Beach, Goa, India (© Dmitry Rukhlenko/Shutterstock)
 
 ![](images/2023-04/20230421_AnjunaBeachGoa_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230416 Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)
 
 ![](images/2023-04/20230416_KiteDay_1920x1080.jpg)
-
-#### 20230415 Japanese cherry blossom trees in High Park, Toronto (© Oleksandra Korobova/Getty Images)
-
-![](images/2023-04/20230415_Thecherryblossomtrees_1920x1080.jpg)
 
 
 

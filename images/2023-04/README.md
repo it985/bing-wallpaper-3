@@ -2,6 +2,10 @@
 
 ![](20230421_ProcidaItaly_1920x1080.jpg)
 
+#### 20230421 Saugues et de sa sculpture en bois de la bête du Gevaudan, Haute-Loire (© Gautier Stephane/Alamy Stock Photo)
+
+![](20230421_Gevaudan_1920x1080.jpg)
+
 #### 20230421 Anjuna Beach, Goa, India (© Dmitry Rukhlenko/Shutterstock)
 
 ![](20230421_AnjunaBeachGoa_1920x1080.jpg)
