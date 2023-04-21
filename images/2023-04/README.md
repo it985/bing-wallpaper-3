@@ -1,4 +1,4 @@
-#### 20230421 普罗奇达岛，意大利 (© Sean Pavone/Shutterstock)
+#### 20230421 Procida, Italy (© Sean Pavone/Shutterstock)
 
 ![](20230421_ProcidaItaly_1920x1080.jpg)
 
