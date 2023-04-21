@@ -1,3 +1,7 @@
+#### 20230422 岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州 (© Ian Shive/Tandem Stills + Motion)
+
+![](20230422_EarthDayFox_1920x1080.jpg)
+
 #### 20230421 Procida, Italy (© Sean Pavone/Shutterstock)
 
 ![](20230421_ProcidaItaly_1920x1080.jpg)
