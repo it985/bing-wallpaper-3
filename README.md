@@ -1,3 +1,11 @@
+#### 20230423 シュトゥットガルト公共図書館, ドイツ (© Axel Brunst/Tandem Stills + Motion)
+
+![](images/2023-04/20230423_StuttgartPublicLibrary_1920x1080.jpg)
+
+#### 20230423 日出时分薄雾笼罩下的薰衣草田，印度 (© Amith Nag Photography/Getty Images)
+
+![](images/2023-04/20230423_Honnavaralavenderfields_1920x1080.jpg)
+
 #### 20230422 Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)
 
 ![](images/2023-04/20230422_EarthDayFox_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230418 Machu Picchu, Peru (© Dora Dalton/Getty Images)
 
 ![](images/2023-04/20230418_MPPUnesco_1920x1080.jpg)
-
-#### 20230417 'One Thousand Springs' haiku art installation by Chiharu Shiota, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)
-
-![](images/2023-04/20230417_OneThousandSprings_1920x1080.jpg)
-
-#### 20230417 布列塔尼的小米努灯塔，法国 (© RooM the Agency/Alamy)
-
-![](images/2023-04/20230417_MinouLighthouse_1920x1080.jpg)
 
 
 

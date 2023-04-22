@@ -1,3 +1,11 @@
+#### 20230423 シュトゥットガルト公共図書館, ドイツ (© Axel Brunst/Tandem Stills + Motion)
+
+![](20230423_StuttgartPublicLibrary_1920x1080.jpg)
+
+#### 20230423 日出时分薄雾笼罩下的薰衣草田，印度 (© Amith Nag Photography/Getty Images)
+
+![](20230423_Honnavaralavenderfields_1920x1080.jpg)
+
 #### 20230422 Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)
 
 ![](20230422_EarthDayFox_1920x1080.jpg)
