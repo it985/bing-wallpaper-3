@@ -1,4 +1,4 @@
-#### 20230422 岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州 (© Ian Shive/Tandem Stills + Motion)
+#### 20230422 Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)
 
 ![](images/2023-04/20230422_EarthDayFox_1920x1080.jpg)
 
