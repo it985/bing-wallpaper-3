@@ -1,3 +1,11 @@
+#### 20230424 マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)
+
+![](20230424_ThreeWildebeest_1920x1080.jpg)
+
+#### 20230424 巴伐利亚森林酒窖，德国 (© Andreas_Zerndl/Getty Images)
+
+![](20230424_FranconianWineCellar_1920x1080.jpg)
+
 #### 20230423 Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)
 
 ![](20230423_StuttgartPublicLibrary_1920x1080.jpg)

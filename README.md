@@ -1,3 +1,11 @@
+#### 20230424 マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)
+
+![](images/2023-04/20230424_ThreeWildebeest_1920x1080.jpg)
+
+#### 20230424 巴伐利亚森林酒窖，德国 (© Andreas_Zerndl/Getty Images)
+
+![](images/2023-04/20230424_FranconianWineCellar_1920x1080.jpg)
+
 #### 20230423 Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)
 
 ![](images/2023-04/20230423_StuttgartPublicLibrary_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230419 Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)
 
 ![](images/2023-04/20230419_TaiwanYuhina_1920x1080.jpg)
-
-#### 20230419 Hugh Coltman sur la scène du Printemps de Bourges (© Guillaume Souvant/AFP via Getty Images)
-
-![](images/2023-04/20230419_BourgesFestival_1920x1080.jpg)
-
-#### 20230418 Machu Picchu, Peru (© Dora Dalton/Getty Images)
-
-![](images/2023-04/20230418_MPPUnesco_1920x1080.jpg)
 
 
 
