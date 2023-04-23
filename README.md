@@ -1,4 +1,4 @@
-#### 20230423 シュトゥットガルト公共図書館, ドイツ (© Axel Brunst/Tandem Stills + Motion)
+#### 20230423 Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)
 
 ![](images/2023-04/20230423_StuttgartPublicLibrary_1920x1080.jpg)
 
