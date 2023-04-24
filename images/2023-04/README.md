@@ -2,7 +2,7 @@
 
 ![](20230424_ThreeWildebeest_1920x1080.jpg)
 
-#### 20230424 巴伐利亚森林酒窖，德国 (© Andreas_Zerndl/Getty Images)
+#### 20230424 Old underground cellar, Bavaria, Germany (© Andreas Zerndl/Getty Images)
 
 ![](20230424_FranconianWineCellar_1920x1080.jpg)
 
