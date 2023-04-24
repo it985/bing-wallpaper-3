@@ -1,3 +1,7 @@
+#### 20230425 阿德利企鹅 (© David Merron Photography/Getty Images)
+
+![](20230425_AdelieWPD_1920x1080.jpg)
+
 #### 20230424 マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)
 
 ![](20230424_ThreeWildebeest_1920x1080.jpg)

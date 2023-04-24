@@ -1,3 +1,7 @@
+#### 20230425 阿德利企鹅 (© David Merron Photography/Getty Images)
+
+![](images/2023-04/20230425_AdelieWPD_1920x1080.jpg)
+
 #### 20230424 マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)
 
 ![](images/2023-04/20230424_ThreeWildebeest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230420 克雷斯特德比特山上方的月食，科罗拉多州，美国 (© Mengzhonghua Photography/Getty Images)
 
 ![](images/2023-04/20230420_CrestedButteEclispe_1920x1080.jpg)
-
-#### 20230419 Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)
-
-![](images/2023-04/20230419_TaiwanYuhina_1920x1080.jpg)
 
 
 
