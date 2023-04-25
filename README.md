@@ -1,3 +1,7 @@
+#### 20230425 Baumwipfelpfad Naturerbezentrum Rügen bei Prora, Rügen (© Sabine Lubenow/Huber/eStock Photo)
+
+![](images/2023-04/20230425_NaturalHeritageCenter_1920x1080.jpg)
+
 #### 20230425 阿德利企鹅 (© David Merron Photography/Getty Images)
 
 ![](images/2023-04/20230425_AdelieWPD_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230420 La Terre depuis la Station Spatiale Internationale (© Tim Peake/ESA/NASA via Getty Images)
 
 ![](images/2023-04/20230420_EuropeFromISS_1920x1080.jpg)
-
-#### 20230420 克雷斯特德比特山上方的月食，科罗拉多州，美国 (© Mengzhonghua Photography/Getty Images)
-
-![](images/2023-04/20230420_CrestedButteEclispe_1920x1080.jpg)
 
 
 
