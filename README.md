@@ -1,3 +1,7 @@
+#### 20230426 大雕鸮幼崽 (© Michael Morse/Getty Images)
+
+![](images/2023-04/20230426_GHOAudubonDay_1920x1080.jpg)
+
 #### 20230425 Baumwipfelpfad Naturerbezentrum Rügen bei Prora, Rügen (© Sabine Lubenow/Huber/eStock Photo)
 
 ![](images/2023-04/20230425_NaturalHeritageCenter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230420 南三ツ谷町の水田, 滋賀県彦根市 (© imagewerks/Getty Images)
 
 ![](images/2023-04/20230420_JapanKokuu_1920x1080.jpg)
-
-#### 20230420 La Terre depuis la Station Spatiale Internationale (© Tim Peake/ESA/NASA via Getty Images)
-
-![](images/2023-04/20230420_EuropeFromISS_1920x1080.jpg)
 
 
 
