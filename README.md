@@ -2,7 +2,7 @@
 
 ![](images/2023-04/20230425_NaturalHeritageCenter_1920x1080.jpg)
 
-#### 20230425 阿德利企鹅 (© David Merron Photography/Getty Images)
+#### 20230425 Adélie penguins in Antarctica (© David Merron Photography/Getty Images)
 
 ![](images/2023-04/20230425_AdelieWPD_1920x1080.jpg)
 
