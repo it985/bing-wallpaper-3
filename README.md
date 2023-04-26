@@ -1,3 +1,7 @@
+#### 20230427 南帕德里岛，美国得克萨斯州 (© Jeff R Clow/Getty Images)
+
+![](images/2023-04/20230427_SouthPadre_1920x1080.jpg)
+
 #### 20230426 Cave and Basin National Historic Site, Sulphur Mountain, Banff National Park, Alberta (© Interfoto/DanitaDelimont.com)
 
 ![](images/2023-04/20230426_SulphurMountain_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230420 Juniper Springs in Ocala National Forest, Florida (© Michael Warren/Getty Images)
 
 ![](images/2023-04/20230420_OcalaNF_1920x1080.jpg)
-
-#### 20230420 Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)
-
-![](images/2023-04/20230420_MossyGrottoFalls_1920x1080.jpg)
 
 
 
