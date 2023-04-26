@@ -2,7 +2,7 @@
 
 ![](images/2023-04/20230426_SulphurMountain_1920x1080.jpg)
 
-#### 20230426 大雕鸮幼崽 (© Michael Morse/Getty Images)
+#### 20230426 Great horned owl fledglings (© Michael Morse/Getty Images)
 
 ![](images/2023-04/20230426_GHOAudubonDay_1920x1080.jpg)
 
