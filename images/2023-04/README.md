@@ -1,3 +1,7 @@
+#### 20230426 Cave and Basin National Historic Site, Sulphur Mountain, Banff National Park, Alberta (© Interfoto/DanitaDelimont.com)
+
+![](20230426_SulphurMountain_1920x1080.jpg)
+
 #### 20230426 大雕鸮幼崽 (© Michael Morse/Getty Images)
 
 ![](20230426_GHOAudubonDay_1920x1080.jpg)

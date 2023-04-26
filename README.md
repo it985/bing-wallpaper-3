@@ -1,3 +1,7 @@
+#### 20230426 Cave and Basin National Historic Site, Sulphur Mountain, Banff National Park, Alberta (© Interfoto/DanitaDelimont.com)
+
+![](images/2023-04/20230426_SulphurMountain_1920x1080.jpg)
+
 #### 20230426 大雕鸮幼崽 (© Michael Morse/Getty Images)
 
 ![](images/2023-04/20230426_GHOAudubonDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230420 Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)
 
 ![](images/2023-04/20230420_MossyGrottoFalls_1920x1080.jpg)
-
-#### 20230420 南三ツ谷町の水田, 滋賀県彦根市 (© imagewerks/Getty Images)
-
-![](images/2023-04/20230420_JapanKokuu_1920x1080.jpg)
 
 
 
