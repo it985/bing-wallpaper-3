@@ -1,4 +1,4 @@
-#### 20230427 南帕德里岛，美国得克萨斯州 (© Jeff R Clow/Getty Images)
+#### 20230427 South Padre Island, Texas (© Jeff R Clow/Getty Images)
 
 ![](images/2023-04/20230427_SouthPadre_1920x1080.jpg)
 
