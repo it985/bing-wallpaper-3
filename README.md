@@ -1,3 +1,7 @@
+#### 20230428 优胜美地国家公园的马里波萨谷巨杉林，美国加利福尼亚州 (© Orbon Alija/Getty Images)
+
+![](images/2023-04/20230428_MariposaGrove_1920x1080.jpg)
+
 #### 20230427 South Padre Island, Texas (© Jeff R Clow/Getty Images)
 
 ![](images/2023-04/20230427_SouthPadre_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230420 Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)
 
 ![](images/2023-04/20230420_YuanyangChina_1920x1080.jpg)
-
-#### 20230420 Juniper Springs in Ocala National Forest, Florida (© Michael Warren/Getty Images)
-
-![](images/2023-04/20230420_OcalaNF_1920x1080.jpg)
 
 
 
