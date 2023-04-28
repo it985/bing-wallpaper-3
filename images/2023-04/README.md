@@ -1,4 +1,4 @@
-#### 20230428 优胜美地国家公园的马里波萨谷巨杉林，美国加利福尼亚州 (© Orbon Alija/Getty Images)
+#### 20230428 Mariposa Grove of Giant Sequoias in Yosemite National Park, California (© Orbon Alija/Getty Images)
 
 ![](20230428_MariposaGrove_1920x1080.jpg)
 
