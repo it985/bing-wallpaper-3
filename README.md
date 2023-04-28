@@ -1,3 +1,7 @@
+#### 20230429 约书亚树国家公园上空的银河，美国加利福尼亚州 (© Schroptschop/Getty Images)
+
+![](images/2023-04/20230429_JTNPMilkyWay_1920x1080.jpg)
+
 #### 20230428 Mariposa Grove of Giant Sequoias in Yosemite National Park, California (© Orbon Alija/Getty Images)
 
 ![](images/2023-04/20230428_MariposaGrove_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230421 Anjuna Beach, Goa, India (© Dmitry Rukhlenko/Shutterstock)
 
 ![](images/2023-04/20230421_AnjunaBeachGoa_1920x1080.jpg)
-
-#### 20230420 Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)
-
-![](images/2023-04/20230420_YuanyangChina_1920x1080.jpg)
 
 
 
