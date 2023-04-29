@@ -1,3 +1,11 @@
+#### 20230430 塞利努斯的神庙，西西里岛，意大利 (© Antonino Bartuccio/eStock)
+
+![](20230430_TempleE_1920x1080.jpg)
+
+#### 20230430 プリザベーション・ホール, 米国 ルイジアナ州 (© Cosmo Condina North America/Alamy)
+
+![](20230430_ExteriorPreservationHall_1920x1080.jpg)
+
 #### 20230429 Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)
 
 ![](20230429_JTNPMilkyWay_1920x1080.jpg)

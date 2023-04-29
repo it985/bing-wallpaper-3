@@ -1,3 +1,11 @@
+#### 20230430 塞利努斯的神庙，西西里岛，意大利 (© Antonino Bartuccio/eStock)
+
+![](images/2023-04/20230430_TempleE_1920x1080.jpg)
+
+#### 20230430 プリザベーション・ホール, 米国 ルイジアナ州 (© Cosmo Condina North America/Alamy)
+
+![](images/2023-04/20230430_ExteriorPreservationHall_1920x1080.jpg)
+
 #### 20230429 Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)
 
 ![](images/2023-04/20230429_JTNPMilkyWay_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230421 Procida, Italy (© Sean Pavone/Shutterstock)
 
 ![](images/2023-04/20230421_ProcidaItaly_1920x1080.jpg)
-
-#### 20230421 Saugues et de sa sculpture en bois de la bête du Gevaudan, Haute-Loire (© Gautier Stephane/Alamy Stock Photo)
-
-![](images/2023-04/20230421_Gevaudan_1920x1080.jpg)
-
-#### 20230421 Anjuna Beach, Goa, India (© Dmitry Rukhlenko/Shutterstock)
-
-![](images/2023-04/20230421_AnjunaBeachGoa_1920x1080.jpg)
 
 
 
