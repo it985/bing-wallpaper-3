@@ -1,4 +1,4 @@
-#### 20230429 约书亚树国家公园上空的银河，美国加利福尼亚州 (© Schroptschop/Getty Images)
+#### 20230429 Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)
 
 ![](20230429_JTNPMilkyWay_1920x1080.jpg)
 
