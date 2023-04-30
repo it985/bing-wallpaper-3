@@ -2,7 +2,7 @@
 
 ![](20230430_TempleE_1920x1080.jpg)
 
-#### 20230430 プリザベーション・ホール, 米国 ルイジアナ州 (© Cosmo Condina North America/Alamy)
+#### 20230430 Preservation Hall, New Orleans, Louisiana (© Cosmo Condina North America/Alamy)
 
 ![](20230430_ExteriorPreservationHall_1920x1080.jpg)
 
