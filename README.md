@@ -10,6 +10,10 @@
 
 ![](images/2023-05/20230501_LilyLaborDay_1920x1080.jpg)
 
+#### 20230501 Korean Bell of Friendship, Los Angeles (© Carlos Marin/Getty Images)
+
+![](images/2023-05/20230501_KoreanBell_1920x1080.jpg)
+
 #### 20230501 シルブレッタアルプスと湖, スイス (© Florin Baumann/Getty Images)
 
 ![](images/2023-05/20230501_KlostersSerneus_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230424 マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)
 
 ![](images/2023-04/20230424_ThreeWildebeest_1920x1080.jpg)
-
-#### 20230424 Old underground cellar, Bavaria, Germany (© Andreas Zerndl/Getty Images)
-
-![](images/2023-04/20230424_FranconianWineCellar_1920x1080.jpg)
 
 
 
