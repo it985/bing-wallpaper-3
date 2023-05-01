@@ -1,3 +1,7 @@
+#### 20230502 円形茶畑, 京都府 相楽郡 (© Tuul and Bruno Morandi/Alamy Stock Photo)
+
+![](images/2023-05/20230502_Hachijyuhachi_1920x1080.jpg)
+
 #### 20230501 Biene im Sonnenblumenfeld bei Fresdorf (© Ralf Hirschberger/dpa-Zentralbild/dpa/Alamy Live News)
 
 ![](images/2023-05/20230501_SunflowerBee_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230425 Adélie penguins in Antarctica (© David Merron Photography/Getty Images)
 
 ![](images/2023-04/20230425_AdelieWPD_1920x1080.jpg)
-
-#### 20230424 マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)
-
-![](images/2023-04/20230424_ThreeWildebeest_1920x1080.jpg)
 
 
 

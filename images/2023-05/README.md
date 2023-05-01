@@ -1,3 +1,7 @@
+#### 20230502 円形茶畑, 京都府 相楽郡 (© Tuul and Bruno Morandi/Alamy Stock Photo)
+
+![](20230502_Hachijyuhachi_1920x1080.jpg)
+
 #### 20230501 Biene im Sonnenblumenfeld bei Fresdorf (© Ralf Hirschberger/dpa-Zentralbild/dpa/Alamy Live News)
 
 ![](20230501_SunflowerBee_1920x1080.jpg)
