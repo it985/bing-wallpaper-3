@@ -1,3 +1,7 @@
+#### 20230503 国会議事堂, 東京都 千代田区 (© Sean Pavone/Alamy Stock Photo)
+
+![](20230503_Constitution_1920x1080.jpg)
+
 #### 20230502 円形茶畑, 京都府 相楽郡 (© Tuul and Bruno Morandi/Alamy Stock Photo)
 
 ![](20230502_Hachijyuhachi_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20230503 国会議事堂, 東京都 千代田区 (© Sean Pavone/Alamy Stock Photo)
+
+![](images/2023-05/20230503_Constitution_1920x1080.jpg)
+
 #### 20230502 円形茶畑, 京都府 相楽郡 (© Tuul and Bruno Morandi/Alamy Stock Photo)
 
 ![](images/2023-05/20230502_Hachijyuhachi_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230425 Baumwipfelpfad Naturerbezentrum Rügen bei Prora, Rügen (© Sabine Lubenow/Huber/eStock Photo)
 
 ![](images/2023-04/20230425_NaturalHeritageCenter_1920x1080.jpg)
-
-#### 20230425 Adélie penguins in Antarctica (© David Merron Photography/Getty Images)
-
-![](images/2023-04/20230425_AdelieWPD_1920x1080.jpg)
 
 
 
