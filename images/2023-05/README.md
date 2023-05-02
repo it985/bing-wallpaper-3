@@ -18,7 +18,7 @@
 
 ![](20230501_KoreanBell_1920x1080.jpg)
 
-#### 20230501 シルブレッタアルプスと湖, スイス (© Florin Baumann/Getty Images)
+#### 20230501 Jöriseen lakes in the Silvretta Alps, Switzerland (© Florin Baumann/Getty Images)
 
 ![](20230501_KlostersSerneus_1920x1080.jpg)
 
