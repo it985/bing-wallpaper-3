@@ -34,7 +34,7 @@
 
 ![](20230425_AdelieWPD_1920x1080.jpg)
 
-#### 20230424 マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)
+#### 20230424 Wildebeests in the Maasai Mara National Reserve, Kenya (© Matt Polski/Getty Images)
 
 ![](20230424_ThreeWildebeest_1920x1080.jpg)
 
