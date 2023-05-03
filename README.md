@@ -1,3 +1,7 @@
+#### 20230504 蒂卡尔的玛雅遗址，危地马拉 (© THP Creative/Getty Images)
+
+![](images/2023-05/20230504_RebelBase_1920x1080.jpg)
+
 #### 20230503 国会議事堂, 東京都 千代田区 (© Sean Pavone/Alamy Stock Photo)
 
 ![](images/2023-05/20230503_Constitution_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230426 Great horned owl fledglings (© Michael Morse/Getty Images)
 
 ![](images/2023-04/20230426_GHOAudubonDay_1920x1080.jpg)
-
-#### 20230425 Baumwipfelpfad Naturerbezentrum Rügen bei Prora, Rügen (© Sabine Lubenow/Huber/eStock Photo)
-
-![](images/2023-04/20230425_NaturalHeritageCenter_1920x1080.jpg)
 
 
 
