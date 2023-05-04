@@ -1,4 +1,4 @@
-#### 20230504 蒂卡尔的玛雅遗址，危地马拉 (© THP Creative/Getty Images)
+#### 20230504 Mayan ruins in Tikal, Guatemala (© THP Creative/Getty Images)
 
 ![](20230504_RebelBase_1920x1080.jpg)
 
