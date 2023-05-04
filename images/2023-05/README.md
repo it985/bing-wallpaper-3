@@ -1,3 +1,11 @@
+#### 20230505 普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥 (© Radius Images/Shutterstock)
+
+![](20230505_Popocatepetl_1920x1080.jpg)
+
+#### 20230505 風に泳ぐ鯉のぼり (© rai/Adobe Stock)
+
+![](20230505_ChildDay_1920x1080.jpg)
+
 #### 20230504 Mayan ruins in Tikal, Guatemala (© THP Creative/Getty Images)
 
 ![](20230504_RebelBase_1920x1080.jpg)
