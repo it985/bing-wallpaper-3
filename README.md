@@ -14,6 +14,10 @@
 
 ![](images/2023-05/20230504_RebelBase_1920x1080.jpg)
 
+#### 20230503 Wildebeests in the Maasai Mara National Reserve, Kenya (© Matt Polski/Getty Images)
+
+![](images/2023-05/20230503_ThreeWildebeest_1920x1080.jpg)
+
 #### 20230503 国会議事堂, 東京都 千代田区 (© Sean Pavone/Alamy Stock Photo)
 
 ![](images/2023-05/20230503_Constitution_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230429 Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)
 
 ![](images/2023-04/20230429_JTNPMilkyWay_1920x1080.jpg)
-
-#### 20230428 Mariposa Grove of Giant Sequoias in Yosemite National Park, California (© Orbon Alija/Getty Images)
-
-![](images/2023-04/20230428_MariposaGrove_1920x1080.jpg)
 
 
 

@@ -14,6 +14,10 @@
 
 ![](20230504_RebelBase_1920x1080.jpg)
 
+#### 20230503 Wildebeests in the Maasai Mara National Reserve, Kenya (© Matt Polski/Getty Images)
+
+![](20230503_ThreeWildebeest_1920x1080.jpg)
+
 #### 20230503 国会議事堂, 東京都 千代田区 (© Sean Pavone/Alamy Stock Photo)
 
 ![](20230503_Constitution_1920x1080.jpg)
