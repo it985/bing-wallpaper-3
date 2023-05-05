@@ -1,3 +1,11 @@
+#### 20230506 大麦和矢车菊, 诺德豪森, 德国 (© Mandy Tabatt/Getty Images)
+
+![](20230506_Kornblume_1920x1080.jpg)
+
+#### 20230506 黄梅山, 韓国 (© Stock for you/Shutterstock)
+
+![](20230506_HwangmaesanAzaleas_1920x1080.jpg)
+
 #### 20230506 Sasso Caveoso, Basilicata, Matera, Italy (© Riccardo Spila/eStock)
 
 ![](20230506_BasilicataMatera_1920x1080.jpg)
