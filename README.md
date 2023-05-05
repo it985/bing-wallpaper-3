@@ -1,4 +1,8 @@
-#### 20230505 普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥 (© Radius Images/Shutterstock)
+#### 20230506 Sasso Caveoso, Basilicata, Matera, Italy (© Riccardo Spila/eStock)
+
+![](images/2023-05/20230506_BasilicataMatera_1920x1080.jpg)
+
+#### 20230505 Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)
 
 ![](images/2023-05/20230505_Popocatepetl_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20230428 Mariposa Grove of Giant Sequoias in Yosemite National Park, California (© Orbon Alija/Getty Images)
 
 ![](images/2023-04/20230428_MariposaGrove_1920x1080.jpg)
-
-#### 20230427 South Padre Island, Texas (© Jeff R Clow/Getty Images)
-
-![](images/2023-04/20230427_SouthPadre_1920x1080.jpg)
 
 
 
