@@ -6,7 +6,7 @@
 
 ![](20230506_Kornblume_1920x1080.jpg)
 
-#### 20230506 黄梅山, 韓国 (© Stock for you/Shutterstock)
+#### 20230506 Royal azaleas in bloom on Hwangmaesan Mountain, South Korea (© Stock for you/Shutterstock)
 
 ![](20230506_HwangmaesanAzaleas_1920x1080.jpg)
 
