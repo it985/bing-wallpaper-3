@@ -1,3 +1,7 @@
+#### 20230506 Feuerwerk in Speyer Rheinland-Pfalz (© Janny2/iStock/Getty Images Plus)
+
+![](20230506_RheininFlammen_1920x1080.jpg)
+
 #### 20230506 大麦和矢车菊, 诺德豪森, 德国 (© Mandy Tabatt/Getty Images)
 
 ![](20230506_Kornblume_1920x1080.jpg)

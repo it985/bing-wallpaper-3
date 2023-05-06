@@ -1,3 +1,7 @@
+#### 20230506 Feuerwerk in Speyer Rheinland-Pfalz (© Janny2/iStock/Getty Images Plus)
+
+![](images/2023-05/20230506_RheininFlammen_1920x1080.jpg)
+
 #### 20230506 大麦和矢车菊, 诺德豪森, 德国 (© Mandy Tabatt/Getty Images)
 
 ![](images/2023-05/20230506_Kornblume_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230501 Jöriseen lakes in the Silvretta Alps, Switzerland (© Florin Baumann/Getty Images)
 
 ![](images/2023-05/20230501_KlostersSerneus_1920x1080.jpg)
-
-#### 20230430 塞利努斯的神庙，西西里岛，意大利 (© Antonino Bartuccio/eStock)
-
-![](images/2023-04/20230430_TempleE_1920x1080.jpg)
 
 
 
