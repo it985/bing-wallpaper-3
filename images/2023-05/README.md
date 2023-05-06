@@ -1,3 +1,7 @@
+#### 20230507 海豹幼崽，伦迪岛，英国 (© Henley Spiers/Minden Pictures)
+
+![](20230507_SealLaughing_1920x1080.jpg)
+
 #### 20230506 Feuerwerk in Speyer Rheinland-Pfalz (© Janny2/iStock/Getty Images Plus)
 
 ![](20230506_RheininFlammen_1920x1080.jpg)

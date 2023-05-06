@@ -1,3 +1,7 @@
+#### 20230507 海豹幼崽，伦迪岛，英国 (© Henley Spiers/Minden Pictures)
+
+![](images/2023-05/20230507_SealLaughing_1920x1080.jpg)
+
 #### 20230506 Feuerwerk in Speyer Rheinland-Pfalz (© Janny2/iStock/Getty Images Plus)
 
 ![](images/2023-05/20230506_RheininFlammen_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230501 Korean Bell of Friendship, Los Angeles (© Carlos Marin/Getty Images)
 
 ![](images/2023-05/20230501_KoreanBell_1920x1080.jpg)
-
-#### 20230501 Jöriseen lakes in the Silvretta Alps, Switzerland (© Florin Baumann/Getty Images)
-
-![](images/2023-05/20230501_KlostersSerneus_1920x1080.jpg)
 
 
 
