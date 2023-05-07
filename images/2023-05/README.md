@@ -1,4 +1,4 @@
-#### 20230507 海豹幼崽，伦迪岛，英国 (© Henley Spiers/Minden Pictures)
+#### 20230507 Gray seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)
 
 ![](20230507_SealLaughing_1920x1080.jpg)
 
