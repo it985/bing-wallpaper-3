@@ -1,3 +1,7 @@
+#### 20230508 精致拱门，拱门国家公园，犹他州 (© Mark Brodkin Photography/Getty Images)
+
+![](images/2023-05/20230508_TheChaps_1920x1080.jpg)
+
 #### 20230507 Gray seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)
 
 ![](images/2023-05/20230507_SealLaughing_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230501 Muguet de mai en fleurs (© shapencolour/Alamy Stock Photo)
 
 ![](images/2023-05/20230501_LilyLaborDay_1920x1080.jpg)
-
-#### 20230501 Korean Bell of Friendship, Los Angeles (© Carlos Marin/Getty Images)
-
-![](images/2023-05/20230501_KoreanBell_1920x1080.jpg)
 
 
 

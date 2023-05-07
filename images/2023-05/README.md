@@ -1,3 +1,7 @@
+#### 20230508 精致拱门，拱门国家公园，犹他州 (© Mark Brodkin Photography/Getty Images)
+
+![](20230508_TheChaps_1920x1080.jpg)
+
 #### 20230507 Gray seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)
 
 ![](20230507_SealLaughing_1920x1080.jpg)
