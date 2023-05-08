@@ -1,3 +1,11 @@
+#### 20230509 フエルテベントゥラ島, スペイン (© Gavin Hellier/Getty Images)
+
+![](20230509_MorroJable_1920x1080.jpg)
+
+#### 20230509 卡韦希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame/Alamy)
+
+![](20230509_Atoll_1920x1080.jpg)
+
 #### 20230508 Delicate Arch, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)
 
 ![](20230508_TheChaps_1920x1080.jpg)
