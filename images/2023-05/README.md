@@ -2,6 +2,10 @@
 
 ![](20230508_TheChaps_1920x1080.jpg)
 
+#### 20230508 Port Vieux-Bassin de Honfleur, Calvados, Normandie (© Francesco Carovillano/SOPA Collection/Shutterstock)
+
+![](20230508_Huitmai_1920x1080.jpg)
+
 #### 20230507 Gray seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)
 
 ![](20230507_SealLaughing_1920x1080.jpg)
