@@ -2,6 +2,10 @@
 
 ![](images/2023-05/20230509_MuttartConservatory_1920x1080.jpg)
 
+#### 20230509 Poenari Castle on Mount Cetatea, Făgăraș Mountains, Romania (© porojnicu/Getty Images)
+
+![](images/2023-05/20230509_MountCetatea_1920x1080.jpg)
+
 #### 20230509 フエルテベントゥラ島, スペイン (© Gavin Hellier/Getty Images)
 
 ![](images/2023-05/20230509_MorroJable_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230503 Wildebeests in the Maasai Mara National Reserve, Kenya (© Matt Polski/Getty Images)
 
 ![](images/2023-05/20230503_ThreeWildebeest_1920x1080.jpg)
-
-#### 20230503 国会議事堂, 東京都 千代田区 (© Sean Pavone/Alamy Stock Photo)
-
-![](images/2023-05/20230503_Constitution_1920x1080.jpg)
 
 
 
