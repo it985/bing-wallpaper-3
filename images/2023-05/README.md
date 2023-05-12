@@ -1,4 +1,4 @@
-#### 20230512 紫色和蓝色的野生羽扇豆 (© silverjohn/Getty Images Plus)
+#### 20230512 Wild lupines in bloom (© silverjohn/Getty Images Plus)
 
 ![](20230512_WildLupine_1920x1080.jpg)
 
