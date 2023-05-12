@@ -2,6 +2,10 @@
 
 ![](images/2023-05/20230512_WildLupine_1920x1080.jpg)
 
+#### 20230512 Tulip festival Ottawa Canada (© Jean-Claude Caprara/iStock/Getty Images Plus)
+
+![](images/2023-05/20230512_OttawaTulipFestival_1920x1080.jpg)
+
 #### 20230511 Henningsvær Stadion, Norway (© Morten Falch Sortland/Getty Images)
 
 ![](images/2023-05/20230511_FootballField_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230506 Sasso Caveoso, Basilicata, Matera, Italy (© Riccardo Spila/eStock)
 
 ![](images/2023-05/20230506_BasilicataMatera_1920x1080.jpg)
-
-#### 20230505 Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)
-
-![](images/2023-05/20230505_Popocatepetl_1920x1080.jpg)
 
 
 
