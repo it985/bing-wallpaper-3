@@ -1,3 +1,11 @@
+#### 20230513 ソニーボノ・ソルトン湖国立野生生物保護区, 米国 カリフォルニア州 (© David McNew/Getty Images)
+
+![](20230513_SonnyBonoPelicans_1920x1080.jpg)
+
+#### 20230513 曼海姆水塔，德国 (© tichr/Getty Images)
+
+![](20230513_Mannheim_1920x1080.jpg)
+
 #### 20230512 Wild lupines in bloom (© silverjohn/Getty Images Plus)
 
 ![](20230512_WildLupine_1920x1080.jpg)

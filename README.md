@@ -1,3 +1,11 @@
+#### 20230513 ソニーボノ・ソルトン湖国立野生生物保護区, 米国 カリフォルニア州 (© David McNew/Getty Images)
+
+![](images/2023-05/20230513_SonnyBonoPelicans_1920x1080.jpg)
+
+#### 20230513 曼海姆水塔，德国 (© tichr/Getty Images)
+
+![](images/2023-05/20230513_Mannheim_1920x1080.jpg)
+
 #### 20230512 Wild lupines in bloom (© silverjohn/Getty Images Plus)
 
 ![](images/2023-05/20230512_WildLupine_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230506 大麦和矢车菊, 诺德豪森, 德国 (© Mandy Tabatt/Getty Images)
 
 ![](images/2023-05/20230506_Kornblume_1920x1080.jpg)
-
-#### 20230506 Royal azaleas in bloom on Hwangmaesan Mountain, South Korea (© Stock for you/Shutterstock)
-
-![](images/2023-05/20230506_HwangmaesanAzaleas_1920x1080.jpg)
-
-#### 20230506 Sasso Caveoso, Basilicata, Matera, Italy (© Riccardo Spila/eStock)
-
-![](images/2023-05/20230506_BasilicataMatera_1920x1080.jpg)
 
 
 
