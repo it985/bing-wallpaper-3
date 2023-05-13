@@ -1,3 +1,7 @@
+#### 20230514 白尾鹿母鹿和刚出生的小鹿，美国蒙大拿州 (© Donald M. Jones/Minden Pictures)
+
+![](images/2023-05/20230514_OdocoileusVirginianus_1920x1080.jpg)
+
 #### 20230513 Pelicans at Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)
 
 ![](images/2023-05/20230513_SonnyBonoPelicans_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230506 Feuerwerk in Speyer Rheinland-Pfalz (© Janny2/iStock/Getty Images Plus)
 
 ![](images/2023-05/20230506_RheininFlammen_1920x1080.jpg)
-
-#### 20230506 大麦和矢车菊, 诺德豪森, 德国 (© Mandy Tabatt/Getty Images)
-
-![](images/2023-05/20230506_Kornblume_1920x1080.jpg)
 
 
 
