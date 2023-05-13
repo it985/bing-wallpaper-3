@@ -1,4 +1,4 @@
-#### 20230513 ソニーボノ・ソルトン湖国立野生生物保護区, 米国 カリフォルニア州 (© David McNew/Getty Images)
+#### 20230513 Pelicans at Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)
 
 ![](images/2023-05/20230513_SonnyBonoPelicans_1920x1080.jpg)
 
