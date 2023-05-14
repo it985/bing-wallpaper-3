@@ -1,3 +1,7 @@
+#### 20230515 葵祭, 京都 下鴨神社 (© The Asahi Shimbun/Getty Images)
+
+![](images/2023-05/20230515_AoiMatsuri_1920x1080.jpg)
+
 #### 20230514 Procida, Italie (© Sean Pavone/Shutterstock)
 
 ![](images/2023-05/20230514_ProcidaItaly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230508 Port Vieux-Bassin de Honfleur, Calvados, Normandie (© Francesco Carovillano/SOPA Collection/Shutterstock)
 
 ![](images/2023-05/20230508_Huitmai_1920x1080.jpg)
-
-#### 20230507 Gray seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)
-
-![](images/2023-05/20230507_SealLaughing_1920x1080.jpg)
 
 
 
