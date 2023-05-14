@@ -1,3 +1,7 @@
+#### 20230514 Procida, Italie (© Sean Pavone/Shutterstock)
+
+![](20230514_ProcidaItaly_1920x1080.jpg)
+
 #### 20230514 白尾鹿母鹿和刚出生的小鹿，美国蒙大拿州 (© Donald M. Jones/Minden Pictures)
 
 ![](20230514_OdocoileusVirginianus_1920x1080.jpg)
