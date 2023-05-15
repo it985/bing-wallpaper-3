@@ -42,7 +42,7 @@
 
 ![](images/2023-05/20230509_MountCetatea_1920x1080.jpg)
 
-#### 20230509 フエルテベントゥラ島, スペイン (© Gavin Hellier/Getty Images)
+#### 20230509 Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)
 
 ![](images/2023-05/20230509_MorroJable_1920x1080.jpg)
 
