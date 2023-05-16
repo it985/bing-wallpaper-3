@@ -1,3 +1,7 @@
+#### 20230517 加利福尼亚州圣克鲁斯的天然桥州立公园 (© Jim Patterson/Tandem Stills + Motion)
+
+![](images/2023-05/20230517_CormorantBridge_1920x1080.jpg)
+
 #### 20230516 Îles de Lerins, Cannes, Côtes d’Azur (© Hemis/Alamy Stock Photo)
 
 ![](images/2023-05/20230516_FestivalCannes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230509 Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)
 
 ![](images/2023-05/20230509_MorroJable_1920x1080.jpg)
-
-#### 20230509 卡韦希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame/Alamy)
-
-![](images/2023-05/20230509_Atoll_1920x1080.jpg)
 
 
 
