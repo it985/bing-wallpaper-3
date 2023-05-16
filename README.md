@@ -1,3 +1,7 @@
+#### 20230516 Îles de Lerins, Cannes, Côtes d’Azur (© Hemis/Alamy Stock Photo)
+
+![](images/2023-05/20230516_FestivalCannes_1920x1080.jpg)
+
 #### 20230516 在奥克弗诺基国家野生动物保护区划独木舟 (© Brad Beck/Tandem Stills + Motion)
 
 ![](images/2023-05/20230516_AmericanWetlands_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230509 卡韦希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame/Alamy)
 
 ![](images/2023-05/20230509_Atoll_1920x1080.jpg)
-
-#### 20230508 Delicate Arch, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)
-
-![](images/2023-05/20230508_TheChaps_1920x1080.jpg)
 
 
 
