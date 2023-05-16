@@ -2,7 +2,7 @@
 
 ![](images/2023-05/20230516_FestivalCannes_1920x1080.jpg)
 
-#### 20230516 在奥克弗诺基国家野生动物保护区划独木舟 (© Brad Beck/Tandem Stills + Motion)
+#### 20230516 Canoeing in Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)
 
 ![](images/2023-05/20230516_AmericanWetlands_1920x1080.jpg)
 
