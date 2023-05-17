@@ -1,3 +1,11 @@
+#### 20230518 拉曼加，穆尔西亚，西班牙 (© SOMATUSCANI/Getty Images)
+
+![](20230518_SardineBurial_1920x1080.jpg)
+
+#### 20230518 ソウマヤ美術館プラザカルソ館, メキシコ メキシコシティ (© Juan Romero/Alamy)
+
+![](20230518_MuseoSoumaya_1920x1080.jpg)
+
 #### 20230517 Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](20230517_CormorantBridge_1920x1080.jpg)

@@ -1,3 +1,11 @@
+#### 20230518 拉曼加，穆尔西亚，西班牙 (© SOMATUSCANI/Getty Images)
+
+![](images/2023-05/20230518_SardineBurial_1920x1080.jpg)
+
+#### 20230518 ソウマヤ美術館プラザカルソ館, メキシコ メキシコシティ (© Juan Romero/Alamy)
+
+![](images/2023-05/20230518_MuseoSoumaya_1920x1080.jpg)
+
 #### 20230517 Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2023-05/20230517_CormorantBridge_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230509 Muttart Conservatory, Alberta, Canada (© Tetra Images Photography/Shutterstock)
 
 ![](images/2023-05/20230509_MuttartConservatory_1920x1080.jpg)
-
-#### 20230509 Poenari Castle on Mount Cetatea, Făgăraș Mountains, Romania (© porojnicu/Getty Images)
-
-![](images/2023-05/20230509_MountCetatea_1920x1080.jpg)
-
-#### 20230509 Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)
-
-![](images/2023-05/20230509_MorroJable_1920x1080.jpg)
 
 
 
