@@ -1,4 +1,4 @@
-#### 20230517 加利福尼亚州圣克鲁斯的天然桥州立公园 (© Jim Patterson/Tandem Stills + Motion)
+#### 20230517 Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2023-05/20230517_CormorantBridge_1920x1080.jpg)
 
