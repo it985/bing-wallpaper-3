@@ -2,7 +2,7 @@
 
 ![](images/2023-05/20230518_SardineBurial_1920x1080.jpg)
 
-#### 20230518 ソウマヤ美術館プラザカルソ館, メキシコ メキシコシティ (© Juan Romero/Alamy)
+#### 20230518 Museo Soumaya, Plaza Carso, Mexico City, Mexico (© Juan Romero/Alamy)
 
 ![](images/2023-05/20230518_MuseoSoumaya_1920x1080.jpg)
 
