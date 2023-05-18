@@ -6,6 +6,10 @@
 
 ![](images/2023-05/20230518_MuseoSoumaya_1920x1080.jpg)
 
+#### 20230518 Wiedehopf füttert seine Jungen nach der Exkursion, Biosphärenreservat Mittelelbe, Sachsen-Anhalt (© imageBROKER/Martin Demmel/GettyImages)
+
+![](images/2023-05/20230518_HoopoeFathersday_1920x1080.jpg)
+
 #### 20230517 Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2023-05/20230517_CormorantBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230510 Cordouan Lighthouse, Royan, Charente, France (© FRTimelapse/Getty Images)
 
 ![](images/2023-05/20230510_CordouanLighthouse_1920x1080.jpg)
-
-#### 20230509 Muttart Conservatory, Alberta, Canada (© Tetra Images Photography/Shutterstock)
-
-![](images/2023-05/20230509_MuttartConservatory_1920x1080.jpg)
 
 
 

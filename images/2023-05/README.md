@@ -6,6 +6,10 @@
 
 ![](20230518_MuseoSoumaya_1920x1080.jpg)
 
+#### 20230518 Wiedehopf füttert seine Jungen nach der Exkursion, Biosphärenreservat Mittelelbe, Sachsen-Anhalt (© imageBROKER/Martin Demmel/GettyImages)
+
+![](20230518_HoopoeFathersday_1920x1080.jpg)
+
 #### 20230517 Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](20230517_CormorantBridge_1920x1080.jpg)
