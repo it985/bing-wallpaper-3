@@ -1,3 +1,7 @@
+#### 20230520 谢菲尔德的欧洲蜜蜂, 英格兰 (© Deborah Vernon/Alamy)
+
+![](20230520_EuropeanHoneybee_1920x1080.jpg)
+
 #### 20230519 Sumatran rhinoceros female eating leaves, Way Kambas National Park, Sumatra, Indonesia (© Cyril Ruoso/Minden Pictures)
 
 ![](20230519_SumatranRhino_1920x1080.jpg)

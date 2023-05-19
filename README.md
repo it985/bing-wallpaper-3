@@ -1,3 +1,7 @@
+#### 20230520 谢菲尔德的欧洲蜜蜂, 英格兰 (© Deborah Vernon/Alamy)
+
+![](images/2023-05/20230520_EuropeanHoneybee_1920x1080.jpg)
+
 #### 20230519 Sumatran rhinoceros female eating leaves, Way Kambas National Park, Sumatra, Indonesia (© Cyril Ruoso/Minden Pictures)
 
 ![](images/2023-05/20230519_SumatranRhino_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230512 Tulip festival Ottawa Canada (© Jean-Claude Caprara/iStock/Getty Images Plus)
 
 ![](images/2023-05/20230512_OttawaTulipFestival_1920x1080.jpg)
-
-#### 20230511 Henningsvær Stadion, Norway (© Morten Falch Sortland/Getty Images)
-
-![](images/2023-05/20230511_FootballField_1920x1080.jpg)
 
 
 
