@@ -1,4 +1,4 @@
-#### 20230519 苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚 (© Cyril Ruoso/Minden Pictures)
+#### 20230519 Sumatran rhinoceros female eating leaves, Way Kambas National Park, Sumatra, Indonesia (© Cyril Ruoso/Minden Pictures)
 
 ![](20230519_SumatranRhino_1920x1080.jpg)
 
