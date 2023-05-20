@@ -1,4 +1,4 @@
-#### 20230520 谢菲尔德的欧洲蜜蜂, 英格兰 (© Deborah Vernon/Alamy)
+#### 20230520 European honeybees in Sheffield, England (© Deborah Vernon/Alamy)
 
 ![](20230520_EuropeanHoneybee_1920x1080.jpg)
 
