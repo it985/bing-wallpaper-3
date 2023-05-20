@@ -1,3 +1,11 @@
+#### 20230521 露が輝く麦の穂 (© mariko satou/iStock/Getty Images Plus)
+
+![](20230521_wheat_1920x1080.jpg)
+
+#### 20230521 塞纳河，巴黎，法国 (© StockByM/Getty Images)
+
+![](20230521_PontdArcole_1920x1080.jpg)
+
 #### 20230520 European honeybees in Sheffield, England (© Deborah Vernon/Alamy)
 
 ![](20230520_EuropeanHoneybee_1920x1080.jpg)

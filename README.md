@@ -1,3 +1,11 @@
+#### 20230521 露が輝く麦の穂 (© mariko satou/iStock/Getty Images Plus)
+
+![](images/2023-05/20230521_wheat_1920x1080.jpg)
+
+#### 20230521 塞纳河，巴黎，法国 (© StockByM/Getty Images)
+
+![](images/2023-05/20230521_PontdArcole_1920x1080.jpg)
+
 #### 20230520 European honeybees in Sheffield, England (© Deborah Vernon/Alamy)
 
 ![](images/2023-05/20230520_EuropeanHoneybee_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230513 曼海姆水塔，德国 (© tichr/Getty Images)
 
 ![](images/2023-05/20230513_Mannheim_1920x1080.jpg)
-
-#### 20230512 Wild lupines in bloom (© silverjohn/Getty Images Plus)
-
-![](images/2023-05/20230512_WildLupine_1920x1080.jpg)
-
-#### 20230512 Tulip festival Ottawa Canada (© Jean-Claude Caprara/iStock/Getty Images Plus)
-
-![](images/2023-05/20230512_OttawaTulipFestival_1920x1080.jpg)
 
 
 
