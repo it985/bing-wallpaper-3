@@ -38,6 +38,10 @@
 
 ![](20230516_AmericanWetlands_1920x1080.jpg)
 
+#### 20230515 Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)
+
+![](20230515_MorroJable_1920x1080.jpg)
+
 #### 20230515 葵祭, 京都 下鴨神社 (© The Asahi Shimbun/Getty Images)
 
 ![](20230515_AoiMatsuri_1920x1080.jpg)

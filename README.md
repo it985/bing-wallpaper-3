@@ -38,6 +38,10 @@
 
 ![](images/2023-05/20230516_AmericanWetlands_1920x1080.jpg)
 
+#### 20230515 Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)
+
+![](images/2023-05/20230515_MorroJable_1920x1080.jpg)
+
 #### 20230515 葵祭, 京都 下鴨神社 (© The Asahi Shimbun/Getty Images)
 
 ![](images/2023-05/20230515_AoiMatsuri_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230513 Pelicans at Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)
 
 ![](images/2023-05/20230513_SonnyBonoPelicans_1920x1080.jpg)
-
-#### 20230513 曼海姆水塔，德国 (© tichr/Getty Images)
-
-![](images/2023-05/20230513_Mannheim_1920x1080.jpg)
 
 
 
