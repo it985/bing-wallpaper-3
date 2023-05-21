@@ -6,6 +6,10 @@
 
 ![](images/2023-05/20230521_PontdArcole_1920x1080.jpg)
 
+#### 20230521 Universum Bremen, Science Center (© imageBROKER/Alamy Stock Photo)
+
+![](images/2023-05/20230521_BremenScienceMuseum_1920x1080.jpg)
+
 #### 20230520 European honeybees in Sheffield, England (© Deborah Vernon/Alamy)
 
 ![](images/2023-05/20230520_EuropeanHoneybee_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230514 White-tailed deer doe and newborn fawn, Montana (© Donald M. Jones/Minden Pictures)
 
 ![](images/2023-05/20230514_OdocoileusVirginianus_1920x1080.jpg)
-
-#### 20230513 Pelicans at Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)
-
-![](images/2023-05/20230513_SonnyBonoPelicans_1920x1080.jpg)
 
 
 
