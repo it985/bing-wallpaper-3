@@ -2,7 +2,7 @@
 
 ![](20230521_wheat_1920x1080.jpg)
 
-#### 20230521 塞纳河，巴黎，法国 (© StockByM/Getty Images)
+#### 20230521 Pont d’Arcole on the Seine river, Paris, France (© StockByM/Getty Images)
 
 ![](20230521_PontdArcole_1920x1080.jpg)
 
