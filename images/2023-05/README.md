@@ -1,3 +1,7 @@
+#### 20230522 阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加 (© Kevin Wells/Getty Images)
+
+![](20230522_BiodiverseCostaRica_1920x1080.jpg)
+
 #### 20230521 露が輝く麦の穂 (© mariko satou/iStock/Getty Images Plus)
 
 ![](20230521_wheat_1920x1080.jpg)

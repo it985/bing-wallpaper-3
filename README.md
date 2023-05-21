@@ -1,3 +1,7 @@
+#### 20230522 阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加 (© Kevin Wells/Getty Images)
+
+![](images/2023-05/20230522_BiodiverseCostaRica_1920x1080.jpg)
+
 #### 20230521 露が輝く麦の穂 (© mariko satou/iStock/Getty Images Plus)
 
 ![](images/2023-05/20230521_wheat_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230514 Procida, Italie (© Sean Pavone/Shutterstock)
 
 ![](images/2023-05/20230514_ProcidaItaly_1920x1080.jpg)
-
-#### 20230514 White-tailed deer doe and newborn fawn, Montana (© Donald M. Jones/Minden Pictures)
-
-![](images/2023-05/20230514_OdocoileusVirginianus_1920x1080.jpg)
 
 
 
