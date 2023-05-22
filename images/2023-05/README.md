@@ -2,7 +2,7 @@
 
 ![](20230522_OttawaParliamentBuildings_1920x1080.jpg)
 
-#### 20230522 阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加 (© Kevin Wells/Getty Images)
+#### 20230522 Arenal Volcano seen from Monteverde, Costa Rica (© Kevin Wells/Getty Images)
 
 ![](20230522_BiodiverseCostaRica_1920x1080.jpg)
 
