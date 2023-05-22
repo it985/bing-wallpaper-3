@@ -1,3 +1,7 @@
+#### 20230523 西部箱龟 (© Tim Fitzharris/Minden Pictures)
+
+![](images/2023-05/20230523_WesternBoxTurtle_1920x1080.jpg)
+
 #### 20230522 Ottawa Parliament Buildings Sunset View, Canada (© Serega/Getty Images)
 
 ![](images/2023-05/20230522_OttawaParliamentBuildings_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230515 Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)
 
 ![](images/2023-05/20230515_MorroJable_1920x1080.jpg)
-
-#### 20230515 葵祭, 京都 下鴨神社 (© The Asahi Shimbun/Getty Images)
-
-![](images/2023-05/20230515_AoiMatsuri_1920x1080.jpg)
 
 
 
