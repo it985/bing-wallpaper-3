@@ -1,4 +1,8 @@
-#### 20230523 西部箱龟 (© Tim Fitzharris/Minden Pictures)
+#### 20230524 Meldon Hill, Dartmoor National Park, Devon, England (© AWL Images/Danita Delimont)
+
+![](images/2023-05/20230524_DartmoorNationalPark_1920x1080.jpg)
+
+#### 20230523 Western box turtle (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2023-05/20230523_WesternBoxTurtle_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20230516 Canoeing in Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)
 
 ![](images/2023-05/20230516_AmericanWetlands_1920x1080.jpg)
-
-#### 20230515 Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)
-
-![](images/2023-05/20230515_MorroJable_1920x1080.jpg)
 
 
 
