@@ -1,3 +1,7 @@
+#### 20230525 法罗群岛，丹麦 (© miroslav_1/Getty Images)
+
+![](20230525_SaksunFaroe_1920x1080.jpg)
+
 #### 20230524 The Old Fortress of Corfu, Greece (© Netfalls Remy Musser/Shutterstock)
 
 ![](20230524_OldFortress_1920x1080.jpg)

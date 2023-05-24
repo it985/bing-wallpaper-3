@@ -1,3 +1,7 @@
+#### 20230525 法罗群岛，丹麦 (© miroslav_1/Getty Images)
+
+![](images/2023-05/20230525_SaksunFaroe_1920x1080.jpg)
+
 #### 20230524 The Old Fortress of Corfu, Greece (© Netfalls Remy Musser/Shutterstock)
 
 ![](images/2023-05/20230524_OldFortress_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230517 Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2023-05/20230517_CormorantBridge_1920x1080.jpg)
-
-#### 20230516 Îles de Lerins, Cannes, Côtes d’Azur (© Hemis/Alamy Stock Photo)
-
-![](images/2023-05/20230516_FestivalCannes_1920x1080.jpg)
 
 
 
