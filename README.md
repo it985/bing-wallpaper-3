@@ -1,3 +1,7 @@
+#### 20230526 西沙瓦寺，素可泰历史公园，泰国 (© Casper1774 Studio/Shutterstock)
+
+![](images/2023-05/20230526_WatSriSawai_1920x1080.jpg)
+
 #### 20230525 Saksun, Faroe Islands, Denmark (© miroslav_1/Getty Images)
 
 ![](images/2023-05/20230525_SaksunFaroe_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230518 Wiedehopf füttert seine Jungen nach der Exkursion, Biosphärenreservat Mittelelbe, Sachsen-Anhalt (© imageBROKER/Martin Demmel/GettyImages)
 
 ![](images/2023-05/20230518_HoopoeFathersday_1920x1080.jpg)
-
-#### 20230517 Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)
-
-![](images/2023-05/20230517_CormorantBridge_1920x1080.jpg)
 
 
 

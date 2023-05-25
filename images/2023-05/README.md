@@ -1,3 +1,7 @@
+#### 20230526 西沙瓦寺，素可泰历史公园，泰国 (© Casper1774 Studio/Shutterstock)
+
+![](20230526_WatSriSawai_1920x1080.jpg)
+
 #### 20230525 Saksun, Faroe Islands, Denmark (© miroslav_1/Getty Images)
 
 ![](20230525_SaksunFaroe_1920x1080.jpg)
