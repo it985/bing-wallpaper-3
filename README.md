@@ -1,4 +1,4 @@
-#### 20230525 法罗群岛，丹麦 (© miroslav_1/Getty Images)
+#### 20230525 Saksun, Faroe Islands, Denmark (© miroslav_1/Getty Images)
 
 ![](images/2023-05/20230525_SaksunFaroe_1920x1080.jpg)
 
