@@ -1,3 +1,7 @@
+#### 20230527 纳米比亚的植物 (© Fotofeeling/DEEPOL by plainpicture)
+
+![](20230527_AloeDichotomum_1920x1080.jpg)
+
 #### 20230526 Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)
 
 ![](20230526_WatSriSawai_1920x1080.jpg)

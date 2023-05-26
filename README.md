@@ -1,3 +1,7 @@
+#### 20230527 纳米比亚的植物 (© Fotofeeling/DEEPOL by plainpicture)
+
+![](images/2023-05/20230527_AloeDichotomum_1920x1080.jpg)
+
 #### 20230526 Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)
 
 ![](images/2023-05/20230526_WatSriSawai_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230518 Museo Soumaya, Plaza Carso, Mexico City, Mexico (© Juan Romero/Alamy)
 
 ![](images/2023-05/20230518_MuseoSoumaya_1920x1080.jpg)
-
-#### 20230518 Wiedehopf füttert seine Jungen nach der Exkursion, Biosphärenreservat Mittelelbe, Sachsen-Anhalt (© imageBROKER/Martin Demmel/GettyImages)
-
-![](images/2023-05/20230518_HoopoeFathersday_1920x1080.jpg)
 
 
 
