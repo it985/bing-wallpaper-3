@@ -1,4 +1,4 @@
-#### 20230526 西沙瓦寺，素可泰历史公园，泰国 (© Casper1774 Studio/Shutterstock)
+#### 20230526 Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)
 
 ![](images/2023-05/20230526_WatSriSawai_1920x1080.jpg)
 
