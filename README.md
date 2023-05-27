@@ -1,4 +1,4 @@
-#### 20230527 纳米比亚的植物 (© Fotofeeling/DEEPOL by plainpicture)
+#### 20230527 Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)
 
 ![](images/2023-05/20230527_AloeDichotomum_1920x1080.jpg)
 
