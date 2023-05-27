@@ -1,3 +1,7 @@
+#### 20230528 乌布的德格拉朗梯田，印度尼西亚 (© Cavan Images/Adobe Stock)
+
+![](images/2023-05/20230528_TegallalangTerrace_1920x1080.jpg)
+
 #### 20230527 Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)
 
 ![](images/2023-05/20230527_AloeDichotomum_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230518 拉曼加，穆尔西亚，西班牙 (© SOMATUSCANI/Getty Images)
 
 ![](images/2023-05/20230518_SardineBurial_1920x1080.jpg)
-
-#### 20230518 Museo Soumaya, Plaza Carso, Mexico City, Mexico (© Juan Romero/Alamy)
-
-![](images/2023-05/20230518_MuseoSoumaya_1920x1080.jpg)
 
 
 

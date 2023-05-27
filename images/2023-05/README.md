@@ -1,3 +1,7 @@
+#### 20230528 乌布的德格拉朗梯田，印度尼西亚 (© Cavan Images/Adobe Stock)
+
+![](20230528_TegallalangTerrace_1920x1080.jpg)
+
 #### 20230527 Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)
 
 ![](20230527_AloeDichotomum_1920x1080.jpg)
