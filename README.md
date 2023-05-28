@@ -1,3 +1,7 @@
+#### 20230529 萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛 (© Hemis/Alamy)
+
+![](images/2023-05/20230529_Antilles_1920x1080.jpg)
+
 #### 20230528 Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)
 
 ![](images/2023-05/20230528_TegallalangTerrace_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230520 European honeybees in Sheffield, England (© Deborah Vernon/Alamy)
 
 ![](images/2023-05/20230520_EuropeanHoneybee_1920x1080.jpg)
-
-#### 20230519 Sumatran rhinoceros female eating leaves, Way Kambas National Park, Sumatra, Indonesia (© Cyril Ruoso/Minden Pictures)
-
-![](images/2023-05/20230519_SumatranRhino_1920x1080.jpg)
 
 
 
