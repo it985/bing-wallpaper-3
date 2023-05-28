@@ -1,4 +1,4 @@
-#### 20230528 乌布的德格拉朗梯田，印度尼西亚 (© Cavan Images/Adobe Stock)
+#### 20230528 Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)
 
 ![](images/2023-05/20230528_TegallalangTerrace_1920x1080.jpg)
 
