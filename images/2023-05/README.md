@@ -1,3 +1,7 @@
+#### 20230529 Boardwalk on hiking trail to Western Brook Pond in Gros Morne National Park (© Cavan Images - Offset/Shutterstock)
+
+![](20230529_WesternBrookPond_1920x1080.jpg)
+
 #### 20230529 Historische Windmühlen (© larskuse/Shutterstock)
 
 ![](20230529_HistoricWindmill_1920x1080.jpg)

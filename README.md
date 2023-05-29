@@ -1,3 +1,7 @@
+#### 20230529 Boardwalk on hiking trail to Western Brook Pond in Gros Morne National Park (© Cavan Images - Offset/Shutterstock)
+
+![](images/2023-05/20230529_WesternBrookPond_1920x1080.jpg)
+
 #### 20230529 Historische Windmühlen (© larskuse/Shutterstock)
 
 ![](images/2023-05/20230529_HistoricWindmill_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230521 Pont d’Arcole on the Seine river, Paris, France (© StockByM/Getty Images)
 
 ![](images/2023-05/20230521_PontdArcole_1920x1080.jpg)
-
-#### 20230521 Universum Bremen, Science Center (© imageBROKER/Alamy Stock Photo)
-
-![](images/2023-05/20230521_BremenScienceMuseum_1920x1080.jpg)
 
 
 
