@@ -1,3 +1,7 @@
+#### 20230529 Historische Windmühlen (© larskuse/Shutterstock)
+
+![](20230529_HistoricWindmill_1920x1080.jpg)
+
 #### 20230529 萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛 (© Hemis/Alamy)
 
 ![](20230529_Antilles_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20230529 Historische Windmühlen (© larskuse/Shutterstock)
+
+![](images/2023-05/20230529_HistoricWindmill_1920x1080.jpg)
+
 #### 20230529 萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛 (© Hemis/Alamy)
 
 ![](images/2023-05/20230529_Antilles_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230521 Universum Bremen, Science Center (© imageBROKER/Alamy Stock Photo)
 
 ![](images/2023-05/20230521_BremenScienceMuseum_1920x1080.jpg)
-
-#### 20230520 European honeybees in Sheffield, England (© Deborah Vernon/Alamy)
-
-![](images/2023-05/20230520_EuropeanHoneybee_1920x1080.jpg)
 
 
 
