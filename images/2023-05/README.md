@@ -1,3 +1,7 @@
+#### 20230530 埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥 (© ferrantraite/Getty Images)
+
+![](20230530_HiddenBeach_1920x1080.jpg)
+
 #### 20230529 Boardwalk on hiking trail to Western Brook Pond in Gros Morne National Park (© Cavan Images - Offset/Shutterstock)
 
 ![](20230529_WesternBrookPond_1920x1080.jpg)

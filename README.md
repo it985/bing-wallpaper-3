@@ -1,3 +1,7 @@
+#### 20230530 埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥 (© ferrantraite/Getty Images)
+
+![](images/2023-05/20230530_HiddenBeach_1920x1080.jpg)
+
 #### 20230529 Boardwalk on hiking trail to Western Brook Pond in Gros Morne National Park (© Cavan Images - Offset/Shutterstock)
 
 ![](images/2023-05/20230529_WesternBrookPond_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230522 Arenal Volcano seen from Monteverde, Costa Rica (© Kevin Wells/Getty Images)
 
 ![](images/2023-05/20230522_BiodiverseCostaRica_1920x1080.jpg)
-
-#### 20230521 露が輝く麦の穂 (© mariko satou/iStock/Getty Images Plus)
-
-![](images/2023-05/20230521_wheat_1920x1080.jpg)
 
 
 
