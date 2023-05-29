@@ -2,6 +2,10 @@
 
 ![](20230529_WesternBrookPond_1920x1080.jpg)
 
+#### 20230529 Lantern floating ceremony, Ala Moana Beach Park, Honolulu, Hawaii (© Naomi Hayes of Island Memories Photography/Getty Images)
+
+![](20230529_LanternFloating_1920x1080.jpg)
+
 #### 20230529 Historische Windmühlen (© larskuse/Shutterstock)
 
 ![](20230529_HistoricWindmill_1920x1080.jpg)
