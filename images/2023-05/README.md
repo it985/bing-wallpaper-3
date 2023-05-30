@@ -1,4 +1,4 @@
-#### 20230530 埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥 (© ferrantraite/Getty Images)
+#### 20230530 Playa del Amor in the Marietas Islands, off the coast of Puerto Vallarta, Mexico (© ferrantraite/Getty Images)
 
 ![](20230530_HiddenBeach_1920x1080.jpg)
 
