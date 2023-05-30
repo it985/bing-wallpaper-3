@@ -1,3 +1,7 @@
+#### 20230531 海獭宝宝，威廉王子湾，美国阿拉斯加州 (© Donald M. Jones/Minden Pictures)
+
+![](images/2023-05/20230531_WorldOtterDay_1920x1080.jpg)
+
 #### 20230530 Playa del Amor in the Marietas Islands, off the coast of Puerto Vallarta, Mexico (© ferrantraite/Getty Images)
 
 ![](images/2023-05/20230530_HiddenBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230522 Ottawa Parliament Buildings Sunset View, Canada (© Serega/Getty Images)
 
 ![](images/2023-05/20230522_OttawaParliamentBuildings_1920x1080.jpg)
-
-#### 20230522 Arenal Volcano seen from Monteverde, Costa Rica (© Kevin Wells/Getty Images)
-
-![](images/2023-05/20230522_BiodiverseCostaRica_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20230531 海獭宝宝，威廉王子湾，美国阿拉斯加州 (© Donald M. Jones/Minden Pictures)
+
+![](20230531_WorldOtterDay_1920x1080.jpg)
+
 #### 20230530 Playa del Amor in the Marietas Islands, off the coast of Puerto Vallarta, Mexico (© ferrantraite/Getty Images)
 
 ![](20230530_HiddenBeach_1920x1080.jpg)
