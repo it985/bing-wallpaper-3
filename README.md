@@ -1,3 +1,7 @@
+#### 20230601 大堡礁的航拍图，澳大利亚 (© AirPano LLC/Amazing Aerial Agency)
+
+![](images/2023-06/20230601_ReefAwareness_1920x1080.jpg)
+
 #### 20230531 Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)
 
 ![](images/2023-05/20230531_WorldOtterDay_1920x1080.jpg)
@@ -54,10 +58,6 @@
 
 ![](images/2023-05/20230523_WesternBoxTurtle_1920x1080.jpg)
 
-#### 20230522 Ottawa Parliament Buildings Sunset View, Canada (© Serega/Getty Images)
-
-![](images/2023-05/20230522_OttawaParliamentBuildings_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2023&emsp;&emsp;[05](images/2023-05/README.md) &emsp;&emsp;[04](images/2023-04/README.md) &emsp;&emsp;[03](images/2023-03/README.md) &emsp;&emsp;[02](images/2023-02/README.md) &emsp;&emsp;[01](images/2023-01/README.md) 
+- 2023&emsp;&emsp;[06](images/2023-06/README.md) &emsp;&emsp;[05](images/2023-05/README.md) &emsp;&emsp;[04](images/2023-04/README.md) &emsp;&emsp;[03](images/2023-03/README.md) &emsp;&emsp;[02](images/2023-02/README.md) &emsp;&emsp;[01](images/2023-01/README.md) 
 
 - 2022&emsp;&emsp;[11](images/2022-11/README.md) &emsp;&emsp;[10](images/2022-10/README.md) &emsp;&emsp;[09](images/2022-09/README.md) &emsp;&emsp;[08](images/2022-08/README.md) &emsp;&emsp;[07](images/2022-07/README.md) &emsp;&emsp;[06](images/2022-06/README.md) &emsp;&emsp;[05](images/2022-05/README.md) &emsp;&emsp;[04](images/2022-04/README.md) &emsp;&emsp;[03](images/2022-03/README.md) &emsp;&emsp;[02](images/2022-02/README.md) &emsp;&emsp;[01](images/2022-01/README.md) 
 
