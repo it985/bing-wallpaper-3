@@ -1,4 +1,4 @@
-#### 20230531 海獭宝宝，威廉王子湾，美国阿拉斯加州 (© Donald M. Jones/Minden Pictures)
+#### 20230531 Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)
 
 ![](20230531_WorldOtterDay_1920x1080.jpg)
 
