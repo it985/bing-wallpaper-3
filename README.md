@@ -1,3 +1,7 @@
+#### 20230602 沙丘中的南非剑羚，纳米比亚 (© Sergey Gorshkov/Alamy)
+
+![](images/2023-06/20230602_GemsbokNamibia_1920x1080.jpg)
+
 #### 20230601 Aerial image of the Great Barrier Reef, Australia (© AirPano LLC/Amazing Aerial Agency)
 
 ![](images/2023-06/20230601_ReefAwareness_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230524 Meldon Hill, Dartmoor National Park, Devon, England (© AWL Images/Danita Delimont)
 
 ![](images/2023-05/20230524_DartmoorNationalPark_1920x1080.jpg)
-
-#### 20230523 Western box turtle (© Tim Fitzharris/Minden Pictures)
-
-![](images/2023-05/20230523_WesternBoxTurtle_1920x1080.jpg)
 
 
 
