@@ -1,3 +1,7 @@
+#### 20230603 大峡谷国家公园的南凯巴布步道，亚利桑那州，美国 (© Roman Khomlyak/Getty Images)
+
+![](images/2023-06/20230603_SouthKaibabTrail_1920x1080.jpg)
+
 #### 20230602 Gemsbok (Oryx gazella) in sand dunes, Namibia (© Sergey Gorshkov/Minden)
 
 ![](images/2023-06/20230602_GemsbokNamibia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230524 The Old Fortress of Corfu, Greece (© Netfalls Remy Musser/Shutterstock)
 
 ![](images/2023-05/20230524_OldFortress_1920x1080.jpg)
-
-#### 20230524 Meldon Hill, Dartmoor National Park, Devon, England (© AWL Images/Danita Delimont)
-
-![](images/2023-05/20230524_DartmoorNationalPark_1920x1080.jpg)
 
 
 
