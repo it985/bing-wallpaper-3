@@ -1,4 +1,4 @@
-#### 20230602 沙丘中的南非剑羚，纳米比亚 (© Sergey Gorshkov/Alamy)
+#### 20230602 Gemsbok (Oryx gazella) in sand dunes, Namibia (© Sergey Gorshkov/Minden)
 
 ![](20230602_GemsbokNamibia_1920x1080.jpg)
 
