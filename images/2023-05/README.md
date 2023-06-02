@@ -10,6 +10,10 @@
 
 ![](20230529_WesternBrookPond_1920x1080.jpg)
 
+#### 20230529 セーヌ川, フランス パリ (© StockByM/Getty Images)
+
+![](20230529_PontdArcole_1920x1080.jpg)
+
 #### 20230529 Lantern floating ceremony, Ala Moana Beach Park, Honolulu, Hawaii (© Naomi Hayes of Island Memories Photography/Getty Images)
 
 ![](20230529_LanternFloating_1920x1080.jpg)

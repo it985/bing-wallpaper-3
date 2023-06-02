@@ -22,6 +22,10 @@
 
 ![](images/2023-05/20230529_WesternBrookPond_1920x1080.jpg)
 
+#### 20230529 セーヌ川, フランス パリ (© StockByM/Getty Images)
+
+![](images/2023-05/20230529_PontdArcole_1920x1080.jpg)
+
 #### 20230529 Lantern floating ceremony, Ala Moana Beach Park, Honolulu, Hawaii (© Naomi Hayes of Island Memories Photography/Getty Images)
 
 ![](images/2023-05/20230529_LanternFloating_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230525 Saksun, Faroe Islands, Denmark (© miroslav_1/Getty Images)
 
 ![](images/2023-05/20230525_SaksunFaroe_1920x1080.jpg)
-
-#### 20230524 The Old Fortress of Corfu, Greece (© Netfalls Remy Musser/Shutterstock)
-
-![](images/2023-05/20230524_OldFortress_1920x1080.jpg)
 
 
 
