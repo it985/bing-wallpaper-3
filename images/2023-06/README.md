@@ -1,3 +1,7 @@
+#### 20230604 怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国 (© Matt Anderson Photography/Getty Images)
+
+![](20230604_MauiBeach_1920x1080.jpg)
+
 #### 20230603 South Kaibab Trail in Grand Canyon National Park, Arizona (© Roman Khomlyak/Getty Images)
 
 ![](20230603_SouthKaibabTrail_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20230604 怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国 (© Matt Anderson Photography/Getty Images)
+
+![](images/2023-06/20230604_MauiBeach_1920x1080.jpg)
+
 #### 20230603 South Kaibab Trail in Grand Canyon National Park, Arizona (© Roman Khomlyak/Getty Images)
 
 ![](images/2023-06/20230603_SouthKaibabTrail_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230526 Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)
 
 ![](images/2023-05/20230526_WatSriSawai_1920x1080.jpg)
-
-#### 20230525 Saksun, Faroe Islands, Denmark (© miroslav_1/Getty Images)
-
-![](images/2023-05/20230525_SaksunFaroe_1920x1080.jpg)
 
 
 
