@@ -1,4 +1,4 @@
-#### 20230603 大峡谷国家公园的南凯巴布步道，亚利桑那州，美国 (© Roman Khomlyak/Getty Images)
+#### 20230603 South Kaibab Trail in Grand Canyon National Park, Arizona (© Roman Khomlyak/Getty Images)
 
 ![](20230603_SouthKaibabTrail_1920x1080.jpg)
 
