@@ -1,3 +1,11 @@
+#### 20230605 辛华达峡谷的瀑布，贾斯珀国家公园，加拿大 (© Delpixart/Getty Images)
+
+![](images/2023-06/20230605_WaterfallsSunwaptaValley_1920x1080.jpg)
+
+#### 20230605 プラスチックごみで構成されたインスタレーション (© Michael Siluk/UCG/Universal Images Group via Getty Images)
+
+![](images/2023-06/20230605_PlasticParrotfish_1920x1080.jpg)
+
 #### 20230604 Biche de Virginie et son faon, Montana  (© Donald M. Jones/Minden Pictures)
 
 ![](images/2023-06/20230604_OdocoileusVirginianus_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230528 Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)
 
 ![](images/2023-05/20230528_TegallalangTerrace_1920x1080.jpg)
-
-#### 20230528 Coucher de soleil sur le court Philippe Chatrier, Roland-Garros, Paris (© Juergen Hasenkopf/Alamy Stock Photo)
-
-![](images/2023-05/20230528_FrenchTennis_1920x1080.jpg)
-
-#### 20230527 Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)
-
-![](images/2023-05/20230527_AloeDichotomum_1920x1080.jpg)
 
 
 
