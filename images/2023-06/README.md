@@ -2,7 +2,7 @@
 
 ![](20230604_OdocoileusVirginianus_1920x1080.jpg)
 
-#### 20230604 怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国 (© Matt Anderson Photography/Getty Images)
+#### 20230604 Black sand beach at Wai'ānapanapa State Park, Maui, Hawaii (© Matt Anderson Photography/Getty Images)
 
 ![](20230604_MauiBeach_1920x1080.jpg)
 
