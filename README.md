@@ -2,7 +2,7 @@
 
 ![](images/2023-06/20230605_WaterfallsSunwaptaValley_1920x1080.jpg)
 
-#### 20230605 プラスチックごみで構成されたインスタレーション (© Michael Siluk/UCG/Universal Images Group via Getty Images)
+#### 20230605 'Priscilla the Parrotfish' art installation at Como Park Zoo & Conservatory, St. Paul, Minnesota (© Michael Siluk/UCG/Universal Images Group via Getty Images)
 
 ![](images/2023-06/20230605_PlasticParrotfish_1920x1080.jpg)
 
