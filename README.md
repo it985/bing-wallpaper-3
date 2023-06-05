@@ -1,3 +1,11 @@
+#### 20230606 森の中で輝く蛍たち (© Trevor Williams/Getty images)
+
+![](images/2023-06/20230606_Mangzhong_1920x1080.jpg)
+
+#### 20230606 The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)
+
+![](images/2023-06/20230606_CliffsEtretat_1920x1080.jpg)
+
 #### 20230605 辛华达峡谷的瀑布，贾斯珀国家公园，加拿大 (© Delpixart/Getty Images)
 
 ![](images/2023-06/20230605_WaterfallsSunwaptaValley_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230529 Historische Windmühlen (© larskuse/Shutterstock)
 
 ![](images/2023-05/20230529_HistoricWindmill_1920x1080.jpg)
-
-#### 20230529 萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛 (© Hemis/Alamy)
-
-![](images/2023-05/20230529_Antilles_1920x1080.jpg)
-
-#### 20230528 Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)
-
-![](images/2023-05/20230528_TegallalangTerrace_1920x1080.jpg)
 
 
 
