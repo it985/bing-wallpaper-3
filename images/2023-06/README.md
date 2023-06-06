@@ -1,3 +1,7 @@
+#### 20230607 普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州 (© Ian Shive/Tandem Stills + Motion)
+
+![](20230607_ChacoCulture_1920x1080.jpg)
+
 #### 20230606 森の中で輝く蛍たち (© Trevor Williams/Getty images)
 
 ![](20230606_Mangzhong_1920x1080.jpg)
