@@ -1,3 +1,7 @@
+#### 20230608 座头鲸 (© Philip Thurston/Getty Images)
+
+![](images/2023-06/20230608_PlayfulHumpback_1920x1080.jpg)
+
 #### 20230607 Pueblo Bonito, Chaco Culture National Historical Park, New Mexico (© Ian Shive/Tandem Stills + Motion)
 
 ![](images/2023-06/20230607_ChacoCulture_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230529 セーヌ川, フランス パリ (© StockByM/Getty Images)
 
 ![](images/2023-05/20230529_PontdArcole_1920x1080.jpg)
-
-#### 20230529 Lantern floating ceremony, Ala Moana Beach Park, Honolulu, Hawaii (© Naomi Hayes of Island Memories Photography/Getty Images)
-
-![](images/2023-05/20230529_LanternFloating_1920x1080.jpg)
 
 
 
