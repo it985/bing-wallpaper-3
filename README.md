@@ -1,4 +1,4 @@
-#### 20230607 普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州 (© Ian Shive/Tandem Stills + Motion)
+#### 20230607 Pueblo Bonito, Chaco Culture National Historical Park, New Mexico (© Ian Shive/Tandem Stills + Motion)
 
 ![](images/2023-06/20230607_ChacoCulture_1920x1080.jpg)
 
