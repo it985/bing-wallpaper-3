@@ -1,4 +1,4 @@
-#### 20230608 座头鲸 (© Philip Thurston/Getty Images)
+#### 20230608 Humpback whale (© Philip Thurston/Getty Images)
 
 ![](20230608_PlayfulHumpback_1920x1080.jpg)
 
