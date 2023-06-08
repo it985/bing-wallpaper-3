@@ -1,3 +1,7 @@
+#### 20230609 卡帕多西亚, 土耳其 (© Anton Petrus/Getty Images)
+
+![](images/2023-06/20230609_BalloonsTurkey_1920x1080.jpg)
+
 #### 20230608 Humpback whale (© Philip Thurston/Getty Images)
 
 ![](images/2023-06/20230608_PlayfulHumpback_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230529 Boardwalk on hiking trail to Western Brook Pond in Gros Morne National Park (© Cavan Images - Offset/Shutterstock)
 
 ![](images/2023-05/20230529_WesternBrookPond_1920x1080.jpg)
-
-#### 20230529 セーヌ川, フランス パリ (© StockByM/Getty Images)
-
-![](images/2023-05/20230529_PontdArcole_1920x1080.jpg)
 
 
 

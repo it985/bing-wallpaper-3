@@ -1,3 +1,7 @@
+#### 20230609 卡帕多西亚, 土耳其 (© Anton Petrus/Getty Images)
+
+![](20230609_BalloonsTurkey_1920x1080.jpg)
+
 #### 20230608 Humpback whale (© Philip Thurston/Getty Images)
 
 ![](20230608_PlayfulHumpback_1920x1080.jpg)
