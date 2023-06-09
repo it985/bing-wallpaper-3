@@ -1,3 +1,7 @@
+#### 20230610 波尔图大教堂, 葡萄牙 (© Reinhard Schmid/Huber/eStock Photo)
+
+![](20230610_PortugalDay_1920x1080.jpg)
+
 #### 20230609 Hot air balloons in Cappadocia, Türkiye (© Anton Petrus/Getty Images)
 
 ![](20230609_BalloonsTurkey_1920x1080.jpg)

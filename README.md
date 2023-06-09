@@ -1,3 +1,7 @@
+#### 20230610 波尔图大教堂, 葡萄牙 (© Reinhard Schmid/Huber/eStock Photo)
+
+![](images/2023-06/20230610_PortugalDay_1920x1080.jpg)
+
 #### 20230609 Hot air balloons in Cappadocia, Türkiye (© Anton Petrus/Getty Images)
 
 ![](images/2023-06/20230609_BalloonsTurkey_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230530 Playa del Amor in the Marietas Islands, off the coast of Puerto Vallarta, Mexico (© ferrantraite/Getty Images)
 
 ![](images/2023-05/20230530_HiddenBeach_1920x1080.jpg)
-
-#### 20230529 Boardwalk on hiking trail to Western Brook Pond in Gros Morne National Park (© Cavan Images - Offset/Shutterstock)
-
-![](images/2023-05/20230529_WesternBrookPond_1920x1080.jpg)
 
 
 
