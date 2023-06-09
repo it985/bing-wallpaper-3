@@ -1,4 +1,4 @@
-#### 20230609 卡帕多西亚, 土耳其 (© Anton Petrus/Getty Images)
+#### 20230609 Hot air balloons in Cappadocia, Türkiye (© Anton Petrus/Getty Images)
 
 ![](images/2023-06/20230609_BalloonsTurkey_1920x1080.jpg)
 
