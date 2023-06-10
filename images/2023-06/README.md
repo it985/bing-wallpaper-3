@@ -1,4 +1,4 @@
-#### 20230610 波尔图大教堂, 葡萄牙 (© Reinhard Schmid/Huber/eStock Photo)
+#### 20230610 Porto Cathedral, Portugal (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](20230610_PortugalDay_1920x1080.jpg)
 
