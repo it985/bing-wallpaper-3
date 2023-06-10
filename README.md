@@ -1,3 +1,11 @@
+#### 20230611 巨鹭，克鲁格国家公园，南非 (© Johan Swanepoel/Alamy)
+
+![](images/2023-06/20230611_GoliathHeron_1920x1080.jpg)
+
+#### 20230611 美の山公園, 埼玉県 秩父市 (© SOURCENEXT/Alamy Stock Photo)
+
+![](images/2023-06/20230611_Ajisai_1920x1080.jpg)
+
 #### 20230610 Porto Cathedral, Portugal (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](images/2023-06/20230610_PortugalDay_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230602 Gemsbok (Oryx gazella) in sand dunes, Namibia (© Sergey Gorshkov/Minden)
 
 ![](images/2023-06/20230602_GemsbokNamibia_1920x1080.jpg)
-
-#### 20230601 Aerial image of the Great Barrier Reef, Australia (© AirPano LLC/Amazing Aerial Agency)
-
-![](images/2023-06/20230601_ReefAwareness_1920x1080.jpg)
-
-#### 20230531 Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)
-
-![](images/2023-05/20230531_WorldOtterDay_1920x1080.jpg)
 
 
 

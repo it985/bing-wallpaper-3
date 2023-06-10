@@ -1,3 +1,11 @@
+#### 20230611 巨鹭，克鲁格国家公园，南非 (© Johan Swanepoel/Alamy)
+
+![](20230611_GoliathHeron_1920x1080.jpg)
+
+#### 20230611 美の山公園, 埼玉県 秩父市 (© SOURCENEXT/Alamy Stock Photo)
+
+![](20230611_Ajisai_1920x1080.jpg)
+
 #### 20230610 Porto Cathedral, Portugal (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](20230610_PortugalDay_1920x1080.jpg)
