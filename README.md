@@ -2,6 +2,10 @@
 
 ![](images/2023-06/20230610_PortugalDay_1920x1080.jpg)
 
+#### 20230610 Vue aérienne du circuit Bugatti, Le Mans (© Lou Benoist/AFP via Getty Images)
+
+![](images/2023-06/20230610_LeMansCentenary_1920x1080.jpg)
+
 #### 20230609 Hot air balloons in Cappadocia, Türkiye (© Anton Petrus/Getty Images)
 
 ![](images/2023-06/20230609_BalloonsTurkey_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230531 Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)
 
 ![](images/2023-05/20230531_WorldOtterDay_1920x1080.jpg)
-
-#### 20230530 Playa del Amor in the Marietas Islands, off the coast of Puerto Vallarta, Mexico (© ferrantraite/Getty Images)
-
-![](images/2023-05/20230530_HiddenBeach_1920x1080.jpg)
 
 
 
