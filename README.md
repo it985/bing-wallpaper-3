@@ -1,4 +1,4 @@
-#### 20230611 巨鹭，克鲁格国家公园，南非 (© Johan Swanepoel/Alamy)
+#### 20230611 Goliath heron, Kruger National Park, South Africa (© Johan Swanepoel/Alamy)
 
 ![](images/2023-06/20230611_GoliathHeron_1920x1080.jpg)
 
