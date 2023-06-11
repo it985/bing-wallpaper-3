@@ -2,6 +2,10 @@
 
 ![](20230611_GoliathHeron_1920x1080.jpg)
 
+#### 20230611 Tulpenblüten auf der Insel Mainau, Bodensee (© Reinhard Schmid/Huber/eStock Photo)
+
+![](20230611_GartenTagTulpen_1920x1080.jpg)
+
 #### 20230611 美の山公園, 埼玉県 秩父市 (© SOURCENEXT/Alamy Stock Photo)
 
 ![](20230611_Ajisai_1920x1080.jpg)

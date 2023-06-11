@@ -2,6 +2,10 @@
 
 ![](images/2023-06/20230611_GoliathHeron_1920x1080.jpg)
 
+#### 20230611 Tulpenblüten auf der Insel Mainau, Bodensee (© Reinhard Schmid/Huber/eStock Photo)
+
+![](images/2023-06/20230611_GartenTagTulpen_1920x1080.jpg)
+
 #### 20230611 美の山公園, 埼玉県 秩父市 (© SOURCENEXT/Alamy Stock Photo)
 
 ![](images/2023-06/20230611_Ajisai_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230603 South Kaibab Trail in Grand Canyon National Park, Arizona (© Roman Khomlyak/Getty Images)
 
 ![](images/2023-06/20230603_SouthKaibabTrail_1920x1080.jpg)
-
-#### 20230602 Gemsbok (Oryx gazella) in sand dunes, Namibia (© Sergey Gorshkov/Minden)
-
-![](images/2023-06/20230602_GemsbokNamibia_1920x1080.jpg)
 
 
 
