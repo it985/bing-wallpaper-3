@@ -1,3 +1,7 @@
+#### 20230612 仙人掌植物，得克萨斯州大弯国家公园，美国 (© Tim Fitzharris/Minden Pictures)
+
+![](20230612_BigBendAnniv_1920x1080.jpg)
+
 #### 20230611 Goliath heron, Kruger National Park, South Africa (© Johan Swanepoel/Alamy)
 
 ![](20230611_GoliathHeron_1920x1080.jpg)

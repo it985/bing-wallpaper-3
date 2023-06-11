@@ -1,3 +1,7 @@
+#### 20230612 仙人掌植物，得克萨斯州大弯国家公园，美国 (© Tim Fitzharris/Minden Pictures)
+
+![](images/2023-06/20230612_BigBendAnniv_1920x1080.jpg)
+
 #### 20230611 Goliath heron, Kruger National Park, South Africa (© Johan Swanepoel/Alamy)
 
 ![](images/2023-06/20230611_GoliathHeron_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230604 Black sand beach at Wai'ānapanapa State Park, Maui, Hawaii (© Matt Anderson Photography/Getty Images)
 
 ![](images/2023-06/20230604_MauiBeach_1920x1080.jpg)
-
-#### 20230603 South Kaibab Trail in Grand Canyon National Park, Arizona (© Roman Khomlyak/Getty Images)
-
-![](images/2023-06/20230603_SouthKaibabTrail_1920x1080.jpg)
 
 
 
