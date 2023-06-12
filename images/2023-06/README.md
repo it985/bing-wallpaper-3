@@ -1,3 +1,7 @@
+#### 20230613 奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国 (© Emmer Photo/Alamy)
+
+![](20230613_OkefenokeeSwamp_1920x1080.jpg)
+
 #### 20230612 Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)
 
 ![](20230612_BigBendAnniv_1920x1080.jpg)

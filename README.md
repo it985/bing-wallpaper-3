@@ -1,3 +1,7 @@
+#### 20230613 奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国 (© Emmer Photo/Alamy)
+
+![](images/2023-06/20230613_OkefenokeeSwamp_1920x1080.jpg)
+
 #### 20230612 Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2023-06/20230612_BigBendAnniv_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230604 Biche de Virginie et son faon, Montana  (© Donald M. Jones/Minden Pictures)
 
 ![](images/2023-06/20230604_OdocoileusVirginianus_1920x1080.jpg)
-
-#### 20230604 Black sand beach at Wai'ānapanapa State Park, Maui, Hawaii (© Matt Anderson Photography/Getty Images)
-
-![](images/2023-06/20230604_MauiBeach_1920x1080.jpg)
 
 
 
