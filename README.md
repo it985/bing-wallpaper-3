@@ -1,4 +1,4 @@
-#### 20230612 仙人掌植物，得克萨斯州大弯国家公园，美国 (© Tim Fitzharris/Minden Pictures)
+#### 20230612 Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2023-06/20230612_BigBendAnniv_1920x1080.jpg)
 
