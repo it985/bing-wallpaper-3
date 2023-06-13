@@ -1,3 +1,7 @@
+#### 20230614 多瑙河畔的帕绍市，巴伐利亚，德国 (© Scott Wilson/Alamy)
+
+![](images/2023-06/20230614_PassauSunsetJune_1920x1080.jpg)
+
 #### 20230613 Trees with Spanish moss over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)
 
 ![](images/2023-06/20230613_OkefenokeeSwamp_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230605 'Priscilla the Parrotfish' art installation at Como Park Zoo & Conservatory, St. Paul, Minnesota (© Michael Siluk/UCG/Universal Images Group via Getty Images)
 
 ![](images/2023-06/20230605_PlasticParrotfish_1920x1080.jpg)
-
-#### 20230604 Biche de Virginie et son faon, Montana  (© Donald M. Jones/Minden Pictures)
-
-![](images/2023-06/20230604_OdocoileusVirginianus_1920x1080.jpg)
 
 
 
