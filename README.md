@@ -1,4 +1,4 @@
-#### 20230613 奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国 (© Emmer Photo/Alamy)
+#### 20230613 Trees with Spanish moss over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)
 
 ![](images/2023-06/20230613_OkefenokeeSwamp_1920x1080.jpg)
 
