@@ -2,6 +2,10 @@
 
 ![](20230614_PassauSunsetJune_1920x1080.jpg)
 
+#### 20230614 US Capitol building and US flags, Washington, DC (© Orhan Cam/Shutterstock)
+
+![](20230614_FlagDayCapitol_1920x1080.jpg)
+
 #### 20230613 Trees with Spanish moss over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)
 
 ![](20230613_OkefenokeeSwamp_1920x1080.jpg)

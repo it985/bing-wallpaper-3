@@ -2,6 +2,10 @@
 
 ![](images/2023-06/20230614_PassauSunsetJune_1920x1080.jpg)
 
+#### 20230614 US Capitol building and US flags, Washington, DC (© Orhan Cam/Shutterstock)
+
+![](images/2023-06/20230614_FlagDayCapitol_1920x1080.jpg)
+
 #### 20230613 Trees with Spanish moss over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)
 
 ![](images/2023-06/20230613_OkefenokeeSwamp_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230605 辛华达峡谷的瀑布，贾斯珀国家公园，加拿大 (© Delpixart/Getty Images)
 
 ![](images/2023-06/20230605_WaterfallsSunwaptaValley_1920x1080.jpg)
-
-#### 20230605 'Priscilla the Parrotfish' art installation at Como Park Zoo & Conservatory, St. Paul, Minnesota (© Michael Siluk/UCG/Universal Images Group via Getty Images)
-
-![](images/2023-06/20230605_PlasticParrotfish_1920x1080.jpg)
 
 
 
