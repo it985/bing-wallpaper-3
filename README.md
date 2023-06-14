@@ -1,3 +1,7 @@
+#### 20230615 同步萤火虫，大烟山国家公园，田纳西州，美国 (© Floris Van Bruegel/Minden Pictures)
+
+![](images/2023-06/20230615_SmokyFireflies_1920x1080.jpg)
+
 #### 20230614 多瑙河畔的帕绍市，巴伐利亚，德国 (© Scott Wilson/Alamy)
 
 ![](images/2023-06/20230614_PassauSunsetJune_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230606 The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)
 
 ![](images/2023-06/20230606_CliffsEtretat_1920x1080.jpg)
-
-#### 20230605 辛华达峡谷的瀑布，贾斯珀国家公园，加拿大 (© Delpixart/Getty Images)
-
-![](images/2023-06/20230605_WaterfallsSunwaptaValley_1920x1080.jpg)
 
 
 
