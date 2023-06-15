@@ -1,3 +1,7 @@
+#### 20230616 游泳的鹰嘴海龟， 冲绳，日本 (© Robert Mallon/Getty Images)
+
+![](images/2023-06/20230616_HawksbillTurtle_1920x1080.jpg)
+
 #### 20230615 Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)
 
 ![](images/2023-06/20230615_SmokyFireflies_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230606 森の中で輝く蛍たち (© Trevor Williams/Getty images)
 
 ![](images/2023-06/20230606_Mangzhong_1920x1080.jpg)
-
-#### 20230606 The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)
-
-![](images/2023-06/20230606_CliffsEtretat_1920x1080.jpg)
 
 
 
