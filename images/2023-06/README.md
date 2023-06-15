@@ -1,4 +1,4 @@
-#### 20230615 同步萤火虫，大烟山国家公园，田纳西州，美国 (© Floris Van Bruegel/Minden Pictures)
+#### 20230615 Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)
 
 ![](20230615_SmokyFireflies_1920x1080.jpg)
 
