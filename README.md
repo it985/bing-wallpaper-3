@@ -1,4 +1,4 @@
-#### 20230616 游泳的鹰嘴海龟， 冲绳，日本 (© Robert Mallon/Getty Images)
+#### 20230616 Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)
 
 ![](images/2023-06/20230616_HawksbillTurtle_1920x1080.jpg)
 
