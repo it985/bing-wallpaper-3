@@ -1,3 +1,7 @@
+#### 20230617 在加利福尼亚州圣地亚哥举行的“为团结划桨”活动 (© Brandon Colbert Photography/Getty Images)
+
+![](images/2023-06/20230617_SurfSanDiego_1920x1080.jpg)
+
 #### 20230616 Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)
 
 ![](images/2023-06/20230616_HawksbillTurtle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230607 Pueblo Bonito, Chaco Culture National Historical Park, New Mexico (© Ian Shive/Tandem Stills + Motion)
 
 ![](images/2023-06/20230607_ChacoCulture_1920x1080.jpg)
-
-#### 20230606 森の中で輝く蛍たち (© Trevor Williams/Getty images)
-
-![](images/2023-06/20230606_Mangzhong_1920x1080.jpg)
 
 
 
