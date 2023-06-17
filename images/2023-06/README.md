@@ -1,3 +1,7 @@
+#### 20230618 普通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](20230618_TernFather_1920x1080.jpg)
+
 #### 20230618 Castelluccio, Umbria, Italy (© Stefano Termanini/Getty Images)
 
 ![](20230618_CastelluccioUmbria_1920x1080.jpg)

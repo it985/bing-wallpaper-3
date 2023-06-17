@@ -1,3 +1,7 @@
+#### 20230618 普通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](images/2023-06/20230618_TernFather_1920x1080.jpg)
+
 #### 20230618 Castelluccio, Umbria, Italy (© Stefano Termanini/Getty Images)
 
 ![](images/2023-06/20230618_CastelluccioUmbria_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230609 Hot air balloons in Cappadocia, Türkiye (© Anton Petrus/Getty Images)
 
 ![](images/2023-06/20230609_BalloonsTurkey_1920x1080.jpg)
-
-#### 20230608 Humpback whale (© Philip Thurston/Getty Images)
-
-![](images/2023-06/20230608_PlayfulHumpback_1920x1080.jpg)
 
 
 
