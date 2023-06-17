@@ -1,4 +1,8 @@
-#### 20230617 在加利福尼亚州圣地亚哥举行的“为团结划桨”活动 (© Brandon Colbert Photography/Getty Images)
+#### 20230618 Castelluccio, Umbria, Italy (© Stefano Termanini/Getty Images)
+
+![](20230618_CastelluccioUmbria_1920x1080.jpg)
+
+#### 20230617 'Paddle Out for Unity' event in San Diego, California (© Brandon Colbert Photography/Getty Images)
 
 ![](20230617_SurfSanDiego_1920x1080.jpg)
 

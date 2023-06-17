@@ -1,4 +1,8 @@
-#### 20230617 在加利福尼亚州圣地亚哥举行的“为团结划桨”活动 (© Brandon Colbert Photography/Getty Images)
+#### 20230618 Castelluccio, Umbria, Italy (© Stefano Termanini/Getty Images)
+
+![](images/2023-06/20230618_CastelluccioUmbria_1920x1080.jpg)
+
+#### 20230617 'Paddle Out for Unity' event in San Diego, California (© Brandon Colbert Photography/Getty Images)
 
 ![](images/2023-06/20230617_SurfSanDiego_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20230608 Humpback whale (© Philip Thurston/Getty Images)
 
 ![](images/2023-06/20230608_PlayfulHumpback_1920x1080.jpg)
-
-#### 20230607 Pueblo Bonito, Chaco Culture National Historical Park, New Mexico (© Ian Shive/Tandem Stills + Motion)
-
-![](images/2023-06/20230607_ChacoCulture_1920x1080.jpg)
 
 
 
