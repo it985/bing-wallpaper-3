@@ -1,3 +1,11 @@
+#### 20230619 ケベック橋, カナダ ケベック州 (© Ronald Santerre/Getty Images)
+
+![](20230619_QuebecCityBridge_1920x1080.jpg)
+
+#### 20230619 奔跑在诺曼底草地上的小狍，法国 (© Gerard Lacz/Minden)
+
+![](20230619_Fawn_1920x1080.jpg)
+
 #### 20230618 Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](20230618_TernFather_1920x1080.jpg)

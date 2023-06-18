@@ -1,3 +1,11 @@
+#### 20230619 ケベック橋, カナダ ケベック州 (© Ronald Santerre/Getty Images)
+
+![](images/2023-06/20230619_QuebecCityBridge_1920x1080.jpg)
+
+#### 20230619 奔跑在诺曼底草地上的小狍，法国 (© Gerard Lacz/Minden)
+
+![](images/2023-06/20230619_Fawn_1920x1080.jpg)
+
 #### 20230618 Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2023-06/20230618_TernFather_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230610 Porto Cathedral, Portugal (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](images/2023-06/20230610_PortugalDay_1920x1080.jpg)
-
-#### 20230610 Vue aérienne du circuit Bugatti, Le Mans (© Lou Benoist/AFP via Getty Images)
-
-![](images/2023-06/20230610_LeMansCentenary_1920x1080.jpg)
-
-#### 20230609 Hot air balloons in Cappadocia, Türkiye (© Anton Petrus/Getty Images)
-
-![](images/2023-06/20230609_BalloonsTurkey_1920x1080.jpg)
 
 
 
