@@ -1,4 +1,4 @@
-#### 20230618 普通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+#### 20230618 Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](20230618_TernFather_1920x1080.jpg)
 
