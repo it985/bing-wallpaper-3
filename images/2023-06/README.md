@@ -2,6 +2,10 @@
 
 ![](20230619_StonehengeSalisbury_1920x1080.jpg)
 
+#### 20230619 City Hall lit up for Juneteenth in San Francisco, California (© yhelfman/Shutterstock)
+
+![](20230619_SanFranHall_1920x1080.jpg)
+
 #### 20230619 ケベック橋, カナダ ケベック州 (© Ronald Santerre/Getty Images)
 
 ![](20230619_QuebecCityBridge_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](images/2023-06/20230619_StonehengeSalisbury_1920x1080.jpg)
 
+#### 20230619 City Hall lit up for Juneteenth in San Francisco, California (© yhelfman/Shutterstock)
+
+![](images/2023-06/20230619_SanFranHall_1920x1080.jpg)
+
 #### 20230619 ケベック橋, カナダ ケベック州 (© Ronald Santerre/Getty Images)
 
 ![](images/2023-06/20230619_QuebecCityBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230611 Goliath heron, Kruger National Park, South Africa (© Johan Swanepoel/Alamy)
 
 ![](images/2023-06/20230611_GoliathHeron_1920x1080.jpg)
-
-#### 20230611 Tulpenblüten auf der Insel Mainau, Bodensee (© Reinhard Schmid/Huber/eStock Photo)
-
-![](images/2023-06/20230611_GartenTagTulpen_1920x1080.jpg)
 
 
 
