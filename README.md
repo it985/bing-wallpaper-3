@@ -1,3 +1,7 @@
+#### 20230620 秃鹰，通加斯国家森林，阿拉斯加，美国 (© Jaynes Gallery/Shutterstock)
+
+![](images/2023-06/20230620_EagleTree_1920x1080.jpg)
+
 #### 20230619 Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)
 
 ![](images/2023-06/20230619_StonehengeSalisbury_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230612 Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2023-06/20230612_BigBendAnniv_1920x1080.jpg)
-
-#### 20230611 Goliath heron, Kruger National Park, South Africa (© Johan Swanepoel/Alamy)
-
-![](images/2023-06/20230611_GoliathHeron_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20230620 秃鹰，通加斯国家森林，阿拉斯加，美国 (© Jaynes Gallery/Shutterstock)
+
+![](20230620_EagleTree_1920x1080.jpg)
+
 #### 20230619 Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)
 
 ![](20230619_StonehengeSalisbury_1920x1080.jpg)
