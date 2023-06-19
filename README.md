@@ -1,3 +1,7 @@
+#### 20230619 Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)
+
+![](images/2023-06/20230619_StonehengeSalisbury_1920x1080.jpg)
+
 #### 20230619 ケベック橋, カナダ ケベック州 (© Ronald Santerre/Getty Images)
 
 ![](images/2023-06/20230619_QuebecCityBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230611 Tulpenblüten auf der Insel Mainau, Bodensee (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](images/2023-06/20230611_GartenTagTulpen_1920x1080.jpg)
-
-#### 20230611 美の山公園, 埼玉県 秩父市 (© SOURCENEXT/Alamy Stock Photo)
-
-![](images/2023-06/20230611_Ajisai_1920x1080.jpg)
 
 
 
