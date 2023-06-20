@@ -50,13 +50,13 @@
 
 ![](images/2023-06/20230614_WaterfallsSunwaptaValley_1920x1080.jpg)
 
+#### 20230614 Cathédrale de Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)
+
+![](images/2023-06/20230614_PortugalDay_1920x1080.jpg)
+
 #### 20230614 多瑙河畔的帕绍市，巴伐利亚，德国 (© Scott Wilson/Alamy)
 
 ![](images/2023-06/20230614_PassauSunsetJune_1920x1080.jpg)
-
-#### 20230614 US Capitol building and US flags, Washington, DC (© Orhan Cam/Shutterstock)
-
-![](images/2023-06/20230614_FlagDayCapitol_1920x1080.jpg)
 
 
 
