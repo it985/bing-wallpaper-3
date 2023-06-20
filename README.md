@@ -1,4 +1,4 @@
-#### 20230620 秃鹰，通加斯国家森林，阿拉斯加，美国 (© Jaynes Gallery/Shutterstock)
+#### 20230620 Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)
 
 ![](images/2023-06/20230620_EagleTree_1920x1080.jpg)
 
