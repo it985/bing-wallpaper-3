@@ -1,3 +1,11 @@
+#### 20230621 奥入瀬渓流, 青森県 (© yspbqh14/Shutterstock)
+
+![](20230621_Summersolstice_1920x1080.jpg)
+
+#### 20230621 夏日盛开的荷花 (© pandemin/Getty Images)
+
+![](20230621_SummerSolstice_1920x1080.jpg)
+
 #### 20230620 Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)
 
 ![](20230620_EagleTree_1920x1080.jpg)

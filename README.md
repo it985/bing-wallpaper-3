@@ -1,3 +1,11 @@
+#### 20230621 奥入瀬渓流, 青森県 (© yspbqh14/Shutterstock)
+
+![](images/2023-06/20230621_Summersolstice_1920x1080.jpg)
+
+#### 20230621 夏日盛开的荷花 (© pandemin/Getty Images)
+
+![](images/2023-06/20230621_SummerSolstice_1920x1080.jpg)
+
 #### 20230620 Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)
 
 ![](images/2023-06/20230620_EagleTree_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230614 US Capitol building and US flags, Washington, DC (© Orhan Cam/Shutterstock)
 
 ![](images/2023-06/20230614_FlagDayCapitol_1920x1080.jpg)
-
-#### 20230613 Trees with Spanish moss over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)
-
-![](images/2023-06/20230613_OkefenokeeSwamp_1920x1080.jpg)
-
-#### 20230612 Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)
-
-![](images/2023-06/20230612_BigBendAnniv_1920x1080.jpg)
 
 
 
