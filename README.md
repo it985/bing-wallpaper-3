@@ -6,6 +6,10 @@
 
 ![](images/2023-06/20230621_SummerSolstice_1920x1080.jpg)
 
+#### 20230621 Ancient rock carvings at Petroglyph Provincial Park in Nanaimo, Canada (© Chase Clausen/Shutterstock)
+
+![](images/2023-06/20230621_NationalIndigenousPeoplesDay_1920x1080.jpg)
+
 #### 20230620 Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)
 
 ![](images/2023-06/20230620_EagleTree_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230614 Cathédrale de Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](images/2023-06/20230614_PortugalDay_1920x1080.jpg)
-
-#### 20230614 多瑙河畔的帕绍市，巴伐利亚，德国 (© Scott Wilson/Alamy)
-
-![](images/2023-06/20230614_PassauSunsetJune_1920x1080.jpg)
 
 
 

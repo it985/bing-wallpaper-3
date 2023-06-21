@@ -6,6 +6,10 @@
 
 ![](20230621_SummerSolstice_1920x1080.jpg)
 
+#### 20230621 Ancient rock carvings at Petroglyph Provincial Park in Nanaimo, Canada (© Chase Clausen/Shutterstock)
+
+![](20230621_NationalIndigenousPeoplesDay_1920x1080.jpg)
+
 #### 20230620 Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)
 
 ![](20230620_EagleTree_1920x1080.jpg)
