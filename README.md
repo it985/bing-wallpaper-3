@@ -1,3 +1,11 @@
+#### 20230622 アマゾン熱帯雨林, ペルー (© Rhett Ayers Butler/Getty Images)
+
+![](images/2023-06/20230622_PeruAmazon_1920x1080.jpg)
+
+#### 20230622 中国传统节日端午节 (© timekeep/Shutterstock)
+
+![](images/2023-06/20230622_DragonBoatFestival_1920x1080.jpg)
+
 #### 20230621 奥入瀬渓流, 青森県 (© yspbqh14/Shutterstock)
 
 ![](images/2023-06/20230621_Summersolstice_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230615 Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)
 
 ![](images/2023-06/20230615_SmokyFireflies_1920x1080.jpg)
-
-#### 20230614 Waterfalls in Sunwapta Valley, Jasper National Park, Canada (© Delpixart/Getty Images)
-
-![](images/2023-06/20230614_WaterfallsSunwaptaValley_1920x1080.jpg)
-
-#### 20230614 Cathédrale de Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)
-
-![](images/2023-06/20230614_PortugalDay_1920x1080.jpg)
 
 
 

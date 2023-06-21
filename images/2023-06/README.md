@@ -1,3 +1,11 @@
+#### 20230622 アマゾン熱帯雨林, ペルー (© Rhett Ayers Butler/Getty Images)
+
+![](20230622_PeruAmazon_1920x1080.jpg)
+
+#### 20230622 中国传统节日端午节 (© timekeep/Shutterstock)
+
+![](20230622_DragonBoatFestival_1920x1080.jpg)
+
 #### 20230621 奥入瀬渓流, 青森県 (© yspbqh14/Shutterstock)
 
 ![](20230621_Summersolstice_1920x1080.jpg)
