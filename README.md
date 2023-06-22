@@ -1,4 +1,4 @@
-#### 20230622 アマゾン熱帯雨林, ペルー (© Rhett Ayers Butler/Getty Images)
+#### 20230622 Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)
 
 ![](images/2023-06/20230622_PeruAmazon_1920x1080.jpg)
 
