@@ -1,3 +1,7 @@
+#### 20230623 帝王蝶在野花中取食 (© bookguy/Getty Images)
+
+![](images/2023-06/20230623_PollinatorMonarch_1920x1080.jpg)
+
 #### 20230622 Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)
 
 ![](images/2023-06/20230622_PeruAmazon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230616 Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)
 
 ![](images/2023-06/20230616_HawksbillTurtle_1920x1080.jpg)
-
-#### 20230615 Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)
-
-![](images/2023-06/20230615_SmokyFireflies_1920x1080.jpg)
 
 
 

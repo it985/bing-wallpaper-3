@@ -1,3 +1,7 @@
+#### 20230623 帝王蝶在野花中取食 (© bookguy/Getty Images)
+
+![](20230623_PollinatorMonarch_1920x1080.jpg)
+
 #### 20230622 Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)
 
 ![](20230622_PeruAmazon_1920x1080.jpg)
