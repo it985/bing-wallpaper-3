@@ -1,3 +1,7 @@
+#### 20230624 芽富湾，芽庄，越南 (© Thang Tat Nguyen/Getty Images)
+
+![](20230624_NhaTrang_1920x1080.jpg)
+
 #### 20230623 Abbaye et baie du Mont Saint-Michel, Normandie (© Mathieu Rivrin/Getty Images)
 
 ![](20230623_SaintMichel_1920x1080.jpg)

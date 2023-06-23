@@ -1,3 +1,7 @@
+#### 20230624 芽富湾，芽庄，越南 (© Thang Tat Nguyen/Getty Images)
+
+![](images/2023-06/20230624_NhaTrang_1920x1080.jpg)
+
 #### 20230623 Abbaye et baie du Mont Saint-Michel, Normandie (© Mathieu Rivrin/Getty Images)
 
 ![](images/2023-06/20230623_SaintMichel_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230618 Castelluccio, Umbria, Italy (© Stefano Termanini/Getty Images)
 
 ![](images/2023-06/20230618_CastelluccioUmbria_1920x1080.jpg)
-
-#### 20230617 'Paddle Out for Unity' event in San Diego, California (© Brandon Colbert Photography/Getty Images)
-
-![](images/2023-06/20230617_SurfSanDiego_1920x1080.jpg)
 
 
 
