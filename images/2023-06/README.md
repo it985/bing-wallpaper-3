@@ -1,3 +1,7 @@
+#### 20230623 Abbaye et baie du Mont Saint-Michel, Normandie (© Mathieu Rivrin/Getty Images)
+
+![](20230623_SaintMichel_1920x1080.jpg)
+
 #### 20230623 帝王蝶在野花中取食 (© bookguy/Getty Images)
 
 ![](20230623_PollinatorMonarch_1920x1080.jpg)

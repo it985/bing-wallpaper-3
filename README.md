@@ -1,3 +1,7 @@
+#### 20230623 Abbaye et baie du Mont Saint-Michel, Normandie (© Mathieu Rivrin/Getty Images)
+
+![](images/2023-06/20230623_SaintMichel_1920x1080.jpg)
+
 #### 20230623 帝王蝶在野花中取食 (© bookguy/Getty Images)
 
 ![](images/2023-06/20230623_PollinatorMonarch_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230617 'Paddle Out for Unity' event in San Diego, California (© Brandon Colbert Photography/Getty Images)
 
 ![](images/2023-06/20230617_SurfSanDiego_1920x1080.jpg)
-
-#### 20230616 Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)
-
-![](images/2023-06/20230616_HawksbillTurtle_1920x1080.jpg)
 
 
 
