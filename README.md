@@ -2,7 +2,7 @@
 
 ![](images/2023-06/20230623_SaintMichel_1920x1080.jpg)
 
-#### 20230623 帝王蝶在野花中取食 (© bookguy/Getty Images)
+#### 20230623 Monarch butterflies feeding from wildflowers (© bookguy/Getty Images)
 
 ![](images/2023-06/20230623_PollinatorMonarch_1920x1080.jpg)
 
