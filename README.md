@@ -2,7 +2,7 @@
 
 ![](images/2023-06/20230624_SonyCenterDome_1920x1080.jpg)
 
-#### 20230624 芽富湾，芽庄，越南 (© Thang Tat Nguyen/Getty Images)
+#### 20230624 Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)
 
 ![](images/2023-06/20230624_NhaTrang_1920x1080.jpg)
 
