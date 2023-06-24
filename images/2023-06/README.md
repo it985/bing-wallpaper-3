@@ -1,3 +1,7 @@
+#### 20230625 佩特拉的宝库，约旦 (© WitthayaP/Shutterstock)
+
+![](20230625_PetraTreasury_1920x1080.jpg)
+
 #### 20230624 Beleuchteter Innenraum, Sony Center, Berlin (© travelstock44/Alamy Stock Photo)
 
 ![](20230624_SonyCenterDome_1920x1080.jpg)
