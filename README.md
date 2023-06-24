@@ -1,3 +1,7 @@
+#### 20230624 Beleuchteter Innenraum, Sony Center, Berlin (© travelstock44/Alamy Stock Photo)
+
+![](images/2023-06/20230624_SonyCenterDome_1920x1080.jpg)
+
 #### 20230624 芽富湾，芽庄，越南 (© Thang Tat Nguyen/Getty Images)
 
 ![](images/2023-06/20230624_NhaTrang_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230618 Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2023-06/20230618_TernFather_1920x1080.jpg)
-
-#### 20230618 Castelluccio, Umbria, Italy (© Stefano Termanini/Getty Images)
-
-![](images/2023-06/20230618_CastelluccioUmbria_1920x1080.jpg)
 
 
 
