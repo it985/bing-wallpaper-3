@@ -1,4 +1,4 @@
-#### 20230625 佩特拉的宝库，约旦 (© WitthayaP/Shutterstock)
+#### 20230625 Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)
 
 ![](images/2023-06/20230625_PetraTreasury_1920x1080.jpg)
 
