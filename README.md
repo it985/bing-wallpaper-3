@@ -1,3 +1,7 @@
+#### 20230626 维朗德里城堡及花园，卢瓦尔河谷，法国 (© VLADJ55/Shutterstock)
+
+![](images/2023-06/20230626_VillandryGarden_1920x1080.jpg)
+
 #### 20230625 Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)
 
 ![](images/2023-06/20230625_PetraTreasury_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230619 ケベック橋, カナダ ケベック州 (© Ronald Santerre/Getty Images)
 
 ![](images/2023-06/20230619_QuebecCityBridge_1920x1080.jpg)
-
-#### 20230619 奔跑在诺曼底草地上的小狍，法国 (© Gerard Lacz/Minden)
-
-![](images/2023-06/20230619_Fawn_1920x1080.jpg)
 
 
 
