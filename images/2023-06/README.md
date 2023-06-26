@@ -1,4 +1,4 @@
-#### 20230626 维朗德里城堡及花园，卢瓦尔河谷，法国 (© VLADJ55/Shutterstock)
+#### 20230626 Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)
 
 ![](20230626_VillandryGarden_1920x1080.jpg)
 
