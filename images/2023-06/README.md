@@ -1,3 +1,7 @@
+#### 20230627 塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images)
+
+![](20230627_SedonaSunset_1920x1080.jpg)
+
 #### 20230626 Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)
 
 ![](20230626_VillandryGarden_1920x1080.jpg)

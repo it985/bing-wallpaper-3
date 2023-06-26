@@ -1,3 +1,7 @@
+#### 20230627 塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images)
+
+![](images/2023-06/20230627_SedonaSunset_1920x1080.jpg)
+
 #### 20230626 Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)
 
 ![](images/2023-06/20230626_VillandryGarden_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230619 City Hall lit up for Juneteenth in San Francisco, California (© yhelfman/Shutterstock)
 
 ![](images/2023-06/20230619_SanFranHall_1920x1080.jpg)
-
-#### 20230619 ケベック橋, カナダ ケベック州 (© Ronald Santerre/Getty Images)
-
-![](images/2023-06/20230619_QuebecCityBridge_1920x1080.jpg)
 
 
 
