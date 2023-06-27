@@ -1,3 +1,11 @@
+#### 20230628 レインボーフラッグと紙吹雪, アイスランド レイキャヴィーク (© Arctic-Images/Getty Images)
+
+![](images/2023-06/20230628_PrideIceland_1920x1080.jpg)
+
+#### 20230628 韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images)
+
+![](images/2023-06/20230628_ItalyCinqueTerre_1920x1080.jpg)
+
 #### 20230627 Sedona, Arizona (© Jonathan Ross/Getty Images)
 
 ![](images/2023-06/20230627_SedonaSunset_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230620 Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)
 
 ![](images/2023-06/20230620_EagleTree_1920x1080.jpg)
-
-#### 20230619 Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)
-
-![](images/2023-06/20230619_StonehengeSalisbury_1920x1080.jpg)
-
-#### 20230619 City Hall lit up for Juneteenth in San Francisco, California (© yhelfman/Shutterstock)
-
-![](images/2023-06/20230619_SanFranHall_1920x1080.jpg)
 
 
 

@@ -1,3 +1,11 @@
+#### 20230628 レインボーフラッグと紙吹雪, アイスランド レイキャヴィーク (© Arctic-Images/Getty Images)
+
+![](20230628_PrideIceland_1920x1080.jpg)
+
+#### 20230628 韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images)
+
+![](20230628_ItalyCinqueTerre_1920x1080.jpg)
+
 #### 20230627 Sedona, Arizona (© Jonathan Ross/Getty Images)
 
 ![](20230627_SedonaSunset_1920x1080.jpg)
