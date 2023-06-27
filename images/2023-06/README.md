@@ -1,4 +1,4 @@
-#### 20230627 塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images)
+#### 20230627 Sedona, Arizona (© Jonathan Ross/Getty Images)
 
 ![](20230627_SedonaSunset_1920x1080.jpg)
 
