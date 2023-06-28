@@ -1,3 +1,7 @@
+#### 20230629 巴尼亚群岛，苏门答腊，印度尼西亚 (© fbxx/Getty Imagesz)
+
+![](20230629_BanyakIslands_1920x1080.jpg)
+
 #### 20230628 Regenbogenfahnen am Münchner Rathaus (© FooTToo/iStock/Getty Images Plus)
 
 ![](20230628_PrideMunich_1920x1080.jpg)
