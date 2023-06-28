@@ -2,7 +2,7 @@
 
 ![](20230628_PrideMunich_1920x1080.jpg)
 
-#### 20230628 レインボーフラッグと紙吹雪, アイスランド レイキャヴィーク (© Arctic-Images/Getty Images)
+#### 20230628 Rainbow flags and confetti, Reykjavík, Iceland (© Arctic-Images/Getty Images)
 
 ![](20230628_PrideIceland_1920x1080.jpg)
 
