@@ -1,3 +1,7 @@
+#### 20230628 Regenbogenfahnen am Münchner Rathaus (© FooTToo/iStock/Getty Images Plus)
+
+![](images/2023-06/20230628_PrideMunich_1920x1080.jpg)
+
 #### 20230628 レインボーフラッグと紙吹雪, アイスランド レイキャヴィーク (© Arctic-Images/Getty Images)
 
 ![](images/2023-06/20230628_PrideIceland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230621 Ancient rock carvings at Petroglyph Provincial Park in Nanaimo, Canada (© Chase Clausen/Shutterstock)
 
 ![](images/2023-06/20230621_NationalIndigenousPeoplesDay_1920x1080.jpg)
-
-#### 20230620 Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)
-
-![](images/2023-06/20230620_EagleTree_1920x1080.jpg)
 
 
 

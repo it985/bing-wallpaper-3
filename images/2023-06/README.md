@@ -1,3 +1,7 @@
+#### 20230628 Regenbogenfahnen am Münchner Rathaus (© FooTToo/iStock/Getty Images Plus)
+
+![](20230628_PrideMunich_1920x1080.jpg)
+
 #### 20230628 レインボーフラッグと紙吹雪, アイスランド レイキャヴィーク (© Arctic-Images/Getty Images)
 
 ![](20230628_PrideIceland_1920x1080.jpg)
