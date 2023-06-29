@@ -1,4 +1,4 @@
-#### 20230629 巴尼亚群岛，苏门答腊，印度尼西亚 (© fbxx/Getty Imagesz)
+#### 20230629 Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)
 
 ![](images/2023-06/20230629_BanyakIslands_1920x1080.jpg)
 
