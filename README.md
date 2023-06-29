@@ -1,3 +1,7 @@
+#### 20230630 棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州 (© Carlos Carreno/Getty Images)
+
+![](images/2023-06/20230630_ClamBears_1920x1080.jpg)
+
 #### 20230629 Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)
 
 ![](images/2023-06/20230629_BanyakIslands_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230621 奥入瀬渓流, 青森県 (© yspbqh14/Shutterstock)
 
 ![](images/2023-06/20230621_Summersolstice_1920x1080.jpg)
-
-#### 20230621 夏日盛开的荷花 (© pandemin/Getty Images)
-
-![](images/2023-06/20230621_SummerSolstice_1920x1080.jpg)
 
 
 

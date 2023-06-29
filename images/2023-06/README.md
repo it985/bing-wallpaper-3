@@ -1,3 +1,7 @@
+#### 20230630 棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州 (© Carlos Carreno/Getty Images)
+
+![](20230630_ClamBears_1920x1080.jpg)
+
 #### 20230629 Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)
 
 ![](20230629_BanyakIslands_1920x1080.jpg)
