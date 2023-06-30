@@ -1,3 +1,7 @@
+#### 20230630 Fußgängerbrücke über den See zu den Stelzenhäusern, Unteruhldingen, Baden-Württemberg (© Harald Nachtmann/Getty Images)
+
+![](images/2023-06/20230630_Footbridge_1920x1080.jpg)
+
 #### 20230630 棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州 (© Carlos Carreno/Getty Images)
 
 ![](images/2023-06/20230630_ClamBears_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230622 中国传统节日端午节 (© timekeep/Shutterstock)
 
 ![](images/2023-06/20230622_DragonBoatFestival_1920x1080.jpg)
-
-#### 20230621 奥入瀬渓流, 青森県 (© yspbqh14/Shutterstock)
-
-![](images/2023-06/20230621_Summersolstice_1920x1080.jpg)
 
 
 
