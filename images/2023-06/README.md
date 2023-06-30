@@ -2,7 +2,7 @@
 
 ![](20230630_Footbridge_1920x1080.jpg)
 
-#### 20230630 棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州 (© Carlos Carreno/Getty Images)
+#### 20230630 Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska (© Carlos Carreno/Getty Images)
 
 ![](20230630_ClamBears_1920x1080.jpg)
 
