@@ -6,3 +6,7 @@
 
 ![](20230701_PelotonPont_1920x1080.jpg)
 
+#### 20230701 Parliament Hill in Ottawa, Ontario, Canada (© f11photo/Shutterstock)
+
+![](20230701_CanadaDay_1920x1080.jpg)
+

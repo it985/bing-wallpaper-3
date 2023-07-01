@@ -6,6 +6,10 @@
 
 ![](images/2023-07/20230701_PelotonPont_1920x1080.jpg)
 
+#### 20230701 Parliament Hill in Ottawa, Ontario, Canada (© f11photo/Shutterstock)
+
+![](images/2023-07/20230701_CanadaDay_1920x1080.jpg)
+
 #### 20230630 Fußgängerbrücke über den See zu den Stelzenhäusern, Unteruhldingen, Baden-Württemberg (© Harald Nachtmann/Getty Images)
 
 ![](images/2023-06/20230630_Footbridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230623 Abbaye et baie du Mont Saint-Michel, Normandie (© Mathieu Rivrin/Getty Images)
 
 ![](images/2023-06/20230623_SaintMichel_1920x1080.jpg)
-
-#### 20230623 Monarch butterflies feeding from wildflowers (© bookguy/Getty Images)
-
-![](images/2023-06/20230623_PollinatorMonarch_1920x1080.jpg)
 
 
 
