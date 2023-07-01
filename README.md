@@ -2,7 +2,7 @@
 
 ![](images/2023-07/20230701_RomeView_1920x1080.jpg)
 
-#### 20230701 ポン・デュ・ガールを横断するサイクリストたち, フランス (© Gonzalo Fuentes/Getty Images)
+#### 20230701 Tour de France cyclists crossing the Pont du Gard, France (© Gonzalo Fuentes/Reuters)
 
 ![](images/2023-07/20230701_PelotonPont_1920x1080.jpg)
 
