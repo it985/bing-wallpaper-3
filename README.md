@@ -1,3 +1,7 @@
+#### 20230702 费吕沃湖水道桥，荷兰 (© Frolova_Elena/Shutterstock)
+
+![](images/2023-07/20230702_HalfwayBoats_1920x1080.jpg)
+
 #### 20230701 从意大利圣天使城堡俯瞰罗马 (© sborisov/Getty Images)
 
 ![](images/2023-07/20230701_RomeView_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230624 Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)
 
 ![](images/2023-06/20230624_NhaTrang_1920x1080.jpg)
-
-#### 20230623 Abbaye et baie du Mont Saint-Michel, Normandie (© Mathieu Rivrin/Getty Images)
-
-![](images/2023-06/20230623_SaintMichel_1920x1080.jpg)
 
 
 

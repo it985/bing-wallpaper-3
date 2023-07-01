@@ -1,3 +1,7 @@
+#### 20230702 费吕沃湖水道桥，荷兰 (© Frolova_Elena/Shutterstock)
+
+![](20230702_HalfwayBoats_1920x1080.jpg)
+
 #### 20230701 从意大利圣天使城堡俯瞰罗马 (© sborisov/Getty Images)
 
 ![](20230701_RomeView_1920x1080.jpg)
