@@ -1,4 +1,4 @@
-#### 20230702 费吕沃湖水道桥，荷兰 (© Frolova_Elena/Shutterstock)
+#### 20230702 Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)
 
 ![](20230702_HalfwayBoats_1920x1080.jpg)
 
