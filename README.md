@@ -1,3 +1,11 @@
+#### 20230703 班夫的土狼，加拿大 (© Harry Collins/Getty Images)
+
+![](images/2023-07/20230703_CoyoteBanff_1920x1080.jpg)
+
+#### 20230703 トゥアモトゥ諸島にあるカウエヒ環礁, フランス領ポリネシア (© WaterFrame/Alamy)
+
+![](images/2023-07/20230703_Atoll_1920x1080.jpg)
+
 #### 20230702 Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)
 
 ![](images/2023-07/20230702_HalfwayBoats_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230625 Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)
 
 ![](images/2023-06/20230625_PetraTreasury_1920x1080.jpg)
-
-#### 20230624 Beleuchteter Innenraum, Sony Center, Berlin (© travelstock44/Alamy Stock Photo)
-
-![](images/2023-06/20230624_SonyCenterDome_1920x1080.jpg)
-
-#### 20230624 Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)
-
-![](images/2023-06/20230624_NhaTrang_1920x1080.jpg)
 
 
 

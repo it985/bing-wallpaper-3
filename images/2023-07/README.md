@@ -1,3 +1,11 @@
+#### 20230703 班夫的土狼，加拿大 (© Harry Collins/Getty Images)
+
+![](20230703_CoyoteBanff_1920x1080.jpg)
+
+#### 20230703 トゥアモトゥ諸島にあるカウエヒ環礁, フランス領ポリネシア (© WaterFrame/Alamy)
+
+![](20230703_Atoll_1920x1080.jpg)
+
 #### 20230702 Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)
 
 ![](20230702_HalfwayBoats_1920x1080.jpg)
