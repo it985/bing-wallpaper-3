@@ -1,4 +1,4 @@
-#### 20230703 班夫的土狼，加拿大 (© Harry Collins/Getty Images)
+#### 20230703 A coyote in Banff, Alberta, Canada (© Harry Collins/Getty Images)
 
 ![](images/2023-07/20230703_CoyoteBanff_1920x1080.jpg)
 
