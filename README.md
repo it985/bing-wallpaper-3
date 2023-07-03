@@ -1,3 +1,11 @@
+#### 20230704 サマセットのラベンダー畑, イギリス  (© Doug Chinnery/Getty Images)
+
+![](images/2023-07/20230704_SomersetLavender_1920x1080.jpg)
+
+#### 20230704 草原国家公园，萨斯喀彻温省，加拿大 (© Robert Postma/Getty Images)
+
+![](images/2023-07/20230704_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
+
 #### 20230703 A coyote in Banff, Alberta, Canada (© Harry Collins/Getty Images)
 
 ![](images/2023-07/20230703_CoyoteBanff_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230627 Sedona, Arizona (© Jonathan Ross/Getty Images)
 
 ![](images/2023-06/20230627_SedonaSunset_1920x1080.jpg)
-
-#### 20230626 Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)
-
-![](images/2023-06/20230626_VillandryGarden_1920x1080.jpg)
-
-#### 20230625 Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)
-
-![](images/2023-06/20230625_PetraTreasury_1920x1080.jpg)
 
 
 

@@ -1,3 +1,11 @@
+#### 20230704 サマセットのラベンダー畑, イギリス  (© Doug Chinnery/Getty Images)
+
+![](20230704_SomersetLavender_1920x1080.jpg)
+
+#### 20230704 草原国家公园，萨斯喀彻温省，加拿大 (© Robert Postma/Getty Images)
+
+![](20230704_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
+
 #### 20230703 A coyote in Banff, Alberta, Canada (© Harry Collins/Getty Images)
 
 ![](20230703_CoyoteBanff_1920x1080.jpg)
