@@ -6,6 +6,10 @@
 
 ![](20230704_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
 
+#### 20230704 Empire State Building on the Fourth of July, New York City (© Tetra Images/Getty Images)
+
+![](20230704_EmpireFourth_1920x1080.jpg)
+
 #### 20230704 Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)
 
 ![](20230704_CooperChapel_1920x1080.jpg)
