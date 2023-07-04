@@ -1,3 +1,7 @@
+#### 20230705 蒂莫尼港海滩，科孚岛，希腊 (© nantonov/Getty Images)
+
+![](images/2023-07/20230705_CorfuBeach_1920x1080.jpg)
+
 #### 20230704 サマセットのラベンダー畑, イギリス  (© Doug Chinnery/Getty Images)
 
 ![](images/2023-07/20230704_SomersetLavender_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230628 Regenbogenfahnen am Münchner Rathaus (© FooTToo/iStock/Getty Images Plus)
 
 ![](images/2023-06/20230628_PrideMunich_1920x1080.jpg)
-
-#### 20230628 Rainbow flags and confetti, Reykjavík, Iceland (© Arctic-Images/Getty Images)
-
-![](images/2023-06/20230628_PrideIceland_1920x1080.jpg)
 
 
 
