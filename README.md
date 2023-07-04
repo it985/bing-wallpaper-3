@@ -6,6 +6,10 @@
 
 ![](images/2023-07/20230704_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
 
+#### 20230704 Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)
+
+![](images/2023-07/20230704_CooperChapel_1920x1080.jpg)
+
 #### 20230703 A coyote in Banff, Alberta, Canada (© Harry Collins/Getty Images)
 
 ![](images/2023-07/20230703_CoyoteBanff_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230628 韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images)
 
 ![](images/2023-06/20230628_ItalyCinqueTerre_1920x1080.jpg)
-
-#### 20230627 Sedona, Arizona (© Jonathan Ross/Getty Images)
-
-![](images/2023-06/20230627_SedonaSunset_1920x1080.jpg)
 
 
 

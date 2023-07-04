@@ -6,6 +6,10 @@
 
 ![](20230704_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
 
+#### 20230704 Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)
+
+![](20230704_CooperChapel_1920x1080.jpg)
+
 #### 20230703 A coyote in Banff, Alberta, Canada (© Harry Collins/Getty Images)
 
 ![](20230703_CoyoteBanff_1920x1080.jpg)
