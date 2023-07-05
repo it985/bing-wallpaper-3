@@ -1,4 +1,8 @@
-#### 20230705 蒂莫尼港海滩，科孚岛，希腊 (© nantonov/Getty Images)
+#### 20230706 Row of boats at Hintersee lake, Bavaria, Germany (© Achim Thomae/Getty Images)
+
+![](20230706_HinterseeBavaria_1920x1080.jpg)
+
+#### 20230705 Porto Timoni beach, Corfu, Greece (© nantonov/Getty Images)
 
 ![](20230705_CorfuBeach_1920x1080.jpg)
 

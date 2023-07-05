@@ -1,4 +1,8 @@
-#### 20230705 蒂莫尼港海滩，科孚岛，希腊 (© nantonov/Getty Images)
+#### 20230706 Row of boats at Hintersee lake, Bavaria, Germany (© Achim Thomae/Getty Images)
+
+![](images/2023-07/20230706_HinterseeBavaria_1920x1080.jpg)
+
+#### 20230705 Porto Timoni beach, Corfu, Greece (© nantonov/Getty Images)
 
 ![](images/2023-07/20230705_CorfuBeach_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20230629 Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)
 
 ![](images/2023-06/20230629_BanyakIslands_1920x1080.jpg)
-
-#### 20230628 Regenbogenfahnen am Münchner Rathaus (© FooTToo/iStock/Getty Images Plus)
-
-![](images/2023-06/20230628_PrideMunich_1920x1080.jpg)
 
 
 
