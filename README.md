@@ -1,3 +1,7 @@
+#### 20230706 南跳岩企鹅，福克兰群岛 (© Tony Beck/Getty Images)
+
+![](images/2023-07/20230706_KissingPenguins_1920x1080.jpg)
+
 #### 20230706 Row of boats at Hintersee lake, Bavaria, Germany (© Achim Thomae/Getty Images)
 
 ![](images/2023-07/20230706_HinterseeBavaria_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230630 Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska (© Carlos Carreno/Getty Images)
 
 ![](images/2023-06/20230630_ClamBears_1920x1080.jpg)
-
-#### 20230629 Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)
-
-![](images/2023-06/20230629_BanyakIslands_1920x1080.jpg)
 
 
 
