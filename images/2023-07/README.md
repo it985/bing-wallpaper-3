@@ -1,3 +1,11 @@
+#### 20230707 燕岳の星空, 長野県 (© Nuttapoom Amornpashara/Getty Images)
+
+![](20230707_Tanabata_1920x1080.jpg)
+
+#### 20230707 安班加的可可豆荚，马达加斯加 (© pierivb/Getty Images)
+
+![](20230707_CocoaPods_1920x1080.jpg)
+
 #### 20230706 Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)
 
 ![](20230706_KissingPenguins_1920x1080.jpg)

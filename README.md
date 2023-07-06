@@ -1,3 +1,11 @@
+#### 20230707 燕岳の星空, 長野県 (© Nuttapoom Amornpashara/Getty Images)
+
+![](images/2023-07/20230707_Tanabata_1920x1080.jpg)
+
+#### 20230707 安班加的可可豆荚，马达加斯加 (© pierivb/Getty Images)
+
+![](images/2023-07/20230707_CocoaPods_1920x1080.jpg)
+
 #### 20230706 Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)
 
 ![](images/2023-07/20230706_KissingPenguins_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230701 Parliament Hill in Ottawa, Ontario, Canada (© f11photo/Shutterstock)
 
 ![](images/2023-07/20230701_CanadaDay_1920x1080.jpg)
-
-#### 20230630 Fußgängerbrücke über den See zu den Stelzenhäusern, Unteruhldingen, Baden-Württemberg (© Harald Nachtmann/Getty Images)
-
-![](images/2023-06/20230630_Footbridge_1920x1080.jpg)
-
-#### 20230630 Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska (© Carlos Carreno/Getty Images)
-
-![](images/2023-06/20230630_ClamBears_1920x1080.jpg)
 
 
 
