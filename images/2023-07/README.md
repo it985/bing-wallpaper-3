@@ -1,4 +1,4 @@
-#### 20230706 南跳岩企鹅，福克兰群岛 (© Tony Beck/Getty Images)
+#### 20230706 Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)
 
 ![](20230706_KissingPenguins_1920x1080.jpg)
 
