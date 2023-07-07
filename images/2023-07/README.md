@@ -2,7 +2,7 @@
 
 ![](20230707_Tanabata_1920x1080.jpg)
 
-#### 20230707 安班加的可可豆荚，马达加斯加 (© pierivb/Getty Images)
+#### 20230707 Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)
 
 ![](20230707_CocoaPods_1920x1080.jpg)
 
