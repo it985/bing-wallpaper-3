@@ -1,3 +1,7 @@
+#### 20230709 克罗夫附近的摩泽尔河，德国 (© Jorg Greuel/Getty Images)
+
+![](images/2023-07/20230709_MoselleRiver_1920x1080.jpg)
+
 #### 20230709 Brighton Pier, England (© Peppy Graphics/Shutterstock)
 
 ![](images/2023-07/20230709_BrightonPalacePier_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230702 Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)
 
 ![](images/2023-07/20230702_HalfwayBoats_1920x1080.jpg)
-
-#### 20230701 从意大利圣天使城堡俯瞰罗马 (© sborisov/Getty Images)
-
-![](images/2023-07/20230701_RomeView_1920x1080.jpg)
 
 
 

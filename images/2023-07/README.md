@@ -1,3 +1,7 @@
+#### 20230709 克罗夫附近的摩泽尔河，德国 (© Jorg Greuel/Getty Images)
+
+![](20230709_MoselleRiver_1920x1080.jpg)
+
 #### 20230709 Brighton Pier, England (© Peppy Graphics/Shutterstock)
 
 ![](20230709_BrightonPalacePier_1920x1080.jpg)
