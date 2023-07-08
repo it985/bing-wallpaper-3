@@ -1,3 +1,7 @@
+#### 20230709 Brighton Pier, England (© Peppy Graphics/Shutterstock)
+
+![](20230709_BrightonPalacePier_1920x1080.jpg)
+
 #### 20230708 Les célèbres parasols multicolores de la plage de Deauville, Normandie (© Kiszon Pascal/Getty Images)
 
 ![](20230708_Holidays_1920x1080.jpg)
