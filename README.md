@@ -1,3 +1,7 @@
+#### 20230708 Les célèbres parasols multicolores de la plage de Deauville, Normandie (© Kiszon Pascal/Getty Images)
+
+![](images/2023-07/20230708_Holidays_1920x1080.jpg)
+
 #### 20230707 燕岳の星空, 長野県 (© Nuttapoom Amornpashara/Getty Images)
 
 ![](images/2023-07/20230707_Tanabata_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230701 Tour de France cyclists crossing the Pont du Gard, France (© Gonzalo Fuentes/Reuters)
 
 ![](images/2023-07/20230701_PelotonPont_1920x1080.jpg)
-
-#### 20230701 Parliament Hill in Ottawa, Ontario, Canada (© f11photo/Shutterstock)
-
-![](images/2023-07/20230701_CanadaDay_1920x1080.jpg)
 
 
 
