@@ -1,3 +1,7 @@
+#### 20230710 浅草寺のほおずき市, 東京 (© y-studio/iStock/Getty Images Plus)
+
+![](images/2023-07/20230710_HozukiIchi_1920x1080.jpg)
+
 #### 20230709 Moselle River loop, Kröv, Germany (© Jorg Greuel/Getty Images)
 
 ![](images/2023-07/20230709_MoselleRiver_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230703 トゥアモトゥ諸島にあるカウエヒ環礁, フランス領ポリネシア (© WaterFrame/Alamy)
 
 ![](images/2023-07/20230703_Atoll_1920x1080.jpg)
-
-#### 20230702 Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)
-
-![](images/2023-07/20230702_HalfwayBoats_1920x1080.jpg)
 
 
 

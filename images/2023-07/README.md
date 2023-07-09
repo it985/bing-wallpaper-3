@@ -1,3 +1,7 @@
+#### 20230710 浅草寺のほおずき市, 東京 (© y-studio/iStock/Getty Images Plus)
+
+![](20230710_HozukiIchi_1920x1080.jpg)
+
 #### 20230709 Moselle River loop, Kröv, Germany (© Jorg Greuel/Getty Images)
 
 ![](20230709_MoselleRiver_1920x1080.jpg)
