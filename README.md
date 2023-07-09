@@ -1,4 +1,4 @@
-#### 20230709 克罗夫附近的摩泽尔河，德国 (© Jorg Greuel/Getty Images)
+#### 20230709 Moselle River loop, Kröv, Germany (© Jorg Greuel/Getty Images)
 
 ![](images/2023-07/20230709_MoselleRiver_1920x1080.jpg)
 
