@@ -1,3 +1,7 @@
+#### 20230711 Hong Kong SAR (© leungchopan/Getty Images)
+
+![](images/2023-07/20230711_WorldPopDay_1920x1080.jpg)
+
 #### 20230710 浅草寺のほおずき市, 東京 (© y-studio/iStock/Getty Images Plus)
 
 ![](images/2023-07/20230710_HozukiIchi_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230703 A coyote in Banff, Alberta, Canada (© Harry Collins/Getty Images)
 
 ![](images/2023-07/20230703_CoyoteBanff_1920x1080.jpg)
-
-#### 20230703 トゥアモトゥ諸島にあるカウエヒ環礁, フランス領ポリネシア (© WaterFrame/Alamy)
-
-![](images/2023-07/20230703_Atoll_1920x1080.jpg)
 
 
 

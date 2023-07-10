@@ -1,3 +1,7 @@
+#### 20230711 Hong Kong SAR (© leungchopan/Getty Images)
+
+![](20230711_WorldPopDay_1920x1080.jpg)
+
 #### 20230710 浅草寺のほおずき市, 東京 (© y-studio/iStock/Getty Images Plus)
 
 ![](20230710_HozukiIchi_1920x1080.jpg)
