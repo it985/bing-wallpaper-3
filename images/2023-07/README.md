@@ -34,7 +34,7 @@
 
 ![](20230705_CorfuBeach_1920x1080.jpg)
 
-#### 20230704 サマセットのラベンダー畑, イギリス  (© Doug Chinnery/Getty Images)
+#### 20230704 Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)
 
 ![](20230704_SomersetLavender_1920x1080.jpg)
 
