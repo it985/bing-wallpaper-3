@@ -1,3 +1,7 @@
+#### 20230712 “我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy)
+
+![](images/2023-07/20230712_NakupendaBeach_1920x1080.jpg)
+
 #### 20230711 Hong Kong SAR (© leungchopan/Getty Images)
 
 ![](images/2023-07/20230711_WorldPopDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230704 Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)
 
 ![](images/2023-07/20230704_CooperChapel_1920x1080.jpg)
-
-#### 20230703 A coyote in Banff, Alberta, Canada (© Harry Collins/Getty Images)
-
-![](images/2023-07/20230703_CoyoteBanff_1920x1080.jpg)
 
 
 

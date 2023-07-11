@@ -1,3 +1,7 @@
+#### 20230712 “我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy)
+
+![](20230712_NakupendaBeach_1920x1080.jpg)
+
 #### 20230711 Hong Kong SAR (© leungchopan/Getty Images)
 
 ![](20230711_WorldPopDay_1920x1080.jpg)
