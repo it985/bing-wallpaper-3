@@ -1,4 +1,8 @@
-#### 20230712 “我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy)
+#### 20230713 Capo Caccia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)
+
+![](20230713_AlgheroCapoCaccia_1920x1080.jpg)
+
+#### 20230712 Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania  (© Lubos Paukeje/Alamy)
 
 ![](20230712_NakupendaBeach_1920x1080.jpg)
 
