@@ -1,3 +1,7 @@
+#### 20230713 张掖国家地质公园，甘肃，中国 (© TONNAJA/Getty Images)
+
+![](images/2023-07/20230713_ZhangyeGeopark_1920x1080.jpg)
+
 #### 20230713 Capo Caccia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](images/2023-07/20230713_AlgheroCapoCaccia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230704 草原国家公园，萨斯喀彻温省，加拿大 (© Robert Postma/Getty Images)
 
 ![](images/2023-07/20230704_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
-
-#### 20230704 Empire State Building on the Fourth of July, New York City (© Tetra Images/Getty Images)
-
-![](images/2023-07/20230704_EmpireFourth_1920x1080.jpg)
 
 
 
