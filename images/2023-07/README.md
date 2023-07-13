@@ -1,4 +1,4 @@
-#### 20230713 张掖国家地质公园，甘肃，中国 (© TONNAJA/Getty Images)
+#### 20230713 Zhangye Danxia National Geopark, Gansu province, China (© TONNAJA/Getty Images)
 
 ![](20230713_ZhangyeGeopark_1920x1080.jpg)
 
