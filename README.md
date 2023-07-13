@@ -1,3 +1,7 @@
+#### 20230714 乌翅真鲨，马尔代夫 (© Filippo Bacci/Getty Images)
+
+![](images/2023-07/20230714_BlacktipSharks_1920x1080.jpg)
+
 #### 20230713 Zhangye Danxia National Geopark, Gansu province, China (© TONNAJA/Getty Images)
 
 ![](images/2023-07/20230713_ZhangyeGeopark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230704 Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)
 
 ![](images/2023-07/20230704_SomersetLavender_1920x1080.jpg)
-
-#### 20230704 草原国家公园，萨斯喀彻温省，加拿大 (© Robert Postma/Getty Images)
-
-![](images/2023-07/20230704_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
 
 
 

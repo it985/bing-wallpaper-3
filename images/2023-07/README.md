@@ -1,3 +1,7 @@
+#### 20230714 乌翅真鲨，马尔代夫 (© Filippo Bacci/Getty Images)
+
+![](20230714_BlacktipSharks_1920x1080.jpg)
+
 #### 20230713 Zhangye Danxia National Geopark, Gansu province, China (© TONNAJA/Getty Images)
 
 ![](20230713_ZhangyeGeopark_1920x1080.jpg)
