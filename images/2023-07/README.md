@@ -46,6 +46,10 @@
 
 ![](20230708_Holidays_1920x1080.jpg)
 
+#### 20230708 Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)
+
+![](20230708_CooperChapel_1920x1080.jpg)
+
 #### 20230707 燕岳の星空, 長野県 (© Nuttapoom Amornpashara/Getty Images)
 
 ![](20230707_Tanabata_1920x1080.jpg)
