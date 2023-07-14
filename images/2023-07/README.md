@@ -1,4 +1,4 @@
-#### 20230714 乌翅真鲨，马尔代夫 (© Filippo Bacci/Getty Images)
+#### 20230714 Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)
 
 ![](20230714_BlacktipSharks_1920x1080.jpg)
 
