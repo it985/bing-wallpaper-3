@@ -1,3 +1,7 @@
+#### 20230715 卡斯泰尔梅扎诺，意大利 (© Rudy Balasko/Shutterstock)
+
+![](20230715_CastelmazzanoSunrise_1920x1080.jpg)
+
 #### 20230714 Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)
 
 ![](20230714_BlacktipSharks_1920x1080.jpg)

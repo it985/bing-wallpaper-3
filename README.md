@@ -1,3 +1,7 @@
+#### 20230715 卡斯泰尔梅扎诺，意大利 (© Rudy Balasko/Shutterstock)
+
+![](images/2023-07/20230715_CastelmazzanoSunrise_1920x1080.jpg)
+
 #### 20230714 Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)
 
 ![](images/2023-07/20230714_BlacktipSharks_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230706 Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)
 
 ![](images/2023-07/20230706_KissingPenguins_1920x1080.jpg)
-
-#### 20230706 Row of boats at Hintersee lake, Bavaria, Germany (© Achim Thomae/Getty Images)
-
-![](images/2023-07/20230706_HinterseeBavaria_1920x1080.jpg)
 
 
 
