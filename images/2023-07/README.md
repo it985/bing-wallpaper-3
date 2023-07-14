@@ -2,6 +2,14 @@
 
 ![](20230714_BlacktipSharks_1920x1080.jpg)
 
+#### 20230714 Botanische Nacht im Botanischen Garten, Berlin (© Felipe Trueba/EPA-EFE/Shutterstock)
+
+![](20230714_BerlinBotanicGarden_1920x1080.jpg)
+
+#### 20230714 Feu d'artifice du 14 juillet à Carcassonne, Occitanie (© Buena Vista Images/Getty Images)
+
+![](20230714_BastilleDay_1920x1080.jpg)
+
 #### 20230713 Zhangye Danxia National Geopark, Gansu province, China (© TONNAJA/Getty Images)
 
 ![](20230713_ZhangyeGeopark_1920x1080.jpg)

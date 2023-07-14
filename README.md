@@ -2,6 +2,14 @@
 
 ![](images/2023-07/20230714_BlacktipSharks_1920x1080.jpg)
 
+#### 20230714 Botanische Nacht im Botanischen Garten, Berlin (© Felipe Trueba/EPA-EFE/Shutterstock)
+
+![](images/2023-07/20230714_BerlinBotanicGarden_1920x1080.jpg)
+
+#### 20230714 Feu d'artifice du 14 juillet à Carcassonne, Occitanie (© Buena Vista Images/Getty Images)
+
+![](images/2023-07/20230714_BastilleDay_1920x1080.jpg)
+
 #### 20230713 Zhangye Danxia National Geopark, Gansu province, China (© TONNAJA/Getty Images)
 
 ![](images/2023-07/20230713_ZhangyeGeopark_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230706 Row of boats at Hintersee lake, Bavaria, Germany (© Achim Thomae/Getty Images)
 
 ![](images/2023-07/20230706_HinterseeBavaria_1920x1080.jpg)
-
-#### 20230705 Porto Timoni beach, Corfu, Greece (© nantonov/Getty Images)
-
-![](images/2023-07/20230705_CorfuBeach_1920x1080.jpg)
-
-#### 20230704 Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)
-
-![](images/2023-07/20230704_SomersetLavender_1920x1080.jpg)
 
 
 
