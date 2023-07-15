@@ -2,6 +2,10 @@
 
 ![](images/2023-07/20230715_CastelmazzanoSunrise_1920x1080.jpg)
 
+#### 20230715 Le pont d’Avignon et le palais des Papes, Provence Alpes Côte d’Azur (© travelstock44/Alamy Stock Photo)
+
+![](images/2023-07/20230715_AvignonPope_1920x1080.jpg)
+
 #### 20230714 Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)
 
 ![](images/2023-07/20230714_BlacktipSharks_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230707 燕岳の星空, 長野県 (© Nuttapoom Amornpashara/Getty Images)
 
 ![](images/2023-07/20230707_Tanabata_1920x1080.jpg)
-
-#### 20230707 Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)
-
-![](images/2023-07/20230707_CocoaPods_1920x1080.jpg)
 
 
 

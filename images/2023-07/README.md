@@ -2,6 +2,10 @@
 
 ![](20230715_CastelmazzanoSunrise_1920x1080.jpg)
 
+#### 20230715 Le pont d’Avignon et le palais des Papes, Provence Alpes Côte d’Azur (© travelstock44/Alamy Stock Photo)
+
+![](20230715_AvignonPope_1920x1080.jpg)
+
 #### 20230714 Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)
 
 ![](20230714_BlacktipSharks_1920x1080.jpg)
