@@ -1,3 +1,7 @@
+#### 20230716 熊洞溪，卡茨基尔山脉，纽约，美国 (© GummyBone/Getty Images)
+
+![](20230716_BearHoleBrook_1920x1080.jpg)
+
 #### 20230715 Castelmezzano, Italy (© Rudy Balasko/Shutterstock)
 
 ![](20230715_CastelmazzanoSunrise_1920x1080.jpg)

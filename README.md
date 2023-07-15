@@ -1,3 +1,7 @@
+#### 20230716 熊洞溪，卡茨基尔山脉，纽约，美国 (© GummyBone/Getty Images)
+
+![](images/2023-07/20230716_BearHoleBrook_1920x1080.jpg)
+
 #### 20230715 Castelmezzano, Italy (© Rudy Balasko/Shutterstock)
 
 ![](images/2023-07/20230715_CastelmazzanoSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230708 Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)
 
 ![](images/2023-07/20230708_CooperChapel_1920x1080.jpg)
-
-#### 20230707 燕岳の星空, 長野県 (© Nuttapoom Amornpashara/Getty Images)
-
-![](images/2023-07/20230707_Tanabata_1920x1080.jpg)
 
 
 
