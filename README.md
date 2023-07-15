@@ -38,6 +38,10 @@
 
 ![](images/2023-07/20230711_WorldPopDay_1920x1080.jpg)
 
+#### 20230710 Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)
+
+![](images/2023-07/20230710_SomersetLavender_1920x1080.jpg)
+
 #### 20230710 浅草寺のほおずき市, 東京 (© y-studio/iStock/Getty Images Plus)
 
 ![](images/2023-07/20230710_HozukiIchi_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230708 Les célèbres parasols multicolores de la plage de Deauville, Normandie (© Kiszon Pascal/Getty Images)
 
 ![](images/2023-07/20230708_Holidays_1920x1080.jpg)
-
-#### 20230708 Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)
-
-![](images/2023-07/20230708_CooperChapel_1920x1080.jpg)
 
 
 
