@@ -1,3 +1,11 @@
+#### 20230717 座間味島のウミガメ, 沖縄 (© petesphotography/iStock/Getty Images Plus)
+
+![](images/2023-07/20230717_MarineDay_1920x1080.jpg)
+
+#### 20230717 乌特湖的克拉夫特城堡，卡文郡，爱尔兰 (© 4H4 PH/Shutterstock)
+
+![](images/2023-07/20230717_CavanCastle_1920x1080.jpg)
+
 #### 20230716 Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)
 
 ![](images/2023-07/20230716_BearHoleBrook_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230709 Moselle River loop, Kröv, Germany (© Jorg Greuel/Getty Images)
 
 ![](images/2023-07/20230709_MoselleRiver_1920x1080.jpg)
-
-#### 20230709 Brighton Pier, England (© Peppy Graphics/Shutterstock)
-
-![](images/2023-07/20230709_BrightonPalacePier_1920x1080.jpg)
-
-#### 20230708 Les célèbres parasols multicolores de la plage de Deauville, Normandie (© Kiszon Pascal/Getty Images)
-
-![](images/2023-07/20230708_Holidays_1920x1080.jpg)
 
 
 

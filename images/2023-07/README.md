@@ -1,3 +1,11 @@
+#### 20230717 座間味島のウミガメ, 沖縄 (© petesphotography/iStock/Getty Images Plus)
+
+![](20230717_MarineDay_1920x1080.jpg)
+
+#### 20230717 乌特湖的克拉夫特城堡，卡文郡，爱尔兰 (© 4H4 PH/Shutterstock)
+
+![](20230717_CavanCastle_1920x1080.jpg)
+
 #### 20230716 Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)
 
 ![](20230716_BearHoleBrook_1920x1080.jpg)
