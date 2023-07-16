@@ -42,6 +42,10 @@
 
 ![](images/2023-07/20230712_NakupendaBeach_1920x1080.jpg)
 
+#### 20230712 Hintersee bei Ramsau, Bayern (© Achim Thomae/Getty Images)
+
+![](images/2023-07/20230712_HinterseeBavaria_1920x1080.jpg)
+
 #### 20230711 Hong Kong SAR (© leungchopan/Getty Images)
 
 ![](images/2023-07/20230711_WorldPopDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230710 浅草寺のほおずき市, 東京 (© y-studio/iStock/Getty Images Plus)
 
 ![](images/2023-07/20230710_HozukiIchi_1920x1080.jpg)
-
-#### 20230709 Moselle River loop, Kröv, Germany (© Jorg Greuel/Getty Images)
-
-![](images/2023-07/20230709_MoselleRiver_1920x1080.jpg)
 
 
 

@@ -42,6 +42,10 @@
 
 ![](20230712_NakupendaBeach_1920x1080.jpg)
 
+#### 20230712 Hintersee bei Ramsau, Bayern (© Achim Thomae/Getty Images)
+
+![](20230712_HinterseeBavaria_1920x1080.jpg)
+
 #### 20230711 Hong Kong SAR (© leungchopan/Getty Images)
 
 ![](20230711_WorldPopDay_1920x1080.jpg)
