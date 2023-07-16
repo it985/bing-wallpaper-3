@@ -1,4 +1,4 @@
-#### 20230716 熊洞溪，卡茨基尔山脉，纽约，美国 (© GummyBone/Getty Images)
+#### 20230716 Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)
 
 ![](20230716_BearHoleBrook_1920x1080.jpg)
 
