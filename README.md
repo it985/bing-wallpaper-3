@@ -2,7 +2,7 @@
 
 ![](images/2023-07/20230717_MarineDay_1920x1080.jpg)
 
-#### 20230717 乌特湖的克拉夫特城堡，卡文郡，爱尔兰 (© 4H4 PH/Shutterstock)
+#### 20230717 Cloughoughter Castle in Lough Oughter, County Cavan, Ireland (© 4H4 PH/Shutterstock)
 
 ![](images/2023-07/20230717_CavanCastle_1920x1080.jpg)
 
