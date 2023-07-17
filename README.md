@@ -1,3 +1,7 @@
+#### 20230718 双角犀鸟，考艾国家公园，泰国 (© kajornyot wildlife photography/Shutterstock)
+
+![](images/2023-07/20230718_BucerosBicornis_1920x1080.jpg)
+
 #### 20230717 座間味島のウミガメ, 沖縄 (© petesphotography/iStock/Getty Images Plus)
 
 ![](images/2023-07/20230717_MarineDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230710 Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)
 
 ![](images/2023-07/20230710_SomersetLavender_1920x1080.jpg)
-
-#### 20230710 浅草寺のほおずき市, 東京 (© y-studio/iStock/Getty Images Plus)
-
-![](images/2023-07/20230710_HozukiIchi_1920x1080.jpg)
 
 
 
