@@ -1,3 +1,7 @@
+#### 20230718 Hintersee, Ramsau, Bayern (© boule13/iStock/Getty Images Plus)
+
+![](images/2023-07/20230718_HinterseeLake_1920x1080.jpg)
+
 #### 20230718 双角犀鸟，考艾国家公园，泰国 (© kajornyot wildlife photography/Shutterstock)
 
 ![](images/2023-07/20230718_BucerosBicornis_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230711 Hong Kong SAR (© leungchopan/Getty Images)
 
 ![](images/2023-07/20230711_WorldPopDay_1920x1080.jpg)
-
-#### 20230710 Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)
-
-![](images/2023-07/20230710_SomersetLavender_1920x1080.jpg)
 
 
 
