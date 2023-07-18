@@ -1,3 +1,7 @@
+#### 20230719 敦煌月牙泉，甘肃省，中国 (© R7 Photo/Shutterstock)
+
+![](20230719_CrescentLake_1920x1080.jpg)
+
 #### 20230718 Hintersee, Ramsau, Bayern (© boule13/iStock/Getty Images Plus)
 
 ![](20230718_HinterseeLake_1920x1080.jpg)

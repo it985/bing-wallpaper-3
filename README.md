@@ -1,3 +1,7 @@
+#### 20230719 敦煌月牙泉，甘肃省，中国 (© R7 Photo/Shutterstock)
+
+![](images/2023-07/20230719_CrescentLake_1920x1080.jpg)
+
 #### 20230718 Hintersee, Ramsau, Bayern (© boule13/iStock/Getty Images Plus)
 
 ![](images/2023-07/20230718_HinterseeLake_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230712 Hintersee bei Ramsau, Bayern (© Achim Thomae/Getty Images)
 
 ![](images/2023-07/20230712_HinterseeBavaria_1920x1080.jpg)
-
-#### 20230711 Hong Kong SAR (© leungchopan/Getty Images)
-
-![](images/2023-07/20230711_WorldPopDay_1920x1080.jpg)
 
 
 
