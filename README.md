@@ -1,3 +1,7 @@
+#### 20230720 从美国宇航局猎户座飞船上看到的月球 (© NASA)
+
+![](images/2023-07/20230720_MoonDayArtemis_1920x1080.jpg)
+
 #### 20230719 Crescent Lake near Dunhuang, Gansu province, China (© R7 Photo/Shutterstock)
 
 ![](images/2023-07/20230719_CrescentLake_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230712 Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania  (© Lubos Paukeje/Alamy)
 
 ![](images/2023-07/20230712_NakupendaBeach_1920x1080.jpg)
-
-#### 20230712 Hintersee bei Ramsau, Bayern (© Achim Thomae/Getty Images)
-
-![](images/2023-07/20230712_HinterseeBavaria_1920x1080.jpg)
 
 
 
