@@ -1,4 +1,4 @@
-#### 20230719 敦煌月牙泉，甘肃省，中国 (© R7 Photo/Shutterstock)
+#### 20230719 Crescent Lake near Dunhuang, Gansu province, China (© R7 Photo/Shutterstock)
 
 ![](20230719_CrescentLake_1920x1080.jpg)
 
