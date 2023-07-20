@@ -1,3 +1,7 @@
+#### 20230721 斯托尔桑德特大桥，挪威 (© Morten Falch Sortland/Getty Images)
+
+![](20230721_BridgeNorway_1920x1080.jpg)
+
 #### 20230720 The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)
 
 ![](20230720_MoonDayArtemis_1920x1080.jpg)

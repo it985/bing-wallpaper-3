@@ -1,3 +1,7 @@
+#### 20230721 斯托尔桑德特大桥，挪威 (© Morten Falch Sortland/Getty Images)
+
+![](images/2023-07/20230721_BridgeNorway_1920x1080.jpg)
+
 #### 20230720 The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)
 
 ![](images/2023-07/20230720_MoonDayArtemis_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230713 Capo Caccia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](images/2023-07/20230713_AlgheroCapoCaccia_1920x1080.jpg)
-
-#### 20230712 Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania  (© Lubos Paukeje/Alamy)
-
-![](images/2023-07/20230712_NakupendaBeach_1920x1080.jpg)
 
 
 
