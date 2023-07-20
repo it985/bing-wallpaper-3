@@ -1,4 +1,4 @@
-#### 20230720 从美国宇航局猎户座飞船上看到的月球 (© NASA)
+#### 20230720 The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)
 
 ![](images/2023-07/20230720_MoonDayArtemis_1920x1080.jpg)
 
