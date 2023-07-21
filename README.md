@@ -1,3 +1,7 @@
+#### 20230722 在一棵秃柏树上吊床露营，佛罗里达州，美国 (© Mac Stone/Tandem Stills + Motion)
+
+![](images/2023-07/20230722_HammockDay_1920x1080.jpg)
+
 #### 20230721 Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)
 
 ![](images/2023-07/20230721_BridgeNorway_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230713 Zhangye Danxia National Geopark, Gansu province, China (© TONNAJA/Getty Images)
 
 ![](images/2023-07/20230713_ZhangyeGeopark_1920x1080.jpg)
-
-#### 20230713 Capo Caccia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)
-
-![](images/2023-07/20230713_AlgheroCapoCaccia_1920x1080.jpg)
 
 
 

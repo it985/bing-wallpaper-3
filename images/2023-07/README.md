@@ -1,3 +1,7 @@
+#### 20230722 在一棵秃柏树上吊床露营，佛罗里达州，美国 (© Mac Stone/Tandem Stills + Motion)
+
+![](20230722_HammockDay_1920x1080.jpg)
+
 #### 20230721 Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)
 
 ![](20230721_BridgeNorway_1920x1080.jpg)
