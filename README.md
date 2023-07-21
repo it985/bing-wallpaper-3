@@ -1,4 +1,4 @@
-#### 20230721 斯托尔桑德特大桥，挪威 (© Morten Falch Sortland/Getty Images)
+#### 20230721 Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)
 
 ![](images/2023-07/20230721_BridgeNorway_1920x1080.jpg)
 
