@@ -1,3 +1,7 @@
+#### 20230723 爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡 (© Jeremy Woodhouse/Getty Images)
+
+![](20230723_TeaEstate_1920x1080.jpg)
+
 #### 20230722 Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)
 
 ![](20230722_HammockDay_1920x1080.jpg)

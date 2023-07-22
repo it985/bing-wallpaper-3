@@ -1,3 +1,7 @@
+#### 20230723 爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡 (© Jeremy Woodhouse/Getty Images)
+
+![](images/2023-07/20230723_TeaEstate_1920x1080.jpg)
+
 #### 20230722 Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)
 
 ![](images/2023-07/20230722_HammockDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230714 Feu d'artifice du 14 juillet à Carcassonne, Occitanie (© Buena Vista Images/Getty Images)
 
 ![](images/2023-07/20230714_BastilleDay_1920x1080.jpg)
-
-#### 20230713 Zhangye Danxia National Geopark, Gansu province, China (© TONNAJA/Getty Images)
-
-![](images/2023-07/20230713_ZhangyeGeopark_1920x1080.jpg)
 
 
 
