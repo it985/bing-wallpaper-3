@@ -1,4 +1,4 @@
-#### 20230722 在一棵秃柏树上吊床露营，佛罗里达州，美国 (© Mac Stone/Tandem Stills + Motion)
+#### 20230722 Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)
 
 ![](images/2023-07/20230722_HammockDay_1920x1080.jpg)
 
