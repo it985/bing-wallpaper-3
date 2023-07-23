@@ -1,3 +1,7 @@
+#### 20230724 斑马，塔兰吉雷国家公园，坦桑尼亚 (© cinoby/Getty Images)
+
+![](20230724_ZebraCousins_1920x1080.jpg)
+
 #### 20230723 Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)
 
 ![](20230723_TeaEstate_1920x1080.jpg)

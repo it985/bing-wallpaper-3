@@ -1,3 +1,7 @@
+#### 20230724 斑马，塔兰吉雷国家公园，坦桑尼亚 (© cinoby/Getty Images)
+
+![](images/2023-07/20230724_ZebraCousins_1920x1080.jpg)
+
 #### 20230723 Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)
 
 ![](images/2023-07/20230723_TeaEstate_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230714 Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)
 
 ![](images/2023-07/20230714_BlacktipSharks_1920x1080.jpg)
-
-#### 20230714 Botanische Nacht im Botanischen Garten, Berlin (© Felipe Trueba/EPA-EFE/Shutterstock)
-
-![](images/2023-07/20230714_BerlinBotanicGarden_1920x1080.jpg)
 
 
 
