@@ -1,4 +1,4 @@
-#### 20230723 爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡 (© Jeremy Woodhouse/Getty Images)
+#### 20230723 Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)
 
 ![](images/2023-07/20230723_TeaEstate_1920x1080.jpg)
 
