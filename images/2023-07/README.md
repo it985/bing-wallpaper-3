@@ -2,6 +2,10 @@
 
 ![](20230723_TeaEstate_1920x1080.jpg)
 
+#### 20230723 The Calgary Central Library, also known as the Calgary New Central Library (© Rick Rudnicki/Alamy Stock Photo)
+
+![](20230723_CalgaryCentralLibrary_1920x1080.jpg)
+
 #### 20230722 Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)
 
 ![](20230722_HammockDay_1920x1080.jpg)

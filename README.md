@@ -2,6 +2,10 @@
 
 ![](images/2023-07/20230723_TeaEstate_1920x1080.jpg)
 
+#### 20230723 The Calgary Central Library, also known as the Calgary New Central Library (© Rick Rudnicki/Alamy Stock Photo)
+
+![](images/2023-07/20230723_CalgaryCentralLibrary_1920x1080.jpg)
+
 #### 20230722 Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)
 
 ![](images/2023-07/20230722_HammockDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230714 Botanische Nacht im Botanischen Garten, Berlin (© Felipe Trueba/EPA-EFE/Shutterstock)
 
 ![](images/2023-07/20230714_BerlinBotanicGarden_1920x1080.jpg)
-
-#### 20230714 Feu d'artifice du 14 juillet à Carcassonne, Occitanie (© Buena Vista Images/Getty Images)
-
-![](images/2023-07/20230714_BastilleDay_1920x1080.jpg)
 
 
 
