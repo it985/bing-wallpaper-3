@@ -1,4 +1,4 @@
-#### 20230724 斑马，塔兰吉雷国家公园，坦桑尼亚 (© cinoby/Getty Images)
+#### 20230724 Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)
 
 ![](20230724_ZebraCousins_1920x1080.jpg)
 
