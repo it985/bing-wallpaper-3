@@ -1,3 +1,7 @@
+#### 20230725 托雷维耶哈潟湖，阿利坎特，西班牙 (© Juan Maria Coy Vergara/Getty Images)
+
+![](images/2023-07/20230725_LasLagunas_1920x1080.jpg)
+
 #### 20230724 Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)
 
 ![](images/2023-07/20230724_ZebraCousins_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230715 Le pont d’Avignon et le palais des Papes, Provence Alpes Côte d’Azur (© travelstock44/Alamy Stock Photo)
 
 ![](images/2023-07/20230715_AvignonPope_1920x1080.jpg)
-
-#### 20230714 Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)
-
-![](images/2023-07/20230714_BlacktipSharks_1920x1080.jpg)
 
 
 

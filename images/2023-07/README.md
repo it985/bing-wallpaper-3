@@ -1,3 +1,7 @@
+#### 20230725 托雷维耶哈潟湖，阿利坎特，西班牙 (© Juan Maria Coy Vergara/Getty Images)
+
+![](20230725_LasLagunas_1920x1080.jpg)
+
 #### 20230724 Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)
 
 ![](20230724_ZebraCousins_1920x1080.jpg)
