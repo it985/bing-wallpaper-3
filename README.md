@@ -1,4 +1,4 @@
-#### 20230725 托雷维耶哈潟湖，阿利坎特，西班牙 (© Juan Maria Coy Vergara/Getty Images)
+#### 20230725 Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)
 
 ![](images/2023-07/20230725_LasLagunas_1920x1080.jpg)
 
