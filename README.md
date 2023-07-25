@@ -1,3 +1,7 @@
+#### 20230726 朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock)
+
+![](images/2023-07/20230726_MangrovePark_1920x1080.jpg)
+
 #### 20230725 Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)
 
 ![](images/2023-07/20230725_LasLagunas_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230715 Castelmezzano, Italy (© Rudy Balasko/Shutterstock)
 
 ![](images/2023-07/20230715_CastelmazzanoSunrise_1920x1080.jpg)
-
-#### 20230715 Le pont d’Avignon et le palais des Papes, Provence Alpes Côte d’Azur (© travelstock44/Alamy Stock Photo)
-
-![](images/2023-07/20230715_AvignonPope_1920x1080.jpg)
 
 
 
