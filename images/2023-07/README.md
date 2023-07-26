@@ -1,3 +1,7 @@
+#### 20230727 卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国 (© Jon Hicks/Getty Images)
+
+![](20230727_ParisLouvre_1920x1080.jpg)
+
 #### 20230726 Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)
 
 ![](20230726_MangrovePark_1920x1080.jpg)

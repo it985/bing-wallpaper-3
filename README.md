@@ -1,3 +1,7 @@
+#### 20230727 卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国 (© Jon Hicks/Getty Images)
+
+![](images/2023-07/20230727_ParisLouvre_1920x1080.jpg)
+
 #### 20230726 Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)
 
 ![](images/2023-07/20230726_MangrovePark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230716 Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)
 
 ![](images/2023-07/20230716_BearHoleBrook_1920x1080.jpg)
-
-#### 20230715 Castelmezzano, Italy (© Rudy Balasko/Shutterstock)
-
-![](images/2023-07/20230715_CastelmazzanoSunrise_1920x1080.jpg)
 
 
 
