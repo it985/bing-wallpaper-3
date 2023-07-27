@@ -1,4 +1,4 @@
-#### 20230727 卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国 (© Jon Hicks/Getty Images)
+#### 20230727 Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)
 
 ![](20230727_ParisLouvre_1920x1080.jpg)
 
