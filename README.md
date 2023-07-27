@@ -1,3 +1,7 @@
+#### 20230728 圣布拉斯群岛，巴拿马 (© bgremler/Shutterstock)
+
+![](images/2023-07/20230728_SanBlasIslands_1920x1080.jpg)
+
 #### 20230727 Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)
 
 ![](images/2023-07/20230727_ParisLouvre_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230717 Cloughoughter Castle in Lough Oughter, County Cavan, Ireland (© 4H4 PH/Shutterstock)
 
 ![](images/2023-07/20230717_CavanCastle_1920x1080.jpg)
-
-#### 20230716 Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)
-
-![](images/2023-07/20230716_BearHoleBrook_1920x1080.jpg)
 
 
 
