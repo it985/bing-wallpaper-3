@@ -1,4 +1,4 @@
-#### 20230728 圣布拉斯群岛，巴拿马 (© bgremler/Shutterstock)
+#### 20230728 San Blas Islands, Panama (© bgremler/Shutterstock)
 
 ![](images/2023-07/20230728_SanBlasIslands_1920x1080.jpg)
 
