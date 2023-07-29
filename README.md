@@ -1,4 +1,4 @@
-#### 20230729 孟加拉虎，兰坦波尔国家公园，印度 (© Andy Rouse/Minden Pictures)
+#### 20230729 Bengal tiger, Ranthambore National Park, India (© Andy Rouse/Minden Pictures)
 
 ![](images/2023-07/20230729_TigerIndia_1920x1080.jpg)
 
