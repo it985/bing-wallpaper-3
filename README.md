@@ -1,3 +1,7 @@
+#### 20230730 帕卢斯的农田，华盛顿州，美国 (© EJ-J/Getty Images)
+
+![](images/2023-07/20230730_PalouseHills_1920x1080.jpg)
+
 #### 20230729 Bengal tiger, Ranthambore National Park, India (© Andy Rouse/Minden Pictures)
 
 ![](images/2023-07/20230729_TigerIndia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230718 Great hornbill, Khao Yai National Park, Thailand (© kajornyot wildlife photography/Shutterstock)
 
 ![](images/2023-07/20230718_BucerosBicornis_1920x1080.jpg)
-
-#### 20230717 座間味島のウミガメ, 沖縄 (© petesphotography/iStock/Getty Images Plus)
-
-![](images/2023-07/20230717_MarineDay_1920x1080.jpg)
 
 
 
