@@ -1,4 +1,4 @@
-#### 20230730 帕卢斯的农田，华盛顿州，美国 (© EJ-J/Getty Images)
+#### 20230730 Farmland in the Palouse, Washington (© EJ-J/Getty Images)
 
 ![](images/2023-07/20230730_PalouseHills_1920x1080.jpg)
 
