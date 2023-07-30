@@ -1,3 +1,7 @@
+#### 20230731 霍金山州立公园的岩石屋，俄亥俄州，美国 (© Kenneth Keifer/Getty Images)
+
+![](images/2023-07/20230731_RockHouse_1920x1080.jpg)
+
 #### 20230730 Farmland in the Palouse, Washington (© EJ-J/Getty Images)
 
 ![](images/2023-07/20230730_PalouseHills_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230719 Crescent Lake near Dunhuang, Gansu province, China (© R7 Photo/Shutterstock)
 
 ![](images/2023-07/20230719_CrescentLake_1920x1080.jpg)
-
-#### 20230718 Hintersee, Ramsau, Bayern (© boule13/iStock/Getty Images Plus)
-
-![](images/2023-07/20230718_HinterseeLake_1920x1080.jpg)
 
 
 

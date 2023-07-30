@@ -1,3 +1,7 @@
+#### 20230731 霍金山州立公园的岩石屋，俄亥俄州，美国 (© Kenneth Keifer/Getty Images)
+
+![](20230731_RockHouse_1920x1080.jpg)
+
 #### 20230730 Farmland in the Palouse, Washington (© EJ-J/Getty Images)
 
 ![](20230730_PalouseHills_1920x1080.jpg)
