@@ -2,6 +2,10 @@
 
 ![](images/2023-07/20230730_PalouseHills_1920x1080.jpg)
 
+#### 20230730 Zwei Jungfüchse spielen auf einer Wiese, Deutschland (© Reibertb/Getty Images)
+
+![](images/2023-07/20230730_FoxCubs_1920x1080.jpg)
+
 #### 20230729 Bengal tiger, Ranthambore National Park, India (© Andy Rouse/Minden Pictures)
 
 ![](images/2023-07/20230729_TigerIndia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230718 Hintersee, Ramsau, Bayern (© boule13/iStock/Getty Images Plus)
 
 ![](images/2023-07/20230718_HinterseeLake_1920x1080.jpg)
-
-#### 20230718 Great hornbill, Khao Yai National Park, Thailand (© kajornyot wildlife photography/Shutterstock)
-
-![](images/2023-07/20230718_BucerosBicornis_1920x1080.jpg)
 
 
 

@@ -2,6 +2,10 @@
 
 ![](20230730_PalouseHills_1920x1080.jpg)
 
+#### 20230730 Zwei Jungfüchse spielen auf einer Wiese, Deutschland (© Reibertb/Getty Images)
+
+![](20230730_FoxCubs_1920x1080.jpg)
+
 #### 20230729 Bengal tiger, Ranthambore National Park, India (© Andy Rouse/Minden Pictures)
 
 ![](20230729_TigerIndia_1920x1080.jpg)
