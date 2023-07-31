@@ -1,4 +1,4 @@
-#### 20230731 霍金山州立公园的岩石屋，俄亥俄州，美国 (© Kenneth Keifer/Getty Images)
+#### 20230731 Rock House, Hocking Hills State Park, Ohio (© Kenneth Keifer/Getty Images)
 
 ![](images/2023-07/20230731_RockHouse_1920x1080.jpg)
 
