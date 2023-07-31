@@ -1,3 +1,11 @@
+#### 20230801 絢爛華麗な弘前ねぷた, 青森県 弘前市 (© David Parker/Alamy Stock Photo)
+
+![](images/2023-08/20230801_Neputa_1920x1080.jpg)
+
+#### 20230801 从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion)
+
+![](images/2023-08/20230801_DenaliClimber_1920x1080.jpg)
+
 #### 20230731 Rock House, Hocking Hills State Park, Ohio (© Kenneth Keifer/Getty Images)
 
 ![](images/2023-07/20230731_RockHouse_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2023-07/20230721_BridgeNorway_1920x1080.jpg)
 
-#### 20230720 The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)
-
-![](images/2023-07/20230720_MoonDayArtemis_1920x1080.jpg)
-
-#### 20230719 Crescent Lake near Dunhuang, Gansu province, China (© R7 Photo/Shutterstock)
-
-![](images/2023-07/20230719_CrescentLake_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2023&emsp;&emsp;[07](images/2023-07/README.md) &emsp;&emsp;[06](images/2023-06/README.md) &emsp;&emsp;[05](images/2023-05/README.md) &emsp;&emsp;[04](images/2023-04/README.md) &emsp;&emsp;[03](images/2023-03/README.md) &emsp;&emsp;[02](images/2023-02/README.md) &emsp;&emsp;[01](images/2023-01/README.md) 
+- 2023&emsp;&emsp;[08](images/2023-08/README.md) &emsp;&emsp;[07](images/2023-07/README.md) &emsp;&emsp;[06](images/2023-06/README.md) &emsp;&emsp;[05](images/2023-05/README.md) &emsp;&emsp;[04](images/2023-04/README.md) &emsp;&emsp;[03](images/2023-03/README.md) &emsp;&emsp;[02](images/2023-02/README.md) &emsp;&emsp;[01](images/2023-01/README.md) 
 
 - 2022&emsp;&emsp;[11](images/2022-11/README.md) &emsp;&emsp;[10](images/2022-10/README.md) &emsp;&emsp;[09](images/2022-09/README.md) &emsp;&emsp;[08](images/2022-08/README.md) &emsp;&emsp;[07](images/2022-07/README.md) &emsp;&emsp;[06](images/2022-06/README.md) &emsp;&emsp;[05](images/2022-05/README.md) &emsp;&emsp;[04](images/2022-04/README.md) &emsp;&emsp;[03](images/2022-03/README.md) &emsp;&emsp;[02](images/2022-02/README.md) &emsp;&emsp;[01](images/2022-01/README.md) 
 
