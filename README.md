@@ -1,3 +1,7 @@
+#### 20230802 圆顶礁国家公园的砂岩山丘，犹他州，美国 (© Amazing Aerial Premium/Shutterstock)
+
+![](images/2023-08/20230802_CapitolButte_1920x1080.jpg)
+
 #### 20230801 絢爛華麗な弘前ねぷた, 青森県 弘前市 (© David Parker/Alamy Stock Photo)
 
 ![](images/2023-08/20230801_Neputa_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230723 Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)
 
 ![](images/2023-07/20230723_TeaEstate_1920x1080.jpg)
-
-#### 20230723 The Calgary Central Library, also known as the Calgary New Central Library (© Rick Rudnicki/Alamy Stock Photo)
-
-![](images/2023-07/20230723_CalgaryCentralLibrary_1920x1080.jpg)
 
 
 

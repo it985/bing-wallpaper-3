@@ -1,3 +1,7 @@
+#### 20230802 圆顶礁国家公园的砂岩山丘，犹他州，美国 (© Amazing Aerial Premium/Shutterstock)
+
+![](20230802_CapitolButte_1920x1080.jpg)
+
 #### 20230801 絢爛華麗な弘前ねぷた, 青森県 弘前市 (© David Parker/Alamy Stock Photo)
 
 ![](20230801_Neputa_1920x1080.jpg)
