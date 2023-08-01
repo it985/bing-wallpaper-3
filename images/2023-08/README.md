@@ -6,3 +6,7 @@
 
 ![](20230801_DenaliClimber_1920x1080.jpg)
 
+#### 20230801 Plage de Rondinara et sa réserve naturelle, Bonifacio, Corse (© Hemis/Alamy Stock Photo)
+
+![](20230801_Corse_1920x1080.jpg)
+

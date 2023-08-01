@@ -6,6 +6,10 @@
 
 ![](images/2023-08/20230801_DenaliClimber_1920x1080.jpg)
 
+#### 20230801 Plage de Rondinara et sa réserve naturelle, Bonifacio, Corse (© Hemis/Alamy Stock Photo)
+
+![](images/2023-08/20230801_Corse_1920x1080.jpg)
+
 #### 20230731 Rock House, Hocking Hills State Park, Ohio (© Kenneth Keifer/Getty Images)
 
 ![](images/2023-07/20230731_RockHouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230722 Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)
 
 ![](images/2023-07/20230722_HammockDay_1920x1080.jpg)
-
-#### 20230721 Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)
-
-![](images/2023-07/20230721_BridgeNorway_1920x1080.jpg)
 
 
 
