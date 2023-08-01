@@ -10,3 +10,7 @@
 
 ![](20230801_Corse_1920x1080.jpg)
 
+#### 20230801 Confederation Bridge, Prince Edward Island, Canada (© Henryk Sadura/Getty Images)
+
+![](20230801_ConfederationBridge_1920x1080.jpg)
+

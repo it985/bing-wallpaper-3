@@ -10,6 +10,10 @@
 
 ![](images/2023-08/20230801_Corse_1920x1080.jpg)
 
+#### 20230801 Confederation Bridge, Prince Edward Island, Canada (© Henryk Sadura/Getty Images)
+
+![](images/2023-08/20230801_ConfederationBridge_1920x1080.jpg)
+
 #### 20230731 Rock House, Hocking Hills State Park, Ohio (© Kenneth Keifer/Getty Images)
 
 ![](images/2023-07/20230731_RockHouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230723 The Calgary Central Library, also known as the Calgary New Central Library (© Rick Rudnicki/Alamy Stock Photo)
 
 ![](images/2023-07/20230723_CalgaryCentralLibrary_1920x1080.jpg)
-
-#### 20230722 Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)
-
-![](images/2023-07/20230722_HammockDay_1920x1080.jpg)
 
 
 
