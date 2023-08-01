@@ -2,7 +2,7 @@
 
 ![](20230801_Neputa_1920x1080.jpg)
 
-#### 20230801 从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion)
+#### 20230801 Climber on Denali, Denali National Park, Alaska (© Andrew Peacock/Tandem Stills + Motion)
 
 ![](20230801_DenaliClimber_1920x1080.jpg)
 
