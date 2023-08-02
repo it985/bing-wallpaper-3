@@ -1,4 +1,4 @@
-#### 20230802 圆顶礁国家公园的砂岩山丘，犹他州，美国 (© Amazing Aerial Premium/Shutterstock)
+#### 20230802 Sandstone butte in Capitol Reef National Park, Utah (© Amazing Aerial Premium/Shutterstock)
 
 ![](20230802_CapitolButte_1920x1080.jpg)
 
