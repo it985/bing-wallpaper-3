@@ -1,3 +1,7 @@
+#### 20230803 泽伦西自然保护区，斯洛文尼亚 (© Andrey Danilovich/Getty Images)
+
+![](images/2023-08/20230803_ZelenciSprings_1920x1080.jpg)
+
 #### 20230802 Sandstone butte in Capitol Reef National Park, Utah (© Amazing Aerial Premium/Shutterstock)
 
 ![](images/2023-08/20230802_CapitolButte_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230724 Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)
 
 ![](images/2023-07/20230724_ZebraCousins_1920x1080.jpg)
-
-#### 20230723 Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)
-
-![](images/2023-07/20230723_TeaEstate_1920x1080.jpg)
 
 
 

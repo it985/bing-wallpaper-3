@@ -1,3 +1,7 @@
+#### 20230803 泽伦西自然保护区，斯洛文尼亚 (© Andrey Danilovich/Getty Images)
+
+![](20230803_ZelenciSprings_1920x1080.jpg)
+
 #### 20230802 Sandstone butte in Capitol Reef National Park, Utah (© Amazing Aerial Premium/Shutterstock)
 
 ![](20230802_CapitolButte_1920x1080.jpg)
