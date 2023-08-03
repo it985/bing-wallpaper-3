@@ -1,3 +1,11 @@
+#### 20230804 鏡池, 長野県 長野市 (© Shoji Fujita/Getty Images)
+
+![](20230804_NaganoPond_1920x1080.jpg)
+
+#### 20230804 廷特恩修道院，威尔士 (© matthibcn/Getty Images)
+
+![](20230804_GothicRuins_1920x1080.jpg)
+
 #### 20230803 Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)
 
 ![](20230803_ZelenciSprings_1920x1080.jpg)
