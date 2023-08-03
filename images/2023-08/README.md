@@ -2,6 +2,10 @@
 
 ![](20230803_ZelenciSprings_1920x1080.jpg)
 
+#### 20230803 Helmcken waterfall in Wells Gray Provincial Park, British Columbia, Canada (© Laurens Verhoeven/iStock/Getty Images)
+
+![](20230803_HelmckenWaterfall_1920x1080.jpg)
+
 #### 20230802 Sandstone butte in Capitol Reef National Park, Utah (© Amazing Aerial Premium/Shutterstock)
 
 ![](20230802_CapitolButte_1920x1080.jpg)

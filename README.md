@@ -2,6 +2,10 @@
 
 ![](images/2023-08/20230803_ZelenciSprings_1920x1080.jpg)
 
+#### 20230803 Helmcken waterfall in Wells Gray Provincial Park, British Columbia, Canada (© Laurens Verhoeven/iStock/Getty Images)
+
+![](images/2023-08/20230803_HelmckenWaterfall_1920x1080.jpg)
+
 #### 20230802 Sandstone butte in Capitol Reef National Park, Utah (© Amazing Aerial Premium/Shutterstock)
 
 ![](images/2023-08/20230802_CapitolButte_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230725 Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)
 
 ![](images/2023-07/20230725_LasLagunas_1920x1080.jpg)
-
-#### 20230724 Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)
-
-![](images/2023-07/20230724_ZebraCousins_1920x1080.jpg)
 
 
 
