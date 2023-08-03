@@ -1,4 +1,4 @@
-#### 20230803 泽伦西自然保护区，斯洛文尼亚 (© Andrey Danilovich/Getty Images)
+#### 20230803 Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)
 
 ![](images/2023-08/20230803_ZelenciSprings_1920x1080.jpg)
 
