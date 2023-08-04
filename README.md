@@ -2,7 +2,7 @@
 
 ![](images/2023-08/20230804_NaganoPond_1920x1080.jpg)
 
-#### 20230804 廷特恩修道院，威尔士 (© matthibcn/Getty Images)
+#### 20230804 Tintern Abbey, Wales (© matthibcn/Getty Images)
 
 ![](images/2023-08/20230804_GothicRuins_1920x1080.jpg)
 
