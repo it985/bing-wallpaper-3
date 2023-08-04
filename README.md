@@ -1,3 +1,7 @@
+#### 20230805 大西洋海鹦，冰岛 (© Peter Hering/Minden Pictures)
+
+![](images/2023-08/20230805_AtlanticPuffin_1920x1080.jpg)
+
 #### 20230804 鏡池, 長野県 長野市 (© Shoji Fujita/Getty Images)
 
 ![](images/2023-08/20230804_NaganoPond_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230728 San Blas Islands, Panama (© bgremler/Shutterstock)
 
 ![](images/2023-07/20230728_SanBlasIslands_1920x1080.jpg)
-
-#### 20230727 Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)
-
-![](images/2023-07/20230727_ParisLouvre_1920x1080.jpg)
 
 
 

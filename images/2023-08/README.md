@@ -1,3 +1,7 @@
+#### 20230805 大西洋海鹦，冰岛 (© Peter Hering/Minden Pictures)
+
+![](20230805_AtlanticPuffin_1920x1080.jpg)
+
 #### 20230804 鏡池, 長野県 長野市 (© Shoji Fujita/Getty Images)
 
 ![](20230804_NaganoPond_1920x1080.jpg)
