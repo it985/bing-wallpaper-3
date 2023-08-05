@@ -1,3 +1,7 @@
+#### 20230806 原爆ドーム前元安川のとうろう流し, 広島県 広島市 (© Anadolu Agency/Getty Images)
+
+![](20230806_HiroshimaPeace_1920x1080.jpg)
+
 #### 20230805 Rakotzbrücke in Kromlau, Landkreis Görlitz, Sachsen (© DieterMeyrl/Getty Images)
 
 ![](20230805_Bogenbruecke_1920x1080.jpg)

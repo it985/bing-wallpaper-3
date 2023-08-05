@@ -1,3 +1,7 @@
+#### 20230806 原爆ドーム前元安川のとうろう流し, 広島県 広島市 (© Anadolu Agency/Getty Images)
+
+![](images/2023-08/20230806_HiroshimaPeace_1920x1080.jpg)
+
 #### 20230805 Rakotzbrücke in Kromlau, Landkreis Görlitz, Sachsen (© DieterMeyrl/Getty Images)
 
 ![](images/2023-08/20230805_Bogenbruecke_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230730 Zwei Jungfüchse spielen auf einer Wiese, Deutschland (© Reibertb/Getty Images)
 
 ![](images/2023-07/20230730_FoxCubs_1920x1080.jpg)
-
-#### 20230729 Bengal tiger, Ranthambore National Park, India (© Andy Rouse/Minden Pictures)
-
-![](images/2023-07/20230729_TigerIndia_1920x1080.jpg)
 
 
 
