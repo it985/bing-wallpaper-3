@@ -1,3 +1,7 @@
+#### 20230805 Rakotzbrücke in Kromlau, Landkreis Görlitz, Sachsen (© DieterMeyrl/Getty Images)
+
+![](20230805_Bogenbruecke_1920x1080.jpg)
+
 #### 20230805 大西洋海鹦，冰岛 (© Peter Hering/Minden Pictures)
 
 ![](20230805_AtlanticPuffin_1920x1080.jpg)

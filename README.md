@@ -1,3 +1,7 @@
+#### 20230805 Rakotzbrücke in Kromlau, Landkreis Görlitz, Sachsen (© DieterMeyrl/Getty Images)
+
+![](images/2023-08/20230805_Bogenbruecke_1920x1080.jpg)
+
 #### 20230805 大西洋海鹦，冰岛 (© Peter Hering/Minden Pictures)
 
 ![](images/2023-08/20230805_AtlanticPuffin_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230729 Bengal tiger, Ranthambore National Park, India (© Andy Rouse/Minden Pictures)
 
 ![](images/2023-07/20230729_TigerIndia_1920x1080.jpg)
-
-#### 20230728 San Blas Islands, Panama (© bgremler/Shutterstock)
-
-![](images/2023-07/20230728_SanBlasIslands_1920x1080.jpg)
 
 
 
