@@ -10,7 +10,7 @@
 
 ![](images/2023-08/20230805_AtlanticPuffin_1920x1080.jpg)
 
-#### 20230804 鏡池, 長野県 長野市 (© Shoji Fujita/Getty Images)
+#### 20230804 Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)
 
 ![](images/2023-08/20230804_NaganoPond_1920x1080.jpg)
 
