@@ -1,3 +1,7 @@
+#### 20230807 博迪岛灯塔，马头城，北卡罗来纳州，美国 (© Michael Ver Sprill/Getty Images)
+
+![](20230807_BodieNC_1920x1080.jpg)
+
 #### 20230806 原爆ドーム前元安川のとうろう流し, 広島県 広島市 (© Anadolu Agency/Getty Images)
 
 ![](20230806_HiroshimaPeace_1920x1080.jpg)

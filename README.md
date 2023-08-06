@@ -1,3 +1,7 @@
+#### 20230807 博迪岛灯塔，马头城，北卡罗来纳州，美国 (© Michael Ver Sprill/Getty Images)
+
+![](images/2023-08/20230807_BodieNC_1920x1080.jpg)
+
 #### 20230806 原爆ドーム前元安川のとうろう流し, 広島県 広島市 (© Anadolu Agency/Getty Images)
 
 ![](images/2023-08/20230806_HiroshimaPeace_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230730 Farmland in the Palouse, Washington (© EJ-J/Getty Images)
 
 ![](images/2023-07/20230730_PalouseHills_1920x1080.jpg)
-
-#### 20230730 Zwei Jungfüchse spielen auf einer Wiese, Deutschland (© Reibertb/Getty Images)
-
-![](images/2023-07/20230730_FoxCubs_1920x1080.jpg)
 
 
 
