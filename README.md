@@ -1,4 +1,4 @@
-#### 20230807 博迪岛灯塔，马头城，北卡罗来纳州，美国 (© Michael Ver Sprill/Getty Images)
+#### 20230807 Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)
 
 ![](images/2023-08/20230807_BodieNC_1920x1080.jpg)
 
