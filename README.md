@@ -1,3 +1,11 @@
+#### 20230808 五花海，阿坝九寨沟旅游景区，四川省，中国 (© Michael Ver Sprill/Getty Images)
+
+![](images/2023-08/20230808_LiQiu_1920x1080.jpg)
+
+#### 20230808 「無限」の高速道路, 台湾 台北市 (© Tavarius/Shutterstock)
+
+![](images/2023-08/20230808_InfinityTaipei_1920x1080.jpg)
+
 #### 20230807 Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)
 
 ![](images/2023-08/20230807_BodieNC_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230801 Confederation Bridge, Prince Edward Island, Canada (© Henryk Sadura/Getty Images)
 
 ![](images/2023-08/20230801_ConfederationBridge_1920x1080.jpg)
-
-#### 20230731 Rock House, Hocking Hills State Park, Ohio (© Kenneth Keifer/Getty Images)
-
-![](images/2023-07/20230731_RockHouse_1920x1080.jpg)
-
-#### 20230730 Farmland in the Palouse, Washington (© EJ-J/Getty Images)
-
-![](images/2023-07/20230730_PalouseHills_1920x1080.jpg)
 
 
 
