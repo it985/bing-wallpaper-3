@@ -2,6 +2,10 @@
 
 ![](images/2023-08/20230808_LiQiu_1920x1080.jpg)
 
+#### 20230808 Champ de lavande sur le plateau de Valensole au lever du jour, Alpes-de-Haute-Provence (© Francesco Riccardo Iacomino/Getty Images)
+
+![](images/2023-08/20230808_LavenderFrance_1920x1080.jpg)
+
 #### 20230808 「無限」の高速道路, 台湾 台北市 (© Tavarius/Shutterstock)
 
 ![](images/2023-08/20230808_InfinityTaipei_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230801 Plage de Rondinara et sa réserve naturelle, Bonifacio, Corse (© Hemis/Alamy Stock Photo)
 
 ![](images/2023-08/20230801_Corse_1920x1080.jpg)
-
-#### 20230801 Confederation Bridge, Prince Edward Island, Canada (© Henryk Sadura/Getty Images)
-
-![](images/2023-08/20230801_ConfederationBridge_1920x1080.jpg)
 
 
 

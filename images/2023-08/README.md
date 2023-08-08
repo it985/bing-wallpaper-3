@@ -2,6 +2,10 @@
 
 ![](20230808_LiQiu_1920x1080.jpg)
 
+#### 20230808 Champ de lavande sur le plateau de Valensole au lever du jour, Alpes-de-Haute-Provence (© Francesco Riccardo Iacomino/Getty Images)
+
+![](20230808_LavenderFrance_1920x1080.jpg)
+
 #### 20230808 「無限」の高速道路, 台湾 台北市 (© Tavarius/Shutterstock)
 
 ![](20230808_InfinityTaipei_1920x1080.jpg)
