@@ -1,3 +1,11 @@
+#### 20230809 马苏阿的甜面包海蚀柱，撒丁岛，意大利 (© DaLiu/Getty Images)
+
+![](20230809_PandiZucchero_1920x1080.jpg)
+
+#### 20230809 ティウィ人の芸術作品, オーストラリア ウルミヤンガ (© Robert Wyatt/Alamy)
+
+![](20230809_BathurstArt_1920x1080.jpg)
+
 #### 20230808 五花海，阿坝九寨沟旅游景区，四川省，中国 (© Michael Ver Sprill/Getty Images)
 
 ![](20230808_LiQiu_1920x1080.jpg)

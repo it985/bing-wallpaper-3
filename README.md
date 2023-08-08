@@ -1,3 +1,11 @@
+#### 20230809 马苏阿的甜面包海蚀柱，撒丁岛，意大利 (© DaLiu/Getty Images)
+
+![](images/2023-08/20230809_PandiZucchero_1920x1080.jpg)
+
+#### 20230809 ティウィ人の芸術作品, オーストラリア ウルミヤンガ (© Robert Wyatt/Alamy)
+
+![](images/2023-08/20230809_BathurstArt_1920x1080.jpg)
+
 #### 20230808 五花海，阿坝九寨沟旅游景区，四川省，中国 (© Michael Ver Sprill/Getty Images)
 
 ![](images/2023-08/20230808_LiQiu_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230801 絢爛華麗な弘前ねぷた, 青森県 弘前市 (© David Parker/Alamy Stock Photo)
 
 ![](images/2023-08/20230801_Neputa_1920x1080.jpg)
-
-#### 20230801 Climber on Denali, Denali National Park, Alaska (© Andrew Peacock/Tandem Stills + Motion)
-
-![](images/2023-08/20230801_DenaliClimber_1920x1080.jpg)
-
-#### 20230801 Plage de Rondinara et sa réserve naturelle, Bonifacio, Corse (© Hemis/Alamy Stock Photo)
-
-![](images/2023-08/20230801_Corse_1920x1080.jpg)
 
 
 
