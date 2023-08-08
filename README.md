@@ -6,7 +6,7 @@
 
 ![](images/2023-08/20230808_LavenderFrance_1920x1080.jpg)
 
-#### 20230808 「無限」の高速道路, 台湾 台北市 (© Tavarius/Shutterstock)
+#### 20230808 Highways in Taipei, Taiwan (© Tavarius/Shutterstock)
 
 ![](images/2023-08/20230808_InfinityTaipei_1920x1080.jpg)
 
