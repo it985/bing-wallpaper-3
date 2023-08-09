@@ -2,7 +2,7 @@
 
 ![](20230809_PandiZucchero_1920x1080.jpg)
 
-#### 20230809 ティウィ人の芸術作品, オーストラリア ウルミヤンガ (© Robert Wyatt/Alamy)
+#### 20230809 Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)
 
 ![](20230809_BathurstArt_1920x1080.jpg)
 
