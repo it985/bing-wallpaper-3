@@ -1,3 +1,7 @@
+#### 20230810 马赛马拉的一头狮子，肯尼亚 (© Federico Veronesi/Minden Pictures)
+
+![](images/2023-08/20230810_WorldLionDay_1920x1080.jpg)
+
 #### 20230809 马苏阿的甜面包海蚀柱，撒丁岛，意大利 (© DaLiu/Getty Images)
 
 ![](images/2023-08/20230809_PandiZucchero_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230802 Sandstone butte in Capitol Reef National Park, Utah (© Amazing Aerial Premium/Shutterstock)
 
 ![](images/2023-08/20230802_CapitolButte_1920x1080.jpg)
-
-#### 20230801 絢爛華麗な弘前ねぷた, 青森県 弘前市 (© David Parker/Alamy Stock Photo)
-
-![](images/2023-08/20230801_Neputa_1920x1080.jpg)
 
 
 

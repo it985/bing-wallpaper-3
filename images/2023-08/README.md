@@ -1,3 +1,7 @@
+#### 20230810 马赛马拉的一头狮子，肯尼亚 (© Federico Veronesi/Minden Pictures)
+
+![](20230810_WorldLionDay_1920x1080.jpg)
+
 #### 20230809 马苏阿的甜面包海蚀柱，撒丁岛，意大利 (© DaLiu/Getty Images)
 
 ![](20230809_PandiZucchero_1920x1080.jpg)
