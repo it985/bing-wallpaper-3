@@ -1,4 +1,4 @@
-#### 20230810 马赛马拉的一头狮子，肯尼亚 (© Federico Veronesi/Minden Pictures)
+#### 20230810 A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)
 
 ![](images/2023-08/20230810_WorldLionDay_1920x1080.jpg)
 
