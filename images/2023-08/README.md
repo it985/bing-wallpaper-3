@@ -1,3 +1,11 @@
+#### 20230811 夏の立山, 富山県 (© yasuki/Adobe Stock)
+
+![](20230811_MountainDay_1920x1080.jpg)
+
+#### 20230811 '朱庇特艺术园的“入口”水池，爱丁堡，苏格兰 (© Owen Humphreys/PA Images/Alamy)
+
+![](20230811_JupiterArtland_1920x1080.jpg)
+
 #### 20230810 A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)
 
 ![](20230810_WorldLionDay_1920x1080.jpg)

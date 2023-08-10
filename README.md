@@ -1,3 +1,11 @@
+#### 20230811 夏の立山, 富山県 (© yasuki/Adobe Stock)
+
+![](images/2023-08/20230811_MountainDay_1920x1080.jpg)
+
+#### 20230811 '朱庇特艺术园的“入口”水池，爱丁堡，苏格兰 (© Owen Humphreys/PA Images/Alamy)
+
+![](images/2023-08/20230811_JupiterArtland_1920x1080.jpg)
+
 #### 20230810 A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)
 
 ![](images/2023-08/20230810_WorldLionDay_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230803 Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)
 
 ![](images/2023-08/20230803_ZelenciSprings_1920x1080.jpg)
-
-#### 20230803 Helmcken waterfall in Wells Gray Provincial Park, British Columbia, Canada (© Laurens Verhoeven/iStock/Getty Images)
-
-![](images/2023-08/20230803_HelmckenWaterfall_1920x1080.jpg)
-
-#### 20230802 Sandstone butte in Capitol Reef National Park, Utah (© Amazing Aerial Premium/Shutterstock)
-
-![](images/2023-08/20230802_CapitolButte_1920x1080.jpg)
 
 
 
