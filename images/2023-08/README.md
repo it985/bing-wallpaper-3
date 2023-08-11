@@ -2,7 +2,7 @@
 
 ![](20230811_MountainDay_1920x1080.jpg)
 
-#### 20230811 '朱庇特艺术园的“入口”水池，爱丁堡，苏格兰 (© Owen Humphreys/PA Images/Alamy)
+#### 20230811 'Gateway Pool' art installation at Jupiter Artland sculpture park, Edinburgh, Scotland (© Owen Humphreys/PA Images/Alamy)
 
 ![](20230811_JupiterArtland_1920x1080.jpg)
 
