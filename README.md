@@ -1,3 +1,7 @@
+#### 20230812 大象家族，安波塞利国家公园，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)
+
+![](images/2023-08/20230812_ThreeElephants_1920x1080.jpg)
+
 #### 20230811 夏の立山, 富山県 (© yasuki/Adobe Stock)
 
 ![](images/2023-08/20230811_MountainDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230804 Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)
 
 ![](images/2023-08/20230804_NaganoPond_1920x1080.jpg)
-
-#### 20230804 Tintern Abbey, Wales (© matthibcn/Getty Images)
-
-![](images/2023-08/20230804_GothicRuins_1920x1080.jpg)
 
 
 

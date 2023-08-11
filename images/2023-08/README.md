@@ -1,3 +1,7 @@
+#### 20230812 大象家族，安波塞利国家公园，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)
+
+![](20230812_ThreeElephants_1920x1080.jpg)
+
 #### 20230811 夏の立山, 富山県 (© yasuki/Adobe Stock)
 
 ![](20230811_MountainDay_1920x1080.jpg)
