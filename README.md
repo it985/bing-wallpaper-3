@@ -6,6 +6,10 @@
 
 ![](images/2023-08/20230811_JupiterArtland_1920x1080.jpg)
 
+#### 20230811 Gwaii Haanas National Park Reserve and Haida Heritage Site, British Columbia, Canada (© Don Johnston_WC/Alamy Stock Photo)
+
+![](images/2023-08/20230811_GwaiiHaanasNP_1920x1080.jpg)
+
 #### 20230810 A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)
 
 ![](images/2023-08/20230810_WorldLionDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230804 Tintern Abbey, Wales (© matthibcn/Getty Images)
 
 ![](images/2023-08/20230804_GothicRuins_1920x1080.jpg)
-
-#### 20230803 Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)
-
-![](images/2023-08/20230803_ZelenciSprings_1920x1080.jpg)
 
 
 
