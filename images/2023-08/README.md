@@ -1,4 +1,4 @@
-#### 20230812 大象家族，安波塞利国家公园，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)
+#### 20230812 Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
 
 ![](20230812_ThreeElephants_1920x1080.jpg)
 
