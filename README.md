@@ -1,3 +1,7 @@
+#### 20230813 英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国 (© Joshua Meador/Tandem Stills + Motion)
+
+![](images/2023-08/20230813_PerseidsOregon_1920x1080.jpg)
+
 #### 20230812 Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
 
 ![](images/2023-08/20230812_ThreeElephants_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230805 Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)
 
 ![](images/2023-08/20230805_AtlanticPuffin_1920x1080.jpg)
-
-#### 20230804 Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)
-
-![](images/2023-08/20230804_NaganoPond_1920x1080.jpg)
 
 
 
