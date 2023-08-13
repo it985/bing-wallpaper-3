@@ -1,4 +1,4 @@
-#### 20230813 英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国 (© Joshua Meador/Tandem Stills + Motion)
+#### 20230813 Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)
 
 ![](images/2023-08/20230813_PerseidsOregon_1920x1080.jpg)
 
