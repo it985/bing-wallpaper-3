@@ -1,3 +1,11 @@
+#### 20230814 セブンマイル・ブリッジ, 米国 フロリダ州 (© Evgeny Vasenev/Cavan Images)
+
+![](images/2023-08/20230814_KeyWestBridge_1920x1080.jpg)
+
+#### 20230814 叶片上的小壁虎 (© Darren Greenwood/Alamy)
+
+![](images/2023-08/20230814_GeckoLeaf_1920x1080.jpg)
+
 #### 20230813 Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)
 
 ![](images/2023-08/20230813_PerseidsOregon_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230806 原爆ドーム前元安川のとうろう流し, 広島県 広島市 (© Anadolu Agency/Getty Images)
 
 ![](images/2023-08/20230806_HiroshimaPeace_1920x1080.jpg)
-
-#### 20230805 Rakotzbrücke in Kromlau, Landkreis Görlitz, Sachsen (© DieterMeyrl/Getty Images)
-
-![](images/2023-08/20230805_Bogenbruecke_1920x1080.jpg)
-
-#### 20230805 Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)
-
-![](images/2023-08/20230805_AtlanticPuffin_1920x1080.jpg)
 
 
 

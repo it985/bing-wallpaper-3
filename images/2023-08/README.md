@@ -1,3 +1,11 @@
+#### 20230814 セブンマイル・ブリッジ, 米国 フロリダ州 (© Evgeny Vasenev/Cavan Images)
+
+![](20230814_KeyWestBridge_1920x1080.jpg)
+
+#### 20230814 叶片上的小壁虎 (© Darren Greenwood/Alamy)
+
+![](20230814_GeckoLeaf_1920x1080.jpg)
+
 #### 20230813 Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)
 
 ![](20230813_PerseidsOregon_1920x1080.jpg)
