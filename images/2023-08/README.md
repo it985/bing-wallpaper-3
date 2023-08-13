@@ -14,6 +14,10 @@
 
 ![](20230812_ThreeElephants_1920x1080.jpg)
 
+#### 20230812 Helmcken Falls, Wells Gray Provincial Park, British Columbia, Canada (© Laurens Verhoeven/Getty Images)
+
+![](20230812_HelmckenWaterfall_1920x1080.jpg)
+
 #### 20230811 夏の立山, 富山県 (© yasuki/Adobe Stock)
 
 ![](20230811_MountainDay_1920x1080.jpg)

@@ -14,6 +14,10 @@
 
 ![](images/2023-08/20230812_ThreeElephants_1920x1080.jpg)
 
+#### 20230812 Helmcken Falls, Wells Gray Provincial Park, British Columbia, Canada (© Laurens Verhoeven/Getty Images)
+
+![](images/2023-08/20230812_HelmckenWaterfall_1920x1080.jpg)
+
 #### 20230811 夏の立山, 富山県 (© yasuki/Adobe Stock)
 
 ![](images/2023-08/20230811_MountainDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230807 Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)
 
 ![](images/2023-08/20230807_BodieNC_1920x1080.jpg)
-
-#### 20230806 原爆ドーム前元安川のとうろう流し, 広島県 広島市 (© Anadolu Agency/Getty Images)
-
-![](images/2023-08/20230806_HiroshimaPeace_1920x1080.jpg)
 
 
 
