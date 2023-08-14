@@ -6,7 +6,7 @@
 
 ![](images/2023-08/20230814_KeyWestBridge_1920x1080.jpg)
 
-#### 20230814 叶片上的小壁虎 (© Darren Greenwood/Alamy)
+#### 20230814 Tiny gecko on a leaf (© Darren Greenwood/Alamy)
 
 ![](images/2023-08/20230814_GeckoLeaf_1920x1080.jpg)
 
