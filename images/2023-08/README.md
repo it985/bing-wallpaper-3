@@ -1,3 +1,7 @@
+#### 20230814 Canyon des gorges du Verdon, Provence-Alpes-Côte d’Azur (© luisapuccini/iStock/Getty Images Plus)
+
+![](20230814_VerdonCanyon_1920x1080.jpg)
+
 #### 20230814 セブンマイル・ブリッジ, 米国 フロリダ州 (© Evgeny Vasenev/Cavan Images)
 
 ![](20230814_KeyWestBridge_1920x1080.jpg)

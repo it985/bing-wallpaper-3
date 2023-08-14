@@ -1,3 +1,7 @@
+#### 20230814 Canyon des gorges du Verdon, Provence-Alpes-Côte d’Azur (© luisapuccini/iStock/Getty Images Plus)
+
+![](images/2023-08/20230814_VerdonCanyon_1920x1080.jpg)
+
 #### 20230814 セブンマイル・ブリッジ, 米国 フロリダ州 (© Evgeny Vasenev/Cavan Images)
 
 ![](images/2023-08/20230814_KeyWestBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230808 Highways in Taipei, Taiwan (© Tavarius/Shutterstock)
 
 ![](images/2023-08/20230808_InfinityTaipei_1920x1080.jpg)
-
-#### 20230807 Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)
-
-![](images/2023-08/20230807_BodieNC_1920x1080.jpg)
 
 
 
