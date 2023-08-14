@@ -1,3 +1,7 @@
+#### 20230815 四月九日广场，陶尔米纳，西西里岛，意大利 (© rudi1976/Alamy)
+
+![](20230815_TaorminaSquare_1920x1080.jpg)
+
 #### 20230814 Canyon des gorges du Verdon, Provence-Alpes-Côte d’Azur (© luisapuccini/iStock/Getty Images Plus)
 
 ![](20230814_VerdonCanyon_1920x1080.jpg)
