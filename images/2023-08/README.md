@@ -1,3 +1,7 @@
+#### 20230816 東山・大文字山の送り火, 京都 (© gyro/Getty Images)
+
+![](20230816_GozanOkuribi_1920x1080.jpg)
+
 #### 20230815 Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)
 
 ![](20230815_TaorminaSquare_1920x1080.jpg)

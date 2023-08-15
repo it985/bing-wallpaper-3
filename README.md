@@ -1,3 +1,7 @@
+#### 20230816 東山・大文字山の送り火, 京都 (© gyro/Getty Images)
+
+![](images/2023-08/20230816_GozanOkuribi_1920x1080.jpg)
+
 #### 20230815 Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)
 
 ![](images/2023-08/20230815_TaorminaSquare_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230808 五花海，阿坝九寨沟旅游景区，四川省，中国 (© Michael Ver Sprill/Getty Images)
 
 ![](images/2023-08/20230808_LiQiu_1920x1080.jpg)
-
-#### 20230808 Champ de lavande sur le plateau de Valensole au lever du jour, Alpes-de-Haute-Provence (© Francesco Riccardo Iacomino/Getty Images)
-
-![](images/2023-08/20230808_LavenderFrance_1920x1080.jpg)
 
 
 
