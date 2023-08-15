@@ -1,4 +1,4 @@
-#### 20230815 四月九日广场，陶尔米纳，西西里岛，意大利 (© rudi1976/Alamy)
+#### 20230815 Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)
 
 ![](images/2023-08/20230815_TaorminaSquare_1920x1080.jpg)
 
