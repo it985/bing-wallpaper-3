@@ -1,3 +1,7 @@
+#### 20230817 グラスランズ国立公園, カナダ サスカチュワン州 (© Robert Postma/Getty Images)
+
+![](20230817_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
+
 #### 20230816 東山・大文字山の送り火, 京都 (© gyro/Getty Images)
 
 ![](20230816_GozanOkuribi_1920x1080.jpg)

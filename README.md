@@ -1,3 +1,7 @@
+#### 20230817 グラスランズ国立公園, カナダ サスカチュワン州 (© Robert Postma/Getty Images)
+
+![](images/2023-08/20230817_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
+
 #### 20230816 東山・大文字山の送り火, 京都 (© gyro/Getty Images)
 
 ![](images/2023-08/20230816_GozanOkuribi_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230809 Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)
 
 ![](images/2023-08/20230809_BathurstArt_1920x1080.jpg)
-
-#### 20230808 五花海，阿坝九寨沟旅游景区，四川省，中国 (© Michael Ver Sprill/Getty Images)
-
-![](images/2023-08/20230808_LiQiu_1920x1080.jpg)
 
 
 
