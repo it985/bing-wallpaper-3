@@ -10,7 +10,7 @@
 
 ![](20230814_VerdonCanyon_1920x1080.jpg)
 
-#### 20230814 セブンマイル・ブリッジ, 米国 フロリダ州 (© Evgeny Vasenev/Cavan Images)
+#### 20230814 Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)
 
 ![](20230814_KeyWestBridge_1920x1080.jpg)
 
