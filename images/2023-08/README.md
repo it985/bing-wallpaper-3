@@ -6,6 +6,10 @@
 
 ![](20230817_BucerosBicornis_1920x1080.jpg)
 
+#### 20230817 'Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)
+
+![](20230817_AvatarMountain_1920x1080.jpg)
+
 #### 20230816 東山・大文字山の送り火, 京都 (© gyro/Getty Images)
 
 ![](20230816_GozanOkuribi_1920x1080.jpg)
