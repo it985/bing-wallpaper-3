@@ -2,6 +2,10 @@
 
 ![](images/2023-08/20230817_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
 
+#### 20230817 Doppelhornvogel, Nationalpark Khao Yai, Thailand (© kajornyot wildlife photography/Shutterstock)
+
+![](images/2023-08/20230817_BucerosBicornis_1920x1080.jpg)
+
 #### 20230816 東山・大文字山の送り火, 京都 (© gyro/Getty Images)
 
 ![](images/2023-08/20230816_GozanOkuribi_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230809 马苏阿的甜面包海蚀柱，撒丁岛，意大利 (© DaLiu/Getty Images)
 
 ![](images/2023-08/20230809_PandiZucchero_1920x1080.jpg)
-
-#### 20230809 Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)
-
-![](images/2023-08/20230809_BathurstArt_1920x1080.jpg)
 
 
 
