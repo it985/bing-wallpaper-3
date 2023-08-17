@@ -1,3 +1,11 @@
+#### 20230818 Rothenburg ob der Tauber, Bavaria, Germany (© RudyBalasko/Getty Images)
+
+![](images/2023-08/20230818_Rothenburg_1920x1080.jpg)
+
+#### 20230817 Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)
+
+![](images/2023-08/20230817_SequoiaSunlight_1920x1080.jpg)
+
 #### 20230817 グラスランズ国立公園, カナダ サスカチュワン州 (© Robert Postma/Getty Images)
 
 ![](images/2023-08/20230817_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230811 'Gateway Pool' art installation at Jupiter Artland sculpture park, Edinburgh, Scotland (© Owen Humphreys/PA Images/Alamy)
 
 ![](images/2023-08/20230811_JupiterArtland_1920x1080.jpg)
-
-#### 20230811 Gwaii Haanas National Park Reserve and Haida Heritage Site, British Columbia, Canada (© Don Johnston_WC/Alamy Stock Photo)
-
-![](images/2023-08/20230811_GwaiiHaanasNP_1920x1080.jpg)
-
-#### 20230810 A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)
-
-![](images/2023-08/20230810_WorldLionDay_1920x1080.jpg)
 
 
 
