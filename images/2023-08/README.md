@@ -1,3 +1,7 @@
+#### 20230819 看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images)
+
+![](20230819_CameraSquirrel_1920x1080.jpg)
+
 #### 20230818 Rothenburg ob der Tauber, Bavaria, Germany (© RudyBalasko/Getty Images)
 
 ![](20230818_Rothenburg_1920x1080.jpg)

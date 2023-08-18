@@ -1,3 +1,7 @@
+#### 20230819 看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images)
+
+![](images/2023-08/20230819_CameraSquirrel_1920x1080.jpg)
+
 #### 20230818 Rothenburg ob der Tauber, Bavaria, Germany (© RudyBalasko/Getty Images)
 
 ![](images/2023-08/20230818_Rothenburg_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230812 Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
 
 ![](images/2023-08/20230812_ThreeElephants_1920x1080.jpg)
-
-#### 20230812 Helmcken Falls, Wells Gray Provincial Park, British Columbia, Canada (© Laurens Verhoeven/Getty Images)
-
-![](images/2023-08/20230812_HelmckenWaterfall_1920x1080.jpg)
 
 
 
