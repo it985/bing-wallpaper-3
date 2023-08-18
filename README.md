@@ -2,6 +2,10 @@
 
 ![](images/2023-08/20230818_Rothenburg_1920x1080.jpg)
 
+#### 20230818 Altstadt und die Trave, Lübeck, Schleswig-Holstein (© Harald Nachtmann/Getty Images)
+
+![](images/2023-08/20230818_LuebeckRiverTrave_1920x1080.jpg)
+
 #### 20230817 Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)
 
 ![](images/2023-08/20230817_SequoiaSunlight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230811 夏の立山, 富山県 (© yasuki/Adobe Stock)
 
 ![](images/2023-08/20230811_MountainDay_1920x1080.jpg)
-
-#### 20230811 'Gateway Pool' art installation at Jupiter Artland sculpture park, Edinburgh, Scotland (© Owen Humphreys/PA Images/Alamy)
-
-![](images/2023-08/20230811_JupiterArtland_1920x1080.jpg)
 
 
 
