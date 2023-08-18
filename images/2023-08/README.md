@@ -6,6 +6,10 @@
 
 ![](20230818_LuebeckRiverTrave_1920x1080.jpg)
 
+#### 20230818 The Canadian International Air Show in Marilyn Bell Park (© Melissa Renwick/Contributor/Getty Images)
+
+![](20230818_CanadianNationalExhibition_1920x1080.jpg)
+
 #### 20230817 Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)
 
 ![](20230817_SequoiaSunlight_1920x1080.jpg)

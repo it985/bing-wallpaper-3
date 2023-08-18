@@ -6,6 +6,10 @@
 
 ![](images/2023-08/20230818_LuebeckRiverTrave_1920x1080.jpg)
 
+#### 20230818 The Canadian International Air Show in Marilyn Bell Park (© Melissa Renwick/Contributor/Getty Images)
+
+![](images/2023-08/20230818_CanadianNationalExhibition_1920x1080.jpg)
+
 #### 20230817 Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)
 
 ![](images/2023-08/20230817_SequoiaSunlight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230812 Helmcken Falls, Wells Gray Provincial Park, British Columbia, Canada (© Laurens Verhoeven/Getty Images)
 
 ![](images/2023-08/20230812_HelmckenWaterfall_1920x1080.jpg)
-
-#### 20230811 夏の立山, 富山県 (© yasuki/Adobe Stock)
-
-![](images/2023-08/20230811_MountainDay_1920x1080.jpg)
 
 
 
