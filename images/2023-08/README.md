@@ -1,3 +1,7 @@
+#### 20230820 起点灯塔，德文郡，英国 (© Guy Edwardes/Minden Pictures)
+
+![](20230820_StartPointLight_1920x1080.jpg)
+
 #### 20230819 Alignements de Carnac, Golfe du Morbihan, France (© Guy Ozenne/Getty Images)
 
 ![](20230819_Morbihan_1920x1080.jpg)
