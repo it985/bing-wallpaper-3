@@ -1,3 +1,7 @@
+#### 20230819 Alignements de Carnac, Golfe du Morbihan, France (© Guy Ozenne/Getty Images)
+
+![](images/2023-08/20230819_Morbihan_1920x1080.jpg)
+
 #### 20230819 看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images)
 
 ![](images/2023-08/20230819_CameraSquirrel_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230813 Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)
 
 ![](images/2023-08/20230813_PerseidsOregon_1920x1080.jpg)
-
-#### 20230812 Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
-
-![](images/2023-08/20230812_ThreeElephants_1920x1080.jpg)
 
 
 
