@@ -2,7 +2,7 @@
 
 ![](20230819_Morbihan_1920x1080.jpg)
 
-#### 20230819 看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images)
+#### 20230819 Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)
 
 ![](20230819_CameraSquirrel_1920x1080.jpg)
 
