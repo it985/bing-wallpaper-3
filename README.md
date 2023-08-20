@@ -1,3 +1,7 @@
+#### 20230821 翡翠湖，加拿大育空地区 (© artherng/Getty Images)
+
+![](images/2023-08/20230821_EmeraldLakeYukon_1920x1080.jpg)
+
 #### 20230820 Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)
 
 ![](images/2023-08/20230820_StartPointLight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230814 Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)
 
 ![](images/2023-08/20230814_KeyWestBridge_1920x1080.jpg)
-
-#### 20230814 Tiny gecko on a leaf (© Darren Greenwood/Alamy)
-
-![](images/2023-08/20230814_GeckoLeaf_1920x1080.jpg)
 
 
 

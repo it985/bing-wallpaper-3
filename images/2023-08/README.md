@@ -1,3 +1,7 @@
+#### 20230821 翡翠湖，加拿大育空地区 (© artherng/Getty Images)
+
+![](20230821_EmeraldLakeYukon_1920x1080.jpg)
+
 #### 20230820 Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)
 
 ![](20230820_StartPointLight_1920x1080.jpg)
