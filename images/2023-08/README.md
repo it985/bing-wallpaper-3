@@ -1,4 +1,4 @@
-#### 20230820 起点灯塔，德文郡，英国 (© Guy Edwardes/Minden Pictures)
+#### 20230820 Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)
 
 ![](20230820_StartPointLight_1920x1080.jpg)
 
