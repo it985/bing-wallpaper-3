@@ -1,4 +1,4 @@
-#### 20230821 翡翠湖，加拿大育空地区 (© artherng/Getty Images)
+#### 20230821 Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)
 
 ![](images/2023-08/20230821_EmeraldLakeYukon_1920x1080.jpg)
 
