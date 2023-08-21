@@ -1,3 +1,7 @@
+#### 20230822 埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images)
+
+![](images/2023-08/20230822_TunisiaAmphitheatre_1920x1080.jpg)
+
 #### 20230821 Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)
 
 ![](images/2023-08/20230821_EmeraldLakeYukon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230814 Canyon des gorges du Verdon, Provence-Alpes-Côte d’Azur (© luisapuccini/iStock/Getty Images Plus)
 
 ![](images/2023-08/20230814_VerdonCanyon_1920x1080.jpg)
-
-#### 20230814 Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)
-
-![](images/2023-08/20230814_KeyWestBridge_1920x1080.jpg)
 
 
 

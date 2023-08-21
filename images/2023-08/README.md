@@ -1,3 +1,7 @@
+#### 20230822 埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images)
+
+![](20230822_TunisiaAmphitheatre_1920x1080.jpg)
+
 #### 20230821 Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)
 
 ![](20230821_EmeraldLakeYukon_1920x1080.jpg)
