@@ -1,3 +1,7 @@
+#### 20230823 斯科加瀑布，冰岛 (© Maridav/Shutterstock)
+
+![](20230823_SkogafossWaterfall_1920x1080.jpg)
+
 #### 20230822 Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)
 
 ![](20230822_TunisiaAmphitheatre_1920x1080.jpg)

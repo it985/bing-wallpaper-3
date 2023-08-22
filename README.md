@@ -1,3 +1,7 @@
+#### 20230823 斯科加瀑布，冰岛 (© Maridav/Shutterstock)
+
+![](images/2023-08/20230823_SkogafossWaterfall_1920x1080.jpg)
+
 #### 20230822 Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)
 
 ![](images/2023-08/20230822_TunisiaAmphitheatre_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230815 Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)
 
 ![](images/2023-08/20230815_TaorminaSquare_1920x1080.jpg)
-
-#### 20230814 Canyon des gorges du Verdon, Provence-Alpes-Côte d’Azur (© luisapuccini/iStock/Getty Images Plus)
-
-![](images/2023-08/20230814_VerdonCanyon_1920x1080.jpg)
 
 
 
