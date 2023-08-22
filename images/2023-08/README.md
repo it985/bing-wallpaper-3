@@ -38,6 +38,10 @@
 
 ![](20230817_SequoiaSunlight_1920x1080.jpg)
 
+#### 20230817 罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省 (© Laurens Verhoeven/Getty Images)
+
+![](20230817_HelmckenWaterfall_1920x1080.jpg)
+
 #### 20230817 グラスランズ国立公園, カナダ サスカチュワン州 (© Robert Postma/Getty Images)
 
 ![](20230817_GrasslandsNationalParkSaskachewan_1920x1080.jpg)

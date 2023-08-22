@@ -38,6 +38,10 @@
 
 ![](images/2023-08/20230817_SequoiaSunlight_1920x1080.jpg)
 
+#### 20230817 罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省 (© Laurens Verhoeven/Getty Images)
+
+![](images/2023-08/20230817_HelmckenWaterfall_1920x1080.jpg)
+
 #### 20230817 グラスランズ国立公園, カナダ サスカチュワン州 (© Robert Postma/Getty Images)
 
 ![](images/2023-08/20230817_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230816 東山・大文字山の送り火, 京都 (© gyro/Getty Images)
 
 ![](images/2023-08/20230816_GozanOkuribi_1920x1080.jpg)
-
-#### 20230815 Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)
-
-![](images/2023-08/20230815_TaorminaSquare_1920x1080.jpg)
 
 
 
