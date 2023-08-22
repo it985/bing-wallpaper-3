@@ -1,4 +1,4 @@
-#### 20230822 埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images)
+#### 20230822 Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)
 
 ![](images/2023-08/20230822_TunisiaAmphitheatre_1920x1080.jpg)
 
