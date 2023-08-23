@@ -1,4 +1,4 @@
-#### 20230823 斯科加瀑布，冰岛 (© Maridav/Shutterstock)
+#### 20230823 Skógafoss waterfall, Iceland (© Maridav/Shutterstock)
 
 ![](20230823_SkogafossWaterfall_1920x1080.jpg)
 
