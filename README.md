@@ -1,3 +1,7 @@
+#### 20230824 鲨鱼鳍湾，达文波特，加利福尼亚州，美国 (© Jeff Lewis/Tandem Stills + Motion)
+
+![](images/2023-08/20230824_SharkFinCove_1920x1080.jpg)
+
 #### 20230823 Skógafoss waterfall, Iceland (© Maridav/Shutterstock)
 
 ![](images/2023-08/20230823_SkogafossWaterfall_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230817 'Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)
 
 ![](images/2023-08/20230817_AvatarMountain_1920x1080.jpg)
-
-#### 20230816 東山・大文字山の送り火, 京都 (© gyro/Getty Images)
-
-![](images/2023-08/20230816_GozanOkuribi_1920x1080.jpg)
 
 
 

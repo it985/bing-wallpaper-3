@@ -1,3 +1,7 @@
+#### 20230824 鲨鱼鳍湾，达文波特，加利福尼亚州，美国 (© Jeff Lewis/Tandem Stills + Motion)
+
+![](20230824_SharkFinCove_1920x1080.jpg)
+
 #### 20230823 Skógafoss waterfall, Iceland (© Maridav/Shutterstock)
 
 ![](20230823_SkogafossWaterfall_1920x1080.jpg)
