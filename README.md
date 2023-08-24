@@ -1,4 +1,4 @@
-#### 20230824 鲨鱼鳍湾，达文波特，加利福尼亚州，美国 (© Jeff Lewis/Tandem Stills + Motion)
+#### 20230824 Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](images/2023-08/20230824_SharkFinCove_1920x1080.jpg)
 
