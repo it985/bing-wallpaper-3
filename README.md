@@ -1,3 +1,7 @@
+#### 20230825 黄石下瀑布，黄石国家公园，怀俄明州，美国 (© Tim Fitzharris/Minden Pictures)
+
+![](images/2023-08/20230825_YellowstoneFalls_1920x1080.jpg)
+
 #### 20230824 Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](images/2023-08/20230824_SharkFinCove_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230817 Doppelhornvogel, Nationalpark Khao Yai, Thailand (© kajornyot wildlife photography/Shutterstock)
 
 ![](images/2023-08/20230817_BucerosBicornis_1920x1080.jpg)
-
-#### 20230817 'Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)
-
-![](images/2023-08/20230817_AvatarMountain_1920x1080.jpg)
 
 
 
