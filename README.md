@@ -1,4 +1,4 @@
-#### 20230825 黄石下瀑布，黄石国家公园，怀俄明州，美国 (© Tim Fitzharris/Minden Pictures)
+#### 20230825 Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2023-08/20230825_YellowstoneFalls_1920x1080.jpg)
 
