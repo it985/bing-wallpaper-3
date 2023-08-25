@@ -1,3 +1,11 @@
+#### 20230826 柏林大教堂和博物馆岛，柏林，德国 (© Rudy Balasko/Shutterstock)
+
+![](images/2023-08/20230826_MuseumIsland_1920x1080.jpg)
+
+#### 20230826 全国花火競技大会, 秋田県 大仙市 (© Shotaro Yamaki/Shutterstock)
+
+![](images/2023-08/20230826_Fireworks_1920x1080.jpg)
+
 #### 20230825 Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2023-08/20230825_YellowstoneFalls_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230817 罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省 (© Laurens Verhoeven/Getty Images)
 
 ![](images/2023-08/20230817_HelmckenWaterfall_1920x1080.jpg)
-
-#### 20230817 グラスランズ国立公園, カナダ サスカチュワン州 (© Robert Postma/Getty Images)
-
-![](images/2023-08/20230817_GrasslandsNationalParkSaskachewan_1920x1080.jpg)
-
-#### 20230817 Doppelhornvogel, Nationalpark Khao Yai, Thailand (© kajornyot wildlife photography/Shutterstock)
-
-![](images/2023-08/20230817_BucerosBicornis_1920x1080.jpg)
 
 
 

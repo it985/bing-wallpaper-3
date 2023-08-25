@@ -1,3 +1,11 @@
+#### 20230826 柏林大教堂和博物馆岛，柏林，德国 (© Rudy Balasko/Shutterstock)
+
+![](20230826_MuseumIsland_1920x1080.jpg)
+
+#### 20230826 全国花火競技大会, 秋田県 大仙市 (© Shotaro Yamaki/Shutterstock)
+
+![](20230826_Fireworks_1920x1080.jpg)
+
 #### 20230825 Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)
 
 ![](20230825_YellowstoneFalls_1920x1080.jpg)
