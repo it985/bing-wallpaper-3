@@ -1,3 +1,7 @@
+#### 20230827 城山日出峰，济州岛上的凝灰岩锥，韩国 (© Quynh Anh Nguyen/Getty Images)
+
+![](images/2023-08/20230827_JejuIsland_1920x1080.jpg)
+
 #### 20230826 Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)
 
 ![](images/2023-08/20230826_MuseumIsland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230817 Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)
 
 ![](images/2023-08/20230817_SequoiaSunlight_1920x1080.jpg)
-
-#### 20230817 罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省 (© Laurens Verhoeven/Getty Images)
-
-![](images/2023-08/20230817_HelmckenWaterfall_1920x1080.jpg)
 
 
 

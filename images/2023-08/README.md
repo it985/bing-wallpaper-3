@@ -1,3 +1,7 @@
+#### 20230827 城山日出峰，济州岛上的凝灰岩锥，韩国 (© Quynh Anh Nguyen/Getty Images)
+
+![](20230827_JejuIsland_1920x1080.jpg)
+
 #### 20230826 Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)
 
 ![](20230826_MuseumIsland_1920x1080.jpg)
