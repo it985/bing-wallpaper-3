@@ -1,4 +1,4 @@
-#### 20230826 柏林大教堂和博物馆岛，柏林，德国 (© Rudy Balasko/Shutterstock)
+#### 20230826 Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)
 
 ![](images/2023-08/20230826_MuseumIsland_1920x1080.jpg)
 
