@@ -1,3 +1,7 @@
+#### 20230828 洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚 (© Benny Marty/Shutterstock)
+
+![](images/2023-08/20230828_DubrovnikHarbor_1920x1080.jpg)
+
 #### 20230827 Seongsan Ilchulbong, a tuff cone on Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)
 
 ![](images/2023-08/20230827_JejuIsland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230818 The Canadian International Air Show in Marilyn Bell Park (© Melissa Renwick/Contributor/Getty Images)
 
 ![](images/2023-08/20230818_CanadianNationalExhibition_1920x1080.jpg)
-
-#### 20230817 Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)
-
-![](images/2023-08/20230817_SequoiaSunlight_1920x1080.jpg)
 
 
 
