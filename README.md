@@ -1,4 +1,4 @@
-#### 20230827 城山日出峰，济州岛上的凝灰岩锥，韩国 (© Quynh Anh Nguyen/Getty Images)
+#### 20230827 Seongsan Ilchulbong, a tuff cone on Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)
 
 ![](images/2023-08/20230827_JejuIsland_1920x1080.jpg)
 
