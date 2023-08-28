@@ -1,4 +1,4 @@
-#### 20230828 洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚 (© Benny Marty/Shutterstock)
+#### 20230828 Fort Lovrijenac, West Harbor, Dubrovnik, Croatia (© Benny Marty/Shutterstock)
 
 ![](images/2023-08/20230828_DubrovnikHarbor_1920x1080.jpg)
 
