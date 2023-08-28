@@ -1,3 +1,11 @@
+#### 20230829 美洲野牛，大提顿国家公园，怀俄明州 (© Enrique Aguirre Aves/Getty Images)
+
+![](20230829_TetonBison_1920x1080.jpg)
+
+#### 20230829 メドック, フランス ジロンド県 (© Esperanza33/Getty Images)
+
+![](20230829_MarathonMedoc_1920x1080.jpg)
+
 #### 20230828 Fort Lovrijenac, West Harbor, Dubrovnik, Croatia (© Benny Marty/Shutterstock)
 
 ![](20230828_DubrovnikHarbor_1920x1080.jpg)

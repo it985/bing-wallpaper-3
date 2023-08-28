@@ -1,3 +1,11 @@
+#### 20230829 美洲野牛，大提顿国家公园，怀俄明州 (© Enrique Aguirre Aves/Getty Images)
+
+![](images/2023-08/20230829_TetonBison_1920x1080.jpg)
+
+#### 20230829 メドック, フランス ジロンド県 (© Esperanza33/Getty Images)
+
+![](images/2023-08/20230829_MarathonMedoc_1920x1080.jpg)
+
 #### 20230828 Fort Lovrijenac, West Harbor, Dubrovnik, Croatia (© Benny Marty/Shutterstock)
 
 ![](images/2023-08/20230828_DubrovnikHarbor_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230818 Rothenburg ob der Tauber, Bavaria, Germany (© RudyBalasko/Getty Images)
 
 ![](images/2023-08/20230818_Rothenburg_1920x1080.jpg)
-
-#### 20230818 Altstadt und die Trave, Lübeck, Schleswig-Holstein (© Harald Nachtmann/Getty Images)
-
-![](images/2023-08/20230818_LuebeckRiverTrave_1920x1080.jpg)
-
-#### 20230818 The Canadian International Air Show in Marilyn Bell Park (© Melissa Renwick/Contributor/Getty Images)
-
-![](images/2023-08/20230818_CanadianNationalExhibition_1920x1080.jpg)
 
 
 
