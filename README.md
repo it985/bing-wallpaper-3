@@ -6,6 +6,14 @@
 
 ![](images/2023-08/20230829_MarathonMedoc_1920x1080.jpg)
 
+#### 20230829 Maison géorgienne, The Circus, Bath, Somerset, Angleterre (© Gavin Hellier/Getty Images)
+
+![](images/2023-08/20230829_BathCircus_1920x1080.jpg)
+
+#### 20230829 „Avatar-Berge“, Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)
+
+![](images/2023-08/20230829_AvatarMountain_1920x1080.jpg)
+
 #### 20230828 Fort Lovrijenac, West Harbor, Dubrovnik, Croatia (© Benny Marty/Shutterstock)
 
 ![](images/2023-08/20230828_DubrovnikHarbor_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230819 Alignements de Carnac, Golfe du Morbihan, France (© Guy Ozenne/Getty Images)
 
 ![](images/2023-08/20230819_Morbihan_1920x1080.jpg)
-
-#### 20230819 Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)
-
-![](images/2023-08/20230819_CameraSquirrel_1920x1080.jpg)
-
-#### 20230818 Rothenburg ob der Tauber, Bavaria, Germany (© RudyBalasko/Getty Images)
-
-![](images/2023-08/20230818_Rothenburg_1920x1080.jpg)
 
 
 

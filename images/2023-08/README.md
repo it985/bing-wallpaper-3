@@ -6,6 +6,14 @@
 
 ![](20230829_MarathonMedoc_1920x1080.jpg)
 
+#### 20230829 Maison géorgienne, The Circus, Bath, Somerset, Angleterre (© Gavin Hellier/Getty Images)
+
+![](20230829_BathCircus_1920x1080.jpg)
+
+#### 20230829 „Avatar-Berge“, Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)
+
+![](20230829_AvatarMountain_1920x1080.jpg)
+
 #### 20230828 Fort Lovrijenac, West Harbor, Dubrovnik, Croatia (© Benny Marty/Shutterstock)
 
 ![](20230828_DubrovnikHarbor_1920x1080.jpg)
