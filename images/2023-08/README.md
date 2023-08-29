@@ -1,3 +1,7 @@
+#### 20230829 Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)
+
+![](20230829_ZelenciSprings_1920x1080.jpg)
+
 #### 20230829 美洲野牛，大提顿国家公园，怀俄明州 (© Enrique Aguirre Aves/Getty Images)
 
 ![](20230829_TetonBison_1920x1080.jpg)

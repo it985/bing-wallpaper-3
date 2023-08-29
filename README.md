@@ -1,3 +1,7 @@
+#### 20230829 Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)
+
+![](images/2023-08/20230829_ZelenciSprings_1920x1080.jpg)
+
 #### 20230829 美洲野牛，大提顿国家公园，怀俄明州 (© Enrique Aguirre Aves/Getty Images)
 
 ![](images/2023-08/20230829_TetonBison_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230820 Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)
 
 ![](images/2023-08/20230820_StartPointLight_1920x1080.jpg)
-
-#### 20230819 Alignements de Carnac, Golfe du Morbihan, France (© Guy Ozenne/Getty Images)
-
-![](images/2023-08/20230819_Morbihan_1920x1080.jpg)
 
 
 
