@@ -1,3 +1,7 @@
+#### 20230830 鲸鲨，宁加洛珊瑚礁，西澳大利亚 (© Jason Edwards/Getty Images)
+
+![](images/2023-08/20230830_NingalooShark_1920x1080.jpg)
+
 #### 20230829 Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)
 
 ![](images/2023-08/20230829_ZelenciSprings_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230821 Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)
 
 ![](images/2023-08/20230821_EmeraldLakeYukon_1920x1080.jpg)
-
-#### 20230820 Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)
-
-![](images/2023-08/20230820_StartPointLight_1920x1080.jpg)
 
 
 
