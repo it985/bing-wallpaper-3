@@ -1,3 +1,7 @@
+#### 20230831 巨人柱，铁木森林国家纪念地，亚利桑那州，美国 (© Jack Dykinga/Minden Pictures)
+
+![](images/2023-08/20230831_IronwoodCactus_1920x1080.jpg)
+
 #### 20230830 Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)
 
 ![](images/2023-08/20230830_NingalooShark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230822 Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)
 
 ![](images/2023-08/20230822_TunisiaAmphitheatre_1920x1080.jpg)
-
-#### 20230821 Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)
-
-![](images/2023-08/20230821_EmeraldLakeYukon_1920x1080.jpg)
 
 
 

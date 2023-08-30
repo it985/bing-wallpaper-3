@@ -1,3 +1,7 @@
+#### 20230831 巨人柱，铁木森林国家纪念地，亚利桑那州，美国 (© Jack Dykinga/Minden Pictures)
+
+![](20230831_IronwoodCactus_1920x1080.jpg)
+
 #### 20230830 Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)
 
 ![](20230830_NingalooShark_1920x1080.jpg)
