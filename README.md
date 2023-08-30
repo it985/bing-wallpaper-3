@@ -1,4 +1,4 @@
-#### 20230830 鲸鲨，宁加洛珊瑚礁，西澳大利亚 (© Jason Edwards/Getty Images)
+#### 20230830 Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)
 
 ![](images/2023-08/20230830_NingalooShark_1920x1080.jpg)
 
