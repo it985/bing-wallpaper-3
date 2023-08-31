@@ -2,6 +2,10 @@
 
 ![](images/2023-08/20230831_IronwoodCactus_1920x1080.jpg)
 
+#### 20230831 Köpfe des Heiligen Cassius und Florentius vor dem Bonner Münster, Bonn (© Peter Unger/Getty images)
+
+![](images/2023-08/20230831_CassiusFlorentius_1920x1080.jpg)
+
 #### 20230830 Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)
 
 ![](images/2023-08/20230830_NingalooShark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230823 Skógafoss waterfall, Iceland (© Maridav/Shutterstock)
 
 ![](images/2023-08/20230823_SkogafossWaterfall_1920x1080.jpg)
-
-#### 20230822 Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)
-
-![](images/2023-08/20230822_TunisiaAmphitheatre_1920x1080.jpg)
 
 
 

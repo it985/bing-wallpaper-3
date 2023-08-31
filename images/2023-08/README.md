@@ -2,6 +2,10 @@
 
 ![](20230831_IronwoodCactus_1920x1080.jpg)
 
+#### 20230831 Köpfe des Heiligen Cassius und Florentius vor dem Bonner Münster, Bonn (© Peter Unger/Getty images)
+
+![](20230831_CassiusFlorentius_1920x1080.jpg)
+
 #### 20230830 Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)
 
 ![](20230830_NingalooShark_1920x1080.jpg)
