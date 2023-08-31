@@ -1,4 +1,4 @@
-#### 20230831 巨人柱，铁木森林国家纪念地，亚利桑那州，美国 (© Jack Dykinga/Minden Pictures)
+#### 20230831 Saguaro cacti, Ironwood National Monument, Arizona (© Jack Dykinga/Minden Pictures)
 
 ![](20230831_IronwoodCactus_1920x1080.jpg)
 
