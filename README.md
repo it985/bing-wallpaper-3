@@ -1,3 +1,11 @@
+#### 20230901 火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国 (© Bill Gozansky/Alamy Stock Photo)
+
+![](images/2023-09/20230901_TurkeyTailMush_1920x1080.jpg)
+
+#### 20230901 草原を走るノロジカの子鹿, フランス ノルマンディー (© Gerard Lacz/Minden)
+
+![](images/2023-09/20230901_Fawn_1920x1080.jpg)
+
 #### 20230831 Saguaro cacti, Ironwood National Monument, Arizona (© Jack Dykinga/Minden Pictures)
 
 ![](images/2023-08/20230831_IronwoodCactus_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2023-08/20230825_YellowstoneFalls_1920x1080.jpg)
 
-#### 20230824 Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)
-
-![](images/2023-08/20230824_SharkFinCove_1920x1080.jpg)
-
-#### 20230823 Skógafoss waterfall, Iceland (© Maridav/Shutterstock)
-
-![](images/2023-08/20230823_SkogafossWaterfall_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2023&emsp;&emsp;[08](images/2023-08/README.md) &emsp;&emsp;[07](images/2023-07/README.md) &emsp;&emsp;[06](images/2023-06/README.md) &emsp;&emsp;[05](images/2023-05/README.md) &emsp;&emsp;[04](images/2023-04/README.md) &emsp;&emsp;[03](images/2023-03/README.md) &emsp;&emsp;[02](images/2023-02/README.md) &emsp;&emsp;[01](images/2023-01/README.md) 
+- 2023&emsp;&emsp;[09](images/2023-09/README.md) &emsp;&emsp;[08](images/2023-08/README.md) &emsp;&emsp;[07](images/2023-07/README.md) &emsp;&emsp;[06](images/2023-06/README.md) &emsp;&emsp;[05](images/2023-05/README.md) &emsp;&emsp;[04](images/2023-04/README.md) &emsp;&emsp;[03](images/2023-03/README.md) &emsp;&emsp;[02](images/2023-02/README.md) &emsp;&emsp;[01](images/2023-01/README.md) 
 
 - 2022&emsp;&emsp;[11](images/2022-11/README.md) &emsp;&emsp;[10](images/2022-10/README.md) &emsp;&emsp;[09](images/2022-09/README.md) &emsp;&emsp;[08](images/2022-08/README.md) &emsp;&emsp;[07](images/2022-07/README.md) &emsp;&emsp;[06](images/2022-06/README.md) &emsp;&emsp;[05](images/2022-05/README.md) &emsp;&emsp;[04](images/2022-04/README.md) &emsp;&emsp;[03](images/2022-03/README.md) &emsp;&emsp;[02](images/2022-02/README.md) &emsp;&emsp;[01](images/2022-01/README.md) 
 
