@@ -1,3 +1,7 @@
+#### 20230902 艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国 (© mallardg500/Getty Images)
+
+![](images/2023-09/20230902_TinyHummer_1920x1080.jpg)
+
 #### 20230901 Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)
 
 ![](images/2023-09/20230901_TurkeyTailMush_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230826 全国花火競技大会, 秋田県 大仙市 (© Shotaro Yamaki/Shutterstock)
 
 ![](images/2023-08/20230826_Fireworks_1920x1080.jpg)
-
-#### 20230825 Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)
-
-![](images/2023-08/20230825_YellowstoneFalls_1920x1080.jpg)
 
 
 
