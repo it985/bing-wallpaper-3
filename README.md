@@ -1,4 +1,4 @@
-#### 20230901 火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国 (© Bill Gozansky/Alamy Stock Photo)
+#### 20230901 Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)
 
 ![](images/2023-09/20230901_TurkeyTailMush_1920x1080.jpg)
 
