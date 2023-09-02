@@ -1,4 +1,4 @@
-#### 20230902 艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国 (© mallardg500/Getty Images)
+#### 20230902 Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)
 
 ![](images/2023-09/20230902_TinyHummer_1920x1080.jpg)
 
