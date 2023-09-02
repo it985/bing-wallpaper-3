@@ -1,3 +1,7 @@
+#### 20230903 曼哈顿鸟瞰图，纽约市，美国 (© Wojtek Zagorski/Getty Images)
+
+![](20230903_ManhattanAerial_1920x1080.jpg)
+
 #### 20230902 Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)
 
 ![](20230902_TinyHummer_1920x1080.jpg)

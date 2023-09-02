@@ -1,3 +1,7 @@
+#### 20230903 曼哈顿鸟瞰图，纽约市，美国 (© Wojtek Zagorski/Getty Images)
+
+![](images/2023-09/20230903_ManhattanAerial_1920x1080.jpg)
+
 #### 20230902 Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)
 
 ![](images/2023-09/20230902_TinyHummer_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230826 Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)
 
 ![](images/2023-08/20230826_MuseumIsland_1920x1080.jpg)
-
-#### 20230826 全国花火競技大会, 秋田県 大仙市 (© Shotaro Yamaki/Shutterstock)
-
-![](images/2023-08/20230826_Fireworks_1920x1080.jpg)
 
 
 
