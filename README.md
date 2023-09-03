@@ -1,3 +1,11 @@
+#### 20230904 パッサウ, ドイツ バイエルン州 (© Scott Wilson/Alamy)
+
+![](images/2023-09/20230904_PassauSunsetJune_1920x1080.jpg)
+
+#### 20230904 布尔日的沼泽，法国 (© Tuul & Bruno Morandi/Getty Images)
+
+![](images/2023-09/20230904_BourgesMarsh_1920x1080.jpg)
+
 #### 20230903 Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)
 
 ![](images/2023-09/20230903_ManhattanAerial_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230828 Fort Lovrijenac, West Harbor, Dubrovnik, Croatia (© Benny Marty/Shutterstock)
 
 ![](images/2023-08/20230828_DubrovnikHarbor_1920x1080.jpg)
-
-#### 20230827 Seongsan Ilchulbong, a tuff cone on Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)
-
-![](images/2023-08/20230827_JejuIsland_1920x1080.jpg)
-
-#### 20230826 Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)
-
-![](images/2023-08/20230826_MuseumIsland_1920x1080.jpg)
 
 
 
