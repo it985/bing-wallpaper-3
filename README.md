@@ -1,4 +1,4 @@
-#### 20230903 曼哈顿鸟瞰图，纽约市，美国 (© Wojtek Zagorski/Getty Images)
+#### 20230903 Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)
 
 ![](images/2023-09/20230903_ManhattanAerial_1920x1080.jpg)
 
