@@ -1,3 +1,7 @@
+#### 20230905 塞格拉山，塞尼亚岛，挪威 (© imageBROKER/Moritz Wolf/Getty Images)
+
+![](20230905_MountSegla_1920x1080.jpg)
+
 #### 20230904 パッサウ, ドイツ バイエルン州 (© Scott Wilson/Alamy)
 
 ![](20230904_PassauSunsetJune_1920x1080.jpg)

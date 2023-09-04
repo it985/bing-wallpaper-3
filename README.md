@@ -1,3 +1,7 @@
+#### 20230905 塞格拉山，塞尼亚岛，挪威 (© imageBROKER/Moritz Wolf/Getty Images)
+
+![](images/2023-09/20230905_MountSegla_1920x1080.jpg)
+
 #### 20230904 パッサウ, ドイツ バイエルン州 (© Scott Wilson/Alamy)
 
 ![](images/2023-09/20230904_PassauSunsetJune_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230829 メドック, フランス ジロンド県 (© Esperanza33/Getty Images)
 
 ![](images/2023-08/20230829_MarathonMedoc_1920x1080.jpg)
-
-#### 20230829 Maison géorgienne, The Circus, Bath, Somerset, Angleterre (© Gavin Hellier/Getty Images)
-
-![](images/2023-08/20230829_BathCircus_1920x1080.jpg)
 
 
 
