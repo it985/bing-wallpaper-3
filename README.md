@@ -2,6 +2,10 @@
 
 ![](images/2023-09/20230904_PassauSunsetJune_1920x1080.jpg)
 
+#### 20230904 Construction workers on scaffolding (© Bits and Splits/Shutterstock)
+
+![](images/2023-09/20230904_LaborDayWorkers_1920x1080.jpg)
+
 #### 20230904 Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)
 
 ![](images/2023-09/20230904_CamelsAbove_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230829 Maison géorgienne, The Circus, Bath, Somerset, Angleterre (© Gavin Hellier/Getty Images)
 
 ![](images/2023-08/20230829_BathCircus_1920x1080.jpg)
-
-#### 20230829 „Avatar-Berge“, Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)
-
-![](images/2023-08/20230829_AvatarMountain_1920x1080.jpg)
 
 
 

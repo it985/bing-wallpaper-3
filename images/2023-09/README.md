@@ -2,6 +2,10 @@
 
 ![](20230904_PassauSunsetJune_1920x1080.jpg)
 
+#### 20230904 Construction workers on scaffolding (© Bits and Splits/Shutterstock)
+
+![](20230904_LaborDayWorkers_1920x1080.jpg)
+
 #### 20230904 Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)
 
 ![](20230904_CamelsAbove_1920x1080.jpg)
