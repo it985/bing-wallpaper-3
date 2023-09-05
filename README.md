@@ -1,3 +1,7 @@
+#### 20230906 威尼斯旧港，克里特岛，希腊 (© Gatsi/Getty Images)
+
+![](images/2023-09/20230906_CreteHarbor_1920x1080.jpg)
+
 #### 20230905 Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)
 
 ![](images/2023-09/20230905_MountSegla_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230829 American bison in Grand Teton National Park, Wyoming (© Enrique Aguirre Aves/Getty Images)
 
 ![](images/2023-08/20230829_TetonBison_1920x1080.jpg)
-
-#### 20230829 メドック, フランス ジロンド県 (© Esperanza33/Getty Images)
-
-![](images/2023-08/20230829_MarathonMedoc_1920x1080.jpg)
 
 
 

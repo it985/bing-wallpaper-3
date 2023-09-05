@@ -1,3 +1,7 @@
+#### 20230906 威尼斯旧港，克里特岛，希腊 (© Gatsi/Getty Images)
+
+![](20230906_CreteHarbor_1920x1080.jpg)
+
 #### 20230905 Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)
 
 ![](20230905_MountSegla_1920x1080.jpg)
