@@ -1,4 +1,4 @@
-#### 20230905 塞格拉山，塞尼亚岛，挪威 (© imageBROKER/Moritz Wolf/Getty Images)
+#### 20230905 Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)
 
 ![](images/2023-09/20230905_MountSegla_1920x1080.jpg)
 
