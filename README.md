@@ -1,4 +1,4 @@
-#### 20230906 威尼斯旧港，克里特岛，希腊 (© Gatsi/Getty Images)
+#### 20230906 Old Venetian harbor, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)
 
 ![](images/2023-09/20230906_CreteHarbor_1920x1080.jpg)
 
