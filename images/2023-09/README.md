@@ -1,3 +1,7 @@
+#### 20230907 Der Reichstag unter einem Sternenhimmel, Berlin (© MarioGuti/Getty Images)
+
+![](20230907_ReichstagBeiNacht_1920x1080.jpg)
+
 #### 20230906 Old Venetian harbor, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)
 
 ![](20230906_CreteHarbor_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20230907 Der Reichstag unter einem Sternenhimmel, Berlin (© MarioGuti/Getty Images)
+
+![](images/2023-09/20230907_ReichstagBeiNacht_1920x1080.jpg)
+
 #### 20230906 Old Venetian harbor, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)
 
 ![](images/2023-09/20230906_CreteHarbor_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230829 Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)
 
 ![](images/2023-08/20230829_ZelenciSprings_1920x1080.jpg)
-
-#### 20230829 American bison in Grand Teton National Park, Wyoming (© Enrique Aguirre Aves/Getty Images)
-
-![](images/2023-08/20230829_TetonBison_1920x1080.jpg)
 
 
 
