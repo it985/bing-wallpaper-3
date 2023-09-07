@@ -1,3 +1,7 @@
+#### 20230907 Scenic view at Toronto city waterfront skyline at sunset (© Elena Elisseeva/Shutterstock)
+
+![](20230907_TIFFCanada_1920x1080.jpg)
+
 #### 20230907 Der Reichstag unter einem Sternenhimmel, Berlin (© MarioGuti/Getty Images)
 
 ![](20230907_ReichstagBeiNacht_1920x1080.jpg)

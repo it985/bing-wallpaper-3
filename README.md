@@ -1,3 +1,7 @@
+#### 20230907 Scenic view at Toronto city waterfront skyline at sunset (© Elena Elisseeva/Shutterstock)
+
+![](images/2023-09/20230907_TIFFCanada_1920x1080.jpg)
+
 #### 20230907 Der Reichstag unter einem Sternenhimmel, Berlin (© MarioGuti/Getty Images)
 
 ![](images/2023-09/20230907_ReichstagBeiNacht_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230830 Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)
 
 ![](images/2023-08/20230830_NingalooShark_1920x1080.jpg)
-
-#### 20230829 Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)
-
-![](images/2023-08/20230829_ZelenciSprings_1920x1080.jpg)
 
 
 
