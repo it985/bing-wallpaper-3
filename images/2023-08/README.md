@@ -22,7 +22,7 @@
 
 ![](20230829_MarathonMedoc_1920x1080.jpg)
 
-#### 20230829 Maison géorgienne, The Circus, Bath, Somerset, Angleterre (© Gavin Hellier/Getty Images)
+#### 20230829 The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)
 
 ![](20230829_BathCircus_1920x1080.jpg)
 
