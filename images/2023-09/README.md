@@ -1,3 +1,11 @@
+#### 20230909 菊の花 (© Maciej Figiel/Alamy Stock Photo)
+
+![](20230909_DoubleNinth_1920x1080.jpg)
+
+#### 20230909 大城府历史公园的柴瓦塔那兰寺，泰国 (© Weerasak Saeku/Getty Images)
+
+![](20230909_AyutthayaTemple_1920x1080.jpg)
+
 #### 20230908 Parc Olympique Lyonnais, Groupama Stadium OL Vallée, Lyon (© dpa picture alliance/Alamy Stock Photo)
 
 ![](20230908_RugbyWorldCup_1920x1080.jpg)

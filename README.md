@@ -1,3 +1,11 @@
+#### 20230909 菊の花 (© Maciej Figiel/Alamy Stock Photo)
+
+![](images/2023-09/20230909_DoubleNinth_1920x1080.jpg)
+
+#### 20230909 大城府历史公园的柴瓦塔那兰寺，泰国 (© Weerasak Saeku/Getty Images)
+
+![](images/2023-09/20230909_AyutthayaTemple_1920x1080.jpg)
+
 #### 20230908 Parc Olympique Lyonnais, Groupama Stadium OL Vallée, Lyon (© dpa picture alliance/Alamy Stock Photo)
 
 ![](images/2023-09/20230908_RugbyWorldCup_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230901 草原を走るノロジカの子鹿, フランス ノルマンディー (© Gerard Lacz/Minden)
 
 ![](images/2023-09/20230901_Fawn_1920x1080.jpg)
-
-#### 20230831 Saguaro cacti, Ironwood National Monument, Arizona (© Jack Dykinga/Minden Pictures)
-
-![](images/2023-08/20230831_IronwoodCactus_1920x1080.jpg)
-
-#### 20230831 Köpfe des Heiligen Cassius und Florentius vor dem Bonner Münster, Bonn (© Peter Unger/Getty images)
-
-![](images/2023-08/20230831_CassiusFlorentius_1920x1080.jpg)
 
 
 
