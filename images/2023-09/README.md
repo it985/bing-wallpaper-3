@@ -10,6 +10,10 @@
 
 ![](20230908_RugbyWorldCup_1920x1080.jpg)
 
+#### 20230908 The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)
+
+![](20230908_BathCircus_1920x1080.jpg)
+
 #### 20230907 Scenic view at Toronto city waterfront skyline at sunset (© Elena Elisseeva/Shutterstock)
 
 ![](20230907_TIFFCanada_1920x1080.jpg)
