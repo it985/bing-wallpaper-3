@@ -2,7 +2,7 @@
 
 ![](20230909_DoubleNinth_1920x1080.jpg)
 
-#### 20230909 大城府历史公园的柴瓦塔那兰寺，泰国 (© Weerasak Saeku/Getty Images)
+#### 20230909 Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)
 
 ![](20230909_AyutthayaTemple_1920x1080.jpg)
 
