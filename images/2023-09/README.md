@@ -1,3 +1,7 @@
+#### 20230910 斯瓦尔巴群岛海上的一对海象，挪威 (© Mark Smith/Getty Images)
+
+![](20230910_WalrusSvalbard_1920x1080.jpg)
+
 #### 20230909 菊の花 (© Maciej Figiel/Alamy Stock Photo)
 
 ![](20230909_DoubleNinth_1920x1080.jpg)

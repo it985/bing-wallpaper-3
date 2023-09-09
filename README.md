@@ -1,3 +1,7 @@
+#### 20230910 斯瓦尔巴群岛海上的一对海象，挪威 (© Mark Smith/Getty Images)
+
+![](images/2023-09/20230910_WalrusSvalbard_1920x1080.jpg)
+
 #### 20230909 菊の花 (© Maciej Figiel/Alamy Stock Photo)
 
 ![](images/2023-09/20230909_DoubleNinth_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230902 Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)
 
 ![](images/2023-09/20230902_TinyHummer_1920x1080.jpg)
-
-#### 20230901 Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)
-
-![](images/2023-09/20230901_TurkeyTailMush_1920x1080.jpg)
 
 
 
