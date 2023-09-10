@@ -1,4 +1,4 @@
-#### 20230910 斯瓦尔巴群岛海上的一对海象，挪威 (© Mark Smith/Getty Images)
+#### 20230910 Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)
 
 ![](images/2023-09/20230910_WalrusSvalbard_1920x1080.jpg)
 
