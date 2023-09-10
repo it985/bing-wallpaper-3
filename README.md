@@ -1,3 +1,7 @@
+#### 20230911 波尔多葡萄园的日出，法国 (© Esperanza33/Getty Images)
+
+![](images/2023-09/20230911_MarathonMedoc_1920x1080.jpg)
+
 #### 20230910 Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)
 
 ![](images/2023-09/20230910_WalrusSvalbard_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230904 布尔日的沼泽，法国 (© Tuul & Bruno Morandi/Getty Images)
 
 ![](images/2023-09/20230904_BourgesMarsh_1920x1080.jpg)
-
-#### 20230903 Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)
-
-![](images/2023-09/20230903_ManhattanAerial_1920x1080.jpg)
 
 
 
