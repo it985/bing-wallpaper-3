@@ -2,6 +2,10 @@
 
 ![](20230910_WalrusSvalbard_1920x1080.jpg)
 
+#### 20230910 Castelmezzano, Italie (© Rudy Balasko/Shutterstock)
+
+![](20230910_CastelmazzanoSunrise_1920x1080.jpg)
+
 #### 20230909 菊の花 (© Maciej Figiel/Alamy Stock Photo)
 
 ![](20230909_DoubleNinth_1920x1080.jpg)

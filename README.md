@@ -2,6 +2,10 @@
 
 ![](images/2023-09/20230910_WalrusSvalbard_1920x1080.jpg)
 
+#### 20230910 Castelmezzano, Italie (© Rudy Balasko/Shutterstock)
+
+![](images/2023-09/20230910_CastelmazzanoSunrise_1920x1080.jpg)
+
 #### 20230909 菊の花 (© Maciej Figiel/Alamy Stock Photo)
 
 ![](images/2023-09/20230909_DoubleNinth_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230903 Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)
 
 ![](images/2023-09/20230903_ManhattanAerial_1920x1080.jpg)
-
-#### 20230902 Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)
-
-![](images/2023-09/20230902_TinyHummer_1920x1080.jpg)
 
 
 
