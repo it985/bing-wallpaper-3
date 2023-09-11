@@ -6,6 +6,10 @@
 
 ![](20230911_FrenchRiver_1920x1080.jpg)
 
+#### 20230911 Brooklyn Bridge with the 'Tribute in Light' installation for 9/11, New York (© ANDREY DENISYUK/Getty Images)
+
+![](20230911_BridgeMemorial_1920x1080.jpg)
+
 #### 20230910 Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)
 
 ![](20230910_WalrusSvalbard_1920x1080.jpg)
