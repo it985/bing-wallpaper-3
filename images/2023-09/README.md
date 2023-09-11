@@ -1,3 +1,7 @@
+#### 20230912 北海日落，诺德多夫，德国 (© Frederick Doerschem/Getty Images)
+
+![](20230912_NorthSeaStairs_1920x1080.jpg)
+
 #### 20230911 波尔多葡萄园的日出，法国 (© Esperanza33/Getty Images)
 
 ![](20230911_MarathonMedoc_1920x1080.jpg)
