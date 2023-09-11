@@ -2,6 +2,10 @@
 
 ![](images/2023-09/20230911_MarathonMedoc_1920x1080.jpg)
 
+#### 20230911 French River, Ontario, Canada (© Tim Fitzharris/Minden)
+
+![](images/2023-09/20230911_FrenchRiver_1920x1080.jpg)
+
 #### 20230910 Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)
 
 ![](images/2023-09/20230910_WalrusSvalbard_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230904 Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)
 
 ![](images/2023-09/20230904_CamelsAbove_1920x1080.jpg)
-
-#### 20230904 布尔日的沼泽，法国 (© Tuul & Bruno Morandi/Getty Images)
-
-![](images/2023-09/20230904_BourgesMarsh_1920x1080.jpg)
 
 
 

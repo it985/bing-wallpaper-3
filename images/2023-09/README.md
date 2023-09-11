@@ -2,6 +2,10 @@
 
 ![](20230911_MarathonMedoc_1920x1080.jpg)
 
+#### 20230911 French River, Ontario, Canada (© Tim Fitzharris/Minden)
+
+![](20230911_FrenchRiver_1920x1080.jpg)
+
 #### 20230910 Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)
 
 ![](20230910_WalrusSvalbard_1920x1080.jpg)
