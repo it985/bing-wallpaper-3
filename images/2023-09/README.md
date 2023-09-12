@@ -1,4 +1,4 @@
-#### 20230912 北海日落，诺德多夫，德国 (© Frederick Doerschem/Getty Images)
+#### 20230912 North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)
 
 ![](20230912_NorthSeaStairs_1920x1080.jpg)
 
