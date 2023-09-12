@@ -1,3 +1,7 @@
+#### 20230913 赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度 (© Images of india/Alamy Stock Photo)
+
+![](20230913_HemakutaHill_1920x1080.jpg)
+
 #### 20230912 North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)
 
 ![](20230912_NorthSeaStairs_1920x1080.jpg)

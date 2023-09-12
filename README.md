@@ -1,3 +1,7 @@
+#### 20230913 赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度 (© Images of india/Alamy Stock Photo)
+
+![](images/2023-09/20230913_HemakutaHill_1920x1080.jpg)
+
 #### 20230912 North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)
 
 ![](images/2023-09/20230912_NorthSeaStairs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230905 Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)
 
 ![](images/2023-09/20230905_MountSegla_1920x1080.jpg)
-
-#### 20230904 パッサウ, ドイツ バイエルン州 (© Scott Wilson/Alamy)
-
-![](images/2023-09/20230904_PassauSunsetJune_1920x1080.jpg)
 
 
 
