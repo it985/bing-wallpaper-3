@@ -1,3 +1,7 @@
+#### 20230914 普氏野马，哈斯台国家公园，蒙古国 (© Ondrej Prosicky/Shutterstock)
+
+![](20230914_MongoliaHorses_1920x1080.jpg)
+
 #### 20230913 Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy)
 
 ![](20230913_HemakutaHill_1920x1080.jpg)

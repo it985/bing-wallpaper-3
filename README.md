@@ -1,3 +1,7 @@
+#### 20230914 普氏野马，哈斯台国家公园，蒙古国 (© Ondrej Prosicky/Shutterstock)
+
+![](images/2023-09/20230914_MongoliaHorses_1920x1080.jpg)
+
 #### 20230913 Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy)
 
 ![](images/2023-09/20230913_HemakutaHill_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230906 Old Venetian harbor, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)
 
 ![](images/2023-09/20230906_CreteHarbor_1920x1080.jpg)
-
-#### 20230905 Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)
-
-![](images/2023-09/20230905_MountSegla_1920x1080.jpg)
 
 
 
