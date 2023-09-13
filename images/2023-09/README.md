@@ -1,4 +1,4 @@
-#### 20230913 赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度 (© Images of india/Alamy Stock Photo)
+#### 20230913 Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy)
 
 ![](20230913_HemakutaHill_1920x1080.jpg)
 
