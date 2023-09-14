@@ -1,4 +1,4 @@
-#### 20230914 普氏野马，哈斯台国家公园，蒙古国 (© Ondrej Prosicky/Shutterstock)
+#### 20230914 Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)
 
 ![](images/2023-09/20230914_MongoliaHorses_1920x1080.jpg)
 
