@@ -1,3 +1,11 @@
+#### 20230915 格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰 (© Peter Zelei/Getty Images)
+
+![](images/2023-09/20230915_GlenariffForest_1920x1080.jpg)
+
+#### 20230915 グランド・クルドサック・マリン, フランス (© Hemis/Alamy)
+
+![](images/2023-09/20230915_Antilles_1920x1080.jpg)
+
 #### 20230914 Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)
 
 ![](images/2023-09/20230914_MongoliaHorses_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230907 Scenic view at Toronto city waterfront skyline at sunset (© Elena Elisseeva/Shutterstock)
 
 ![](images/2023-09/20230907_TIFFCanada_1920x1080.jpg)
-
-#### 20230907 Der Reichstag unter einem Sternenhimmel, Berlin (© MarioGuti/Getty Images)
-
-![](images/2023-09/20230907_ReichstagBeiNacht_1920x1080.jpg)
-
-#### 20230906 Old Venetian harbor, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)
-
-![](images/2023-09/20230906_CreteHarbor_1920x1080.jpg)
 
 
 
