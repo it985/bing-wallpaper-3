@@ -6,6 +6,10 @@
 
 ![](images/2023-09/20230915_Antilles_1920x1080.jpg)
 
+#### 20230915 Luftaufnahme von Köln (© Romas_Photo/Shutterstock)
+
+![](images/2023-09/20230915_AerialCologne_1920x1080.jpg)
+
 #### 20230914 Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)
 
 ![](images/2023-09/20230914_MongoliaHorses_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230908 The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)
 
 ![](images/2023-09/20230908_BathCircus_1920x1080.jpg)
-
-#### 20230907 Scenic view at Toronto city waterfront skyline at sunset (© Elena Elisseeva/Shutterstock)
-
-![](images/2023-09/20230907_TIFFCanada_1920x1080.jpg)
 
 
 

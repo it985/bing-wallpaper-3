@@ -6,6 +6,10 @@
 
 ![](20230915_Antilles_1920x1080.jpg)
 
+#### 20230915 Luftaufnahme von Köln (© Romas_Photo/Shutterstock)
+
+![](20230915_AerialCologne_1920x1080.jpg)
+
 #### 20230914 Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)
 
 ![](20230914_MongoliaHorses_1920x1080.jpg)
