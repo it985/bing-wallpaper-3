@@ -1,3 +1,7 @@
+#### 20230916 施布吕根山口，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images)
+
+![](images/2023-09/20230916_SplugenPass_1920x1080.jpg)
+
 #### 20230915 Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)
 
 ![](images/2023-09/20230915_MissionRuins_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230909 Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)
 
 ![](images/2023-09/20230909_AyutthayaTemple_1920x1080.jpg)
-
-#### 20230908 Parc Olympique Lyonnais, Groupama Stadium OL Vallée, Lyon (© dpa picture alliance/Alamy Stock Photo)
-
-![](images/2023-09/20230908_RugbyWorldCup_1920x1080.jpg)
 
 
 

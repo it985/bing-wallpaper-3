@@ -1,3 +1,7 @@
+#### 20230916 施布吕根山口，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images)
+
+![](20230916_SplugenPass_1920x1080.jpg)
+
 #### 20230915 Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)
 
 ![](20230915_MissionRuins_1920x1080.jpg)
