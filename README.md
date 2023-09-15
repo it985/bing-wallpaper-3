@@ -1,3 +1,7 @@
+#### 20230915 Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)
+
+![](images/2023-09/20230915_MissionRuins_1920x1080.jpg)
+
 #### 20230915 格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰 (© Peter Zelei/Getty Images)
 
 ![](images/2023-09/20230915_GlenariffForest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230908 Parc Olympique Lyonnais, Groupama Stadium OL Vallée, Lyon (© dpa picture alliance/Alamy Stock Photo)
 
 ![](images/2023-09/20230908_RugbyWorldCup_1920x1080.jpg)
-
-#### 20230908 The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)
-
-![](images/2023-09/20230908_BathCircus_1920x1080.jpg)
 
 
 

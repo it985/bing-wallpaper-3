@@ -1,3 +1,7 @@
+#### 20230915 Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)
+
+![](20230915_MissionRuins_1920x1080.jpg)
+
 #### 20230915 格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰 (© Peter Zelei/Getty Images)
 
 ![](20230915_GlenariffForest_1920x1080.jpg)
