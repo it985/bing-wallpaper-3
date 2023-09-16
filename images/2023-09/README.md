@@ -1,3 +1,7 @@
+#### 20230917 杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴 (© Bruno D'Amicis/Minden Pictures)
+
+![](20230917_CubanTody_1920x1080.jpg)
+
 #### 20230916 施布吕根山口，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images)
 
 ![](20230916_SplugenPass_1920x1080.jpg)
