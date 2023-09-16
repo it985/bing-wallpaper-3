@@ -2,6 +2,14 @@
 
 ![](20230916_SplugenPass_1920x1080.jpg)
 
+#### 20230916 Toile de fond historique dans une tente lors de l'Oktoberfest à Theresienwiese, Munich, Allemagne (© Peter Kneffel/picture alliance via Getty Images)
+
+![](20230916_OktoberfestWorkers_1920x1080.jpg)
+
+#### 20230916 Lederhosen und Tradition, Oktoberfest auf der Theresienwiese in München (© FooTToo/Getty Images)
+
+![](20230916_OktoberfestBrassBand_1920x1080.jpg)
+
 #### 20230915 Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)
 
 ![](20230915_MissionRuins_1920x1080.jpg)

@@ -2,6 +2,14 @@
 
 ![](images/2023-09/20230916_SplugenPass_1920x1080.jpg)
 
+#### 20230916 Toile de fond historique dans une tente lors de l'Oktoberfest à Theresienwiese, Munich, Allemagne (© Peter Kneffel/picture alliance via Getty Images)
+
+![](images/2023-09/20230916_OktoberfestWorkers_1920x1080.jpg)
+
+#### 20230916 Lederhosen und Tradition, Oktoberfest auf der Theresienwiese in München (© FooTToo/Getty Images)
+
+![](images/2023-09/20230916_OktoberfestBrassBand_1920x1080.jpg)
+
 #### 20230915 Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)
 
 ![](images/2023-09/20230915_MissionRuins_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230910 Castelmezzano, Italie (© Rudy Balasko/Shutterstock)
 
 ![](images/2023-09/20230910_CastelmazzanoSunrise_1920x1080.jpg)
-
-#### 20230909 菊の花 (© Maciej Figiel/Alamy Stock Photo)
-
-![](images/2023-09/20230909_DoubleNinth_1920x1080.jpg)
-
-#### 20230909 Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)
-
-![](images/2023-09/20230909_AyutthayaTemple_1920x1080.jpg)
 
 
 
