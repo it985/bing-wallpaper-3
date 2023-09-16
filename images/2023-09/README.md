@@ -2,7 +2,7 @@
 
 ![](20230916_SplugenPass_1920x1080.jpg)
 
-#### 20230916 Toile de fond historique dans une tente lors de l'Oktoberfest à Theresienwiese, Munich, Allemagne (© Peter Kneffel/picture alliance via Getty Images)
+#### 20230916 A beer tent at Oktoberfest in Theresienwiese, Munich, Germany (© Peter Kneffel/picture alliance via Getty Images)
 
 ![](20230916_OktoberfestWorkers_1920x1080.jpg)
 
