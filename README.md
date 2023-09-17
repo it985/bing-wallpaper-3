@@ -1,3 +1,11 @@
+#### 20230918 西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙 (© Daniel Garrido/Getty Images)
+
+![](images/2023-09/20230918_MilkyWayPortugal_1920x1080.jpg)
+
+#### 20230918 コノハズク, 鳥取県 (© Eric Sohn Joo Tan/Minden)
+
+![](images/2023-09/20230918_AgedDay_1920x1080.jpg)
+
 #### 20230917 Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)
 
 ![](images/2023-09/20230917_CubanTody_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230911 French River, Ontario, Canada (© Tim Fitzharris/Minden)
 
 ![](images/2023-09/20230911_FrenchRiver_1920x1080.jpg)
-
-#### 20230911 Brooklyn Bridge with the 'Tribute in Light' installation for 9/11, New York (© ANDREY DENISYUK/Getty Images)
-
-![](images/2023-09/20230911_BridgeMemorial_1920x1080.jpg)
-
-#### 20230910 Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)
-
-![](images/2023-09/20230910_WalrusSvalbard_1920x1080.jpg)
 
 
 

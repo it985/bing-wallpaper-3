@@ -1,3 +1,11 @@
+#### 20230918 西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙 (© Daniel Garrido/Getty Images)
+
+![](20230918_MilkyWayPortugal_1920x1080.jpg)
+
+#### 20230918 コノハズク, 鳥取県 (© Eric Sohn Joo Tan/Minden)
+
+![](20230918_AgedDay_1920x1080.jpg)
+
 #### 20230917 Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)
 
 ![](20230917_CubanTody_1920x1080.jpg)
