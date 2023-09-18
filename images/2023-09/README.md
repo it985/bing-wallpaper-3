@@ -1,4 +1,4 @@
-#### 20230918 西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙 (© Daniel Garrido/Getty Images)
+#### 20230918 Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)
 
 ![](20230918_MilkyWayPortugal_1920x1080.jpg)
 
