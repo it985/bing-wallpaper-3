@@ -1,3 +1,7 @@
+#### 20230919 哈德良长城，诺森伯兰郡国家公园，英国 (© daverhead/Getty Images)
+
+![](20230919_HadriansWallUK_1920x1080.jpg)
+
 #### 20230918 Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)
 
 ![](20230918_MilkyWayPortugal_1920x1080.jpg)

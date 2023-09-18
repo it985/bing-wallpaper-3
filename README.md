@@ -1,3 +1,7 @@
+#### 20230919 哈德良长城，诺森伯兰郡国家公园，英国 (© daverhead/Getty Images)
+
+![](images/2023-09/20230919_HadriansWallUK_1920x1080.jpg)
+
 #### 20230918 Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)
 
 ![](images/2023-09/20230918_MilkyWayPortugal_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230911 波尔多葡萄园的日出，法国 (© Esperanza33/Getty Images)
 
 ![](images/2023-09/20230911_MarathonMedoc_1920x1080.jpg)
-
-#### 20230911 French River, Ontario, Canada (© Tim Fitzharris/Minden)
-
-![](images/2023-09/20230911_FrenchRiver_1920x1080.jpg)
 
 
 
