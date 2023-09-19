@@ -14,7 +14,7 @@
 
 ![](20230917_CubanTody_1920x1080.jpg)
 
-#### 20230916 施布吕根山口，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images)
+#### 20230916 Splügen Pass, Graubünden, Switzerland (© Roberto Moiola/Getty Images)
 
 ![](20230916_SplugenPass_1920x1080.jpg)
 
