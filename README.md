@@ -1,3 +1,7 @@
+#### 20230920 罗马风格的渡槽，阿卡迪亚公园，波兰 (© PATSTOCK/Getty Images)
+
+![](images/2023-09/20230920_ArkadiaPark_1920x1080.jpg)
+
 #### 20230919 哈德良长城，诺森伯兰郡国家公园，英国 (© daverhead/Getty Images)
 
 ![](images/2023-09/20230919_HadriansWallUK_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230912 North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)
 
 ![](images/2023-09/20230912_NorthSeaStairs_1920x1080.jpg)
-
-#### 20230911 波尔多葡萄园的日出，法国 (© Esperanza33/Getty Images)
-
-![](images/2023-09/20230911_MarathonMedoc_1920x1080.jpg)
 
 
 
