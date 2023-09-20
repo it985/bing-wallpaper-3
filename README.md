@@ -1,3 +1,7 @@
+#### 20230921 诺贝尔和平中心内部，奥斯陆，挪威 (© Ilyas Ayub/Alamy)
+
+![](images/2023-09/20230921_NobelNorway_1920x1080.jpg)
+
 #### 20230920 Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)
 
 ![](images/2023-09/20230920_ArkadiaPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230913 Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy)
 
 ![](images/2023-09/20230913_HemakutaHill_1920x1080.jpg)
-
-#### 20230912 North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)
-
-![](images/2023-09/20230912_NorthSeaStairs_1920x1080.jpg)
 
 
 

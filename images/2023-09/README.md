@@ -1,3 +1,7 @@
+#### 20230921 诺贝尔和平中心内部，奥斯陆，挪威 (© Ilyas Ayub/Alamy)
+
+![](20230921_NobelNorway_1920x1080.jpg)
+
 #### 20230920 Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)
 
 ![](20230920_ArkadiaPark_1920x1080.jpg)
