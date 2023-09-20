@@ -1,4 +1,4 @@
-#### 20230920 罗马风格的渡槽，阿卡迪亚公园，波兰 (© PATSTOCK/Getty Images)
+#### 20230920 Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)
 
 ![](20230920_ArkadiaPark_1920x1080.jpg)
 
