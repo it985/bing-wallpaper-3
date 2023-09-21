@@ -1,4 +1,4 @@
-#### 20230921 诺贝尔和平中心内部，奥斯陆，挪威 (© Ilyas Ayub/Alamy)
+#### 20230921 Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)
 
 ![](images/2023-09/20230921_NobelNorway_1920x1080.jpg)
 
