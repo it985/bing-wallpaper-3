@@ -1,4 +1,4 @@
-#### 20230922 シャムワリ動物保護区, 南アフリカ (© David Silverman/Getty Images)
+#### 20230922 Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)
 
 ![](images/2023-09/20230922_ShamwariRhino_1920x1080.jpg)
 
