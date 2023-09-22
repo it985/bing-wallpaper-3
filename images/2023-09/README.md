@@ -1,3 +1,11 @@
+#### 20230923 巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)
+
+![](20230923_Qiufen_1920x1080.jpg)
+
+#### 20230923 郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州 (© Stephen Matera/Tandem Stills + Motion)
+
+![](20230923_CottonwoodCanyon_1920x1080.jpg)
+
 #### 20230922 Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)
 
 ![](20230922_ShamwariRhino_1920x1080.jpg)

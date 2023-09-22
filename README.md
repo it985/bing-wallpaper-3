@@ -1,3 +1,11 @@
+#### 20230923 巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)
+
+![](images/2023-09/20230923_Qiufen_1920x1080.jpg)
+
+#### 20230923 郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州 (© Stephen Matera/Tandem Stills + Motion)
+
+![](images/2023-09/20230923_CottonwoodCanyon_1920x1080.jpg)
+
 #### 20230922 Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)
 
 ![](images/2023-09/20230922_ShamwariRhino_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230915 格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰 (© Peter Zelei/Getty Images)
 
 ![](images/2023-09/20230915_GlenariffForest_1920x1080.jpg)
-
-#### 20230915 グランド・クルドサック・マリン, フランス (© Hemis/Alamy)
-
-![](images/2023-09/20230915_Antilles_1920x1080.jpg)
-
-#### 20230915 Luftaufnahme von Köln (© Romas_Photo/Shutterstock)
-
-![](images/2023-09/20230915_AerialCologne_1920x1080.jpg)
 
 
 
