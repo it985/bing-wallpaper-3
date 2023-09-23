@@ -2,6 +2,10 @@
 
 ![](20230923_Qiufen_1920x1080.jpg)
 
+#### 20230923 The light installation 'Global Rainbow' by artist Yvette Mattern (© David Cooper/Contributor/Getty Images)
+
+![](20230923_NuitBlanche_1920x1080.jpg)
+
 #### 20230923 Parc ostréicole à La Faute-sur-Mer, Pointe d'Arcay France, Vendée (© LEROY Francis/hemis.fr)
 
 ![](20230923_GastronomyDay_1920x1080.jpg)

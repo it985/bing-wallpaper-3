@@ -2,6 +2,10 @@
 
 ![](images/2023-09/20230923_Qiufen_1920x1080.jpg)
 
+#### 20230923 The light installation 'Global Rainbow' by artist Yvette Mattern (© David Cooper/Contributor/Getty Images)
+
+![](images/2023-09/20230923_NuitBlanche_1920x1080.jpg)
+
 #### 20230923 Parc ostréicole à La Faute-sur-Mer, Pointe d'Arcay France, Vendée (© LEROY Francis/hemis.fr)
 
 ![](images/2023-09/20230923_GastronomyDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230916 Lederhosen und Tradition, Oktoberfest auf der Theresienwiese in München (© FooTToo/Getty Images)
 
 ![](images/2023-09/20230916_OktoberfestBrassBand_1920x1080.jpg)
-
-#### 20230915 Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)
-
-![](images/2023-09/20230915_MissionRuins_1920x1080.jpg)
 
 
 
