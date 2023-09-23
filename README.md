@@ -10,7 +10,7 @@
 
 ![](images/2023-09/20230923_GastronomyDay_1920x1080.jpg)
 
-#### 20230923 郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州 (© Stephen Matera/Tandem Stills + Motion)
+#### 20230923 Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)
 
 ![](images/2023-09/20230923_CottonwoodCanyon_1920x1080.jpg)
 
