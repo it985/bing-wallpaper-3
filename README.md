@@ -1,3 +1,7 @@
+#### 20230924 罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大 (© phototropic/Getty Images)
+
+![](images/2023-09/20230924_FraserRiverBC_1920x1080.jpg)
+
 #### 20230923 巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)
 
 ![](images/2023-09/20230923_Qiufen_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230916 A beer tent at Oktoberfest in Theresienwiese, Munich, Germany (© Peter Kneffel/picture alliance via Getty Images)
 
 ![](images/2023-09/20230916_OktoberfestWorkers_1920x1080.jpg)
-
-#### 20230916 Lederhosen und Tradition, Oktoberfest auf der Theresienwiese in München (© FooTToo/Getty Images)
-
-![](images/2023-09/20230916_OktoberfestBrassBand_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20230924 罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大 (© phototropic/Getty Images)
+
+![](20230924_FraserRiverBC_1920x1080.jpg)
+
 #### 20230923 巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)
 
 ![](20230923_Qiufen_1920x1080.jpg)
