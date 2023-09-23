@@ -2,6 +2,10 @@
 
 ![](images/2023-09/20230923_Qiufen_1920x1080.jpg)
 
+#### 20230923 Parc ostréicole à La Faute-sur-Mer, Pointe d'Arcay France, Vendée (© LEROY Francis/hemis.fr)
+
+![](images/2023-09/20230923_GastronomyDay_1920x1080.jpg)
+
 #### 20230923 郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州 (© Stephen Matera/Tandem Stills + Motion)
 
 ![](images/2023-09/20230923_CottonwoodCanyon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230915 Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)
 
 ![](images/2023-09/20230915_MissionRuins_1920x1080.jpg)
-
-#### 20230915 格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰 (© Peter Zelei/Getty Images)
-
-![](images/2023-09/20230915_GlenariffForest_1920x1080.jpg)
 
 
 
