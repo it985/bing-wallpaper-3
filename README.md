@@ -1,6 +1,14 @@
+#### 20230924 Coucher de soleil sur la tour Génoise de la Parata et les Iles Sanguinaires, Ajaccio, Corse (© Jon Ingall/Alamy Stock Photo)
+
+![](images/2023-09/20230924_GenoeseTower_1920x1080.jpg)
+
 #### 20230924 罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大 (© phototropic/Getty Images)
 
 ![](images/2023-09/20230924_FraserRiverBC_1920x1080.jpg)
+
+#### 20230924 Berlin Marathon Skyline mit Sonnenlicht, Berlin (© Matthias Makarinus/Getty Images)
+
+![](images/2023-09/20230924_BerlinMarathon_1920x1080.jpg)
 
 #### 20230923 巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20230917 Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)
 
 ![](images/2023-09/20230917_CubanTody_1920x1080.jpg)
-
-#### 20230916 Splügen Pass, Graubünden, Switzerland (© Roberto Moiola/Getty Images)
-
-![](images/2023-09/20230916_SplugenPass_1920x1080.jpg)
-
-#### 20230916 A beer tent at Oktoberfest in Theresienwiese, Munich, Germany (© Peter Kneffel/picture alliance via Getty Images)
-
-![](images/2023-09/20230916_OktoberfestWorkers_1920x1080.jpg)
 
 
 

@@ -1,6 +1,14 @@
+#### 20230924 Coucher de soleil sur la tour Génoise de la Parata et les Iles Sanguinaires, Ajaccio, Corse (© Jon Ingall/Alamy Stock Photo)
+
+![](20230924_GenoeseTower_1920x1080.jpg)
+
 #### 20230924 罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大 (© phototropic/Getty Images)
 
 ![](20230924_FraserRiverBC_1920x1080.jpg)
+
+#### 20230924 Berlin Marathon Skyline mit Sonnenlicht, Berlin (© Matthias Makarinus/Getty Images)
+
+![](20230924_BerlinMarathon_1920x1080.jpg)
 
 #### 20230923 巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)
 
