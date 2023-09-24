@@ -2,7 +2,7 @@
 
 ![](images/2023-09/20230924_GenoeseTower_1920x1080.jpg)
 
-#### 20230924 罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大 (© phototropic/Getty Images)
+#### 20230924 The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)
 
 ![](images/2023-09/20230924_FraserRiverBC_1920x1080.jpg)
 
