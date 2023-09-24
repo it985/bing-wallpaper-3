@@ -1,3 +1,7 @@
+#### 20230925 巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion)
+
+![](images/2023-09/20230925_GlacierBayOtter_1920x1080.jpg)
+
 #### 20230924 Coucher de soleil sur la tour Génoise de la Parata et les Iles Sanguinaires, Ajaccio, Corse (© Jon Ingall/Alamy Stock Photo)
 
 ![](images/2023-09/20230924_GenoeseTower_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230918 コノハズク, 鳥取県 (© Eric Sohn Joo Tan/Minden)
 
 ![](images/2023-09/20230918_AgedDay_1920x1080.jpg)
-
-#### 20230917 Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)
-
-![](images/2023-09/20230917_CubanTody_1920x1080.jpg)
 
 
 

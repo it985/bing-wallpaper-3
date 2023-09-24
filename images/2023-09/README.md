@@ -1,3 +1,7 @@
+#### 20230925 巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion)
+
+![](20230925_GlacierBayOtter_1920x1080.jpg)
+
 #### 20230924 Coucher de soleil sur la tour Génoise de la Parata et les Iles Sanguinaires, Ajaccio, Corse (© Jon Ingall/Alamy Stock Photo)
 
 ![](20230924_GenoeseTower_1920x1080.jpg)
