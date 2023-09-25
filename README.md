@@ -1,3 +1,7 @@
+#### 20230926 日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州 (© EXTREME-PHOTOGRAPHER/Getty Images)
+
+![](images/2023-09/20230926_VeniceSkatePark_1920x1080.jpg)
+
 #### 20230925 Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)
 
 ![](images/2023-09/20230925_GlacierBayOtter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230918 Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)
 
 ![](images/2023-09/20230918_MilkyWayPortugal_1920x1080.jpg)
-
-#### 20230918 コノハズク, 鳥取県 (© Eric Sohn Joo Tan/Minden)
-
-![](images/2023-09/20230918_AgedDay_1920x1080.jpg)
 
 
 

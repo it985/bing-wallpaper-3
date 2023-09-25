@@ -1,3 +1,7 @@
+#### 20230926 日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州 (© EXTREME-PHOTOGRAPHER/Getty Images)
+
+![](20230926_VeniceSkatePark_1920x1080.jpg)
+
 #### 20230925 Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)
 
 ![](20230925_GlacierBayOtter_1920x1080.jpg)
