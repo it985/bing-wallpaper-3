@@ -1,4 +1,4 @@
-#### 20230925 巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion)
+#### 20230925 Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)
 
 ![](20230925_GlacierBayOtter_1920x1080.jpg)
 
