@@ -1,4 +1,4 @@
-#### 20230926 日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州 (© EXTREME-PHOTOGRAPHER/Getty Images)
+#### 20230926 Venice Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)
 
 ![](images/2023-09/20230926_VeniceSkatePark_1920x1080.jpg)
 
