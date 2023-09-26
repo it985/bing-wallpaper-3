@@ -1,3 +1,7 @@
+#### 20230927 克虏伯路，卡普里岛，意大利 (© Mikolaj Niemczewski/Shutterstock)
+
+![](images/2023-09/20230927_CapriKrupp_1920x1080.jpg)
+
 #### 20230926 Venice Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)
 
 ![](images/2023-09/20230926_VeniceSkatePark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230919 哈德良长城，诺森伯兰郡国家公园，英国 (© daverhead/Getty Images)
 
 ![](images/2023-09/20230919_HadriansWallUK_1920x1080.jpg)
-
-#### 20230918 Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)
-
-![](images/2023-09/20230918_MilkyWayPortugal_1920x1080.jpg)
 
 
 

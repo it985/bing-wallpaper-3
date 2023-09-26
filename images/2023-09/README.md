@@ -1,3 +1,7 @@
+#### 20230927 克虏伯路，卡普里岛，意大利 (© Mikolaj Niemczewski/Shutterstock)
+
+![](20230927_CapriKrupp_1920x1080.jpg)
+
 #### 20230926 Venice Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)
 
 ![](20230926_VeniceSkatePark_1920x1080.jpg)
