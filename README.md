@@ -1,3 +1,7 @@
+#### 20230928 泰国商业港口附近的集装箱船 (© Suriyapong Thongsawang/Getty Images)
+
+![](images/2023-09/20230928_MaritimeDay_1920x1080.jpg)
+
 #### 20230928 French River, Ontario, Canada (© Tim Fitzharris/Minden)
 
 ![](images/2023-09/20230928_FrenchRiver_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230921 Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)
 
 ![](images/2023-09/20230921_NobelNorway_1920x1080.jpg)
-
-#### 20230920 Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)
-
-![](images/2023-09/20230920_ArkadiaPark_1920x1080.jpg)
 
 
 

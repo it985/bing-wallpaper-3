@@ -1,3 +1,7 @@
+#### 20230928 泰国商业港口附近的集装箱船 (© Suriyapong Thongsawang/Getty Images)
+
+![](20230928_MaritimeDay_1920x1080.jpg)
+
 #### 20230928 French River, Ontario, Canada (© Tim Fitzharris/Minden)
 
 ![](20230928_FrenchRiver_1920x1080.jpg)
