@@ -1,4 +1,8 @@
-#### 20230927 克虏伯路，卡普里岛，意大利 (© Mikolaj Niemczewski/Shutterstock)
+#### 20230928 French River, Ontario, Canada (© Tim Fitzharris/Minden)
+
+![](20230928_FrenchRiver_1920x1080.jpg)
+
+#### 20230927 The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)
 
 ![](20230927_CapriKrupp_1920x1080.jpg)
 
