@@ -1,4 +1,4 @@
-#### 20230928 泰国商业港口附近的集装箱船 (© Suriyapong Thongsawang/Getty Images)
+#### 20230928 Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)
 
 ![](images/2023-09/20230928_MaritimeDay_1920x1080.jpg)
 
