@@ -1,3 +1,11 @@
+#### 20230929 横浜ベイブリッジと満月, 神奈川県 横浜市 (© kanzilyou/Getty Images)
+
+![](images/2023-09/20230929_HarvestMoon_1920x1080.jpg)
+
+#### 20230929 满月下的甲秀楼，中国贵州省贵阳市 (© Wang Yukun/Getty Images)
+
+![](images/2023-09/20230929_GuiyangMoon_1920x1080.jpg)
+
 #### 20230928 Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)
 
 ![](images/2023-09/20230928_MaritimeDay_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230922 Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)
 
 ![](images/2023-09/20230922_ShamwariRhino_1920x1080.jpg)
-
-#### 20230922 马尔萨拉盐田，意大利 (© javarman3/Getty Images)
-
-![](images/2023-09/20230922_MarsalaSalt_1920x1080.jpg)
-
-#### 20230921 Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)
-
-![](images/2023-09/20230921_NobelNorway_1920x1080.jpg)
 
 
 

@@ -1,3 +1,11 @@
+#### 20230929 横浜ベイブリッジと満月, 神奈川県 横浜市 (© kanzilyou/Getty Images)
+
+![](20230929_HarvestMoon_1920x1080.jpg)
+
+#### 20230929 满月下的甲秀楼，中国贵州省贵阳市 (© Wang Yukun/Getty Images)
+
+![](20230929_GuiyangMoon_1920x1080.jpg)
+
 #### 20230928 Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)
 
 ![](20230928_MaritimeDay_1920x1080.jpg)
