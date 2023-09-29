@@ -1,3 +1,7 @@
+#### 20230930 仙纳度国家公园的秋色，弗吉尼亚州 (© Michael Ver Sprill/Getty Images)
+
+![](20230930_ShenandoahFoliage_1920x1080.jpg)
+
 #### 20230929 横浜ベイブリッジと満月, 神奈川県 横浜市 (© kanzilyou/Getty Images)
 
 ![](20230929_HarvestMoon_1920x1080.jpg)

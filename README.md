@@ -1,3 +1,7 @@
+#### 20230930 仙纳度国家公园的秋色，弗吉尼亚州 (© Michael Ver Sprill/Getty Images)
+
+![](images/2023-09/20230930_ShenandoahFoliage_1920x1080.jpg)
+
 #### 20230929 横浜ベイブリッジと満月, 神奈川県 横浜市 (© kanzilyou/Getty Images)
 
 ![](images/2023-09/20230929_HarvestMoon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230923 Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)
 
 ![](images/2023-09/20230923_CottonwoodCanyon_1920x1080.jpg)
-
-#### 20230922 Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)
-
-![](images/2023-09/20230922_ShamwariRhino_1920x1080.jpg)
 
 
 
