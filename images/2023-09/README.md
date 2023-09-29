@@ -2,7 +2,7 @@
 
 ![](20230929_HarvestMoon_1920x1080.jpg)
 
-#### 20230929 满月下的甲秀楼，中国贵州省贵阳市 (© Wang Yukun/Getty Images)
+#### 20230929 Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)
 
 ![](20230929_GuiyangMoon_1920x1080.jpg)
 
