@@ -1,3 +1,11 @@
+#### 20231001 雄伟壮丽的中国长城 (© Jeff_Hu/Getty Images)
+
+![](images/2023-10/20231001_NationalDay_1920x1080.jpg)
+
+#### 20231001 ブレッド湖, スロベニア (© Rasica/Getty Images)
+
+![](images/2023-10/20231001_LakeBledSunrise_1920x1080.jpg)
+
 #### 20230930 Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
 
 ![](images/2023-09/20230930_ShenandoahFoliage_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2023-09/20230923_NuitBlanche_1920x1080.jpg)
 
-#### 20230923 Parc ostréicole à La Faute-sur-Mer, Pointe d'Arcay France, Vendée (© LEROY Francis/hemis.fr)
-
-![](images/2023-09/20230923_GastronomyDay_1920x1080.jpg)
-
-#### 20230923 Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)
-
-![](images/2023-09/20230923_CottonwoodCanyon_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2023&emsp;&emsp;[09](images/2023-09/README.md) &emsp;&emsp;[08](images/2023-08/README.md) &emsp;&emsp;[07](images/2023-07/README.md) &emsp;&emsp;[06](images/2023-06/README.md) &emsp;&emsp;[05](images/2023-05/README.md) &emsp;&emsp;[04](images/2023-04/README.md) &emsp;&emsp;[03](images/2023-03/README.md) &emsp;&emsp;[02](images/2023-02/README.md) &emsp;&emsp;[01](images/2023-01/README.md) 
+- 2023&emsp;&emsp;[10](images/2023-10/README.md) &emsp;&emsp;[09](images/2023-09/README.md) &emsp;&emsp;[08](images/2023-08/README.md) &emsp;&emsp;[07](images/2023-07/README.md) &emsp;&emsp;[06](images/2023-06/README.md) &emsp;&emsp;[05](images/2023-05/README.md) &emsp;&emsp;[04](images/2023-04/README.md) &emsp;&emsp;[03](images/2023-03/README.md) &emsp;&emsp;[02](images/2023-02/README.md) &emsp;&emsp;[01](images/2023-01/README.md) 
 
 - 2022&emsp;&emsp;[11](images/2022-11/README.md) &emsp;&emsp;[10](images/2022-10/README.md) &emsp;&emsp;[09](images/2022-09/README.md) &emsp;&emsp;[08](images/2022-08/README.md) &emsp;&emsp;[07](images/2022-07/README.md) &emsp;&emsp;[06](images/2022-06/README.md) &emsp;&emsp;[05](images/2022-05/README.md) &emsp;&emsp;[04](images/2022-04/README.md) &emsp;&emsp;[03](images/2022-03/README.md) &emsp;&emsp;[02](images/2022-02/README.md) &emsp;&emsp;[01](images/2022-01/README.md) 
 
