@@ -1,3 +1,11 @@
+#### 20231002 フォンダシオン・ルイ・ヴィトン, フランス パリ (© Atlantide Phototravel/Getty Images)
+
+![](20231002_VuittonFoundation_1920x1080.jpg)
+
+#### 20231002 韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国 (© luisapuccini/Getty Images)
+
+![](20231002_VerdonCanyon_1920x1080.jpg)
+
 #### 20231001 雄伟壮丽的中国长城 (© Jeff_Hu/Getty Images)
 
 ![](20231001_NationalDay_1920x1080.jpg)

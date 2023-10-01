@@ -1,3 +1,11 @@
+#### 20231002 フォンダシオン・ルイ・ヴィトン, フランス パリ (© Atlantide Phototravel/Getty Images)
+
+![](images/2023-10/20231002_VuittonFoundation_1920x1080.jpg)
+
+#### 20231002 韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国 (© luisapuccini/Getty Images)
+
+![](images/2023-10/20231002_VerdonCanyon_1920x1080.jpg)
+
 #### 20231001 雄伟壮丽的中国长城 (© Jeff_Hu/Getty Images)
 
 ![](images/2023-10/20231001_NationalDay_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230924 The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)
 
 ![](images/2023-09/20230924_FraserRiverBC_1920x1080.jpg)
-
-#### 20230924 Berlin Marathon Skyline mit Sonnenlicht, Berlin (© Matthias Makarinus/Getty Images)
-
-![](images/2023-09/20230924_BerlinMarathon_1920x1080.jpg)
-
-#### 20230923 巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)
-
-![](images/2023-09/20230923_Qiufen_1920x1080.jpg)
 
 
 
