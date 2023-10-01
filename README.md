@@ -6,6 +6,10 @@
 
 ![](images/2023-10/20231001_LakeBledSunrise_1920x1080.jpg)
 
+#### 20231001 Mount Assiniboine Provincial Park, Canada (© matt macpherson/500px/Getty Images)
+
+![](images/2023-10/20231001_AssiniboineProvincialPark_1920x1080.jpg)
+
 #### 20230930 Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
 
 ![](images/2023-09/20230930_ShenandoahFoliage_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230923 巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)
 
 ![](images/2023-09/20230923_Qiufen_1920x1080.jpg)
-
-#### 20230923 The light installation 'Global Rainbow' by artist Yvette Mattern (© David Cooper/Contributor/Getty Images)
-
-![](images/2023-09/20230923_NuitBlanche_1920x1080.jpg)
 
 
 
