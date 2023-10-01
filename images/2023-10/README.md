@@ -2,7 +2,7 @@
 
 ![](20231001_NationalDay_1920x1080.jpg)
 
-#### 20231001 ブレッド湖, スロベニア (© Rasica/Getty Images)
+#### 20231001 Lake Bled at sunrise, Slovenia (© Rasica/Getty Images)
 
 ![](20231001_LakeBledSunrise_1920x1080.jpg)
 
