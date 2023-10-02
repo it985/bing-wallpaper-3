@@ -1,4 +1,4 @@
-#### 20231002 フォンダシオン・ルイ・ヴィトン, フランス パリ (© Atlantide Phototravel/Getty Images)
+#### 20231002 Louis Vuitton Foundation in the Bois de Boulogne, Paris, France (© Atlantide Phototravel/Getty Images)
 
 ![](images/2023-10/20231002_VuittonFoundation_1920x1080.jpg)
 
