@@ -1,3 +1,7 @@
+#### 20231003 白天堂海滩，圣灵群岛，昆士兰州，澳大利亚 (© Coral Brunner/Shutterstock)
+
+![](images/2023-10/20231003_WhitsundaySwirl_1920x1080.jpg)
+
 #### 20231002 Louis Vuitton Foundation in the Bois de Boulogne, Paris, France (© Atlantide Phototravel/Getty Images)
 
 ![](images/2023-10/20231002_VuittonFoundation_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230924 Coucher de soleil sur la tour Génoise de la Parata et les Iles Sanguinaires, Ajaccio, Corse (© Jon Ingall/Alamy Stock Photo)
 
 ![](images/2023-09/20230924_GenoeseTower_1920x1080.jpg)
-
-#### 20230924 The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)
-
-![](images/2023-09/20230924_FraserRiverBC_1920x1080.jpg)
 
 
 
