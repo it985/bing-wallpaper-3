@@ -2,6 +2,10 @@
 
 ![](20231003_WhitsundaySwirl_1920x1080.jpg)
 
+#### 20231003 Berliner Mauer (© frankpeters/Getty Images)
+
+![](20231003_GermanFlagWall_1920x1080.jpg)
+
 #### 20231002 Louis Vuitton Foundation in the Bois de Boulogne, Paris, France (© Atlantide Phototravel/Getty Images)
 
 ![](20231002_VuittonFoundation_1920x1080.jpg)

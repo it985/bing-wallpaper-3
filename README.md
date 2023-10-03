@@ -2,6 +2,10 @@
 
 ![](images/2023-10/20231003_WhitsundaySwirl_1920x1080.jpg)
 
+#### 20231003 Berliner Mauer (© frankpeters/Getty Images)
+
+![](images/2023-10/20231003_GermanFlagWall_1920x1080.jpg)
+
 #### 20231002 Louis Vuitton Foundation in the Bois de Boulogne, Paris, France (© Atlantide Phototravel/Getty Images)
 
 ![](images/2023-10/20231002_VuittonFoundation_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230925 Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)
 
 ![](images/2023-09/20230925_GlacierBayOtter_1920x1080.jpg)
-
-#### 20230924 Coucher de soleil sur la tour Génoise de la Parata et les Iles Sanguinaires, Ajaccio, Corse (© Jon Ingall/Alamy Stock Photo)
-
-![](images/2023-09/20230924_GenoeseTower_1920x1080.jpg)
 
 
 
