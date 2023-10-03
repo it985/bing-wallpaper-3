@@ -1,3 +1,7 @@
+#### 20231004 狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜 (© NASA, ESA, CSA, STScI, Webb ERO Production Team)
+
+![](images/2023-10/20231004_TarantulaNebula_1920x1080.jpg)
+
 #### 20231003 Whitehaven Beach, Whitsunday Island, Queensland, Australia (© Coral Brunner/Shutterstock)
 
 ![](images/2023-10/20231003_WhitsundaySwirl_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230926 Venice Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)
 
 ![](images/2023-09/20230926_VeniceSkatePark_1920x1080.jpg)
-
-#### 20230925 Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)
-
-![](images/2023-09/20230925_GlacierBayOtter_1920x1080.jpg)
 
 
 

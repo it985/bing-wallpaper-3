@@ -1,3 +1,7 @@
+#### 20231004 狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜 (© NASA, ESA, CSA, STScI, Webb ERO Production Team)
+
+![](20231004_TarantulaNebula_1920x1080.jpg)
+
 #### 20231003 Whitehaven Beach, Whitsunday Island, Queensland, Australia (© Coral Brunner/Shutterstock)
 
 ![](20231003_WhitsundaySwirl_1920x1080.jpg)
