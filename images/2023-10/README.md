@@ -1,3 +1,7 @@
+#### 20231005 巴布亚企鹅，南极洲 (© Art Wolfe/Getty Images)
+
+![](20231005_GentooJump_1920x1080.jpg)
+
 #### 20231004 Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)
 
 ![](20231004_TarantulaNebula_1920x1080.jpg)

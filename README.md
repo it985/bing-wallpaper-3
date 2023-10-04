@@ -1,3 +1,7 @@
+#### 20231005 巴布亚企鹅，南极洲 (© Art Wolfe/Getty Images)
+
+![](images/2023-10/20231005_GentooJump_1920x1080.jpg)
+
 #### 20231004 Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)
 
 ![](images/2023-10/20231004_TarantulaNebula_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230927 The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)
 
 ![](images/2023-09/20230927_CapriKrupp_1920x1080.jpg)
-
-#### 20230926 Venice Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)
-
-![](images/2023-09/20230926_VeniceSkatePark_1920x1080.jpg)
 
 
 
