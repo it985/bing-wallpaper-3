@@ -1,3 +1,7 @@
+#### 20231006 杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国 (© Paul Massie Photography/Getty Images)
+
+![](images/2023-10/20231006_TaughannockFalls_1920x1080.jpg)
+
 #### 20231005 Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)
 
 ![](images/2023-10/20231005_GentooJump_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230928 French River, Ontario, Canada (© Tim Fitzharris/Minden)
 
 ![](images/2023-09/20230928_FrenchRiver_1920x1080.jpg)
-
-#### 20230927 The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)
-
-![](images/2023-09/20230927_CapriKrupp_1920x1080.jpg)
 
 
 
