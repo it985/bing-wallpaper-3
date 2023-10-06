@@ -2,6 +2,10 @@
 
 ![](20231006_TaughannockFalls_1920x1080.jpg)
 
+#### 20231006 Berliner Dom in Herz-Illumination, Tag der Lichter, Berlin (© fhm/Getty Images)
+
+![](20231006_CathedralHeartLight_1920x1080.jpg)
+
 #### 20231005 Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)
 
 ![](20231005_GentooJump_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](images/2023-10/20231006_TaughannockFalls_1920x1080.jpg)
 
+#### 20231006 Berliner Dom in Herz-Illumination, Tag der Lichter, Berlin (© fhm/Getty Images)
+
+![](images/2023-10/20231006_CathedralHeartLight_1920x1080.jpg)
+
 #### 20231005 Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)
 
 ![](images/2023-10/20231005_GentooJump_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230928 Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)
 
 ![](images/2023-09/20230928_MaritimeDay_1920x1080.jpg)
-
-#### 20230928 French River, Ontario, Canada (© Tim Fitzharris/Minden)
-
-![](images/2023-09/20230928_FrenchRiver_1920x1080.jpg)
 
 
 
