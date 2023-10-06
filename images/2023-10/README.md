@@ -1,3 +1,7 @@
+#### 20231007 灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国 (© oksana.perkins/Shutterstock)
+
+![](20231007_GrizzlyFalls_1920x1080.jpg)
+
 #### 20231006 Taughannock Falls State Park in Trumansburg, New York (© Paul Massie Photography/Getty Images)
 
 ![](20231006_TaughannockFalls_1920x1080.jpg)

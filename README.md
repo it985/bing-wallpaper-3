@@ -1,3 +1,7 @@
+#### 20231007 灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国 (© oksana.perkins/Shutterstock)
+
+![](images/2023-10/20231007_GrizzlyFalls_1920x1080.jpg)
+
 #### 20231006 Taughannock Falls State Park in Trumansburg, New York (© Paul Massie Photography/Getty Images)
 
 ![](images/2023-10/20231006_TaughannockFalls_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20230929 Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)
 
 ![](images/2023-09/20230929_GuiyangMoon_1920x1080.jpg)
-
-#### 20230928 Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)
-
-![](images/2023-09/20230928_MaritimeDay_1920x1080.jpg)
 
 
 
