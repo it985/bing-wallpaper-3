@@ -1,4 +1,4 @@
-#### 20231007 灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国 (© oksana.perkins/Shutterstock)
+#### 20231007 Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)
 
 ![](20231007_GrizzlyFalls_1920x1080.jpg)
 
