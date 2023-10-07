@@ -1,3 +1,11 @@
+#### 20231008 巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚 (© Alex Mustard/Minden Pictures)
+
+![](images/2023-10/20231008_OctoClam_1920x1080.jpg)
+
+#### 20231008 志賀高原の澗満滝, 長野県 (© Twenty47studio/Getty Images)
+
+![](images/2023-10/20231008_Hanlu_1920x1080.jpg)
+
 #### 20231007 Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)
 
 ![](images/2023-10/20231007_GrizzlyFalls_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20230930 Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
 
 ![](images/2023-09/20230930_ShenandoahFoliage_1920x1080.jpg)
-
-#### 20230929 横浜ベイブリッジと満月, 神奈川県 横浜市 (© kanzilyou/Getty Images)
-
-![](images/2023-09/20230929_HarvestMoon_1920x1080.jpg)
-
-#### 20230929 Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)
-
-![](images/2023-09/20230929_GuiyangMoon_1920x1080.jpg)
 
 
 

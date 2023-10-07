@@ -1,3 +1,11 @@
+#### 20231008 巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚 (© Alex Mustard/Minden Pictures)
+
+![](20231008_OctoClam_1920x1080.jpg)
+
+#### 20231008 志賀高原の澗満滝, 長野県 (© Twenty47studio/Getty Images)
+
+![](20231008_Hanlu_1920x1080.jpg)
+
 #### 20231007 Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)
 
 ![](20231007_GrizzlyFalls_1920x1080.jpg)
