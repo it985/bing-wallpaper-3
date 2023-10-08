@@ -1,3 +1,7 @@
+#### 20231009 弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国 (© Dan Leeth/Alamy)
+
+![](images/2023-10/20231009_FremontPetroglyph_1920x1080.jpg)
+
 #### 20231008 Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)
 
 ![](images/2023-10/20231008_OctoClam_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231001 Mount Assiniboine Provincial Park, Canada (© matt macpherson/500px/Getty Images)
 
 ![](images/2023-10/20231001_AssiniboineProvincialPark_1920x1080.jpg)
-
-#### 20230930 Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
-
-![](images/2023-09/20230930_ShenandoahFoliage_1920x1080.jpg)
 
 
 
