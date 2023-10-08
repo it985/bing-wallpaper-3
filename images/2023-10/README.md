@@ -1,4 +1,4 @@
-#### 20231008 巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚 (© Alex Mustard/Minden Pictures)
+#### 20231008 Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)
 
 ![](20231008_OctoClam_1920x1080.jpg)
 
