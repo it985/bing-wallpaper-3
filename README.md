@@ -2,7 +2,7 @@
 
 ![](images/2023-10/20231009_ThanksgivingDay_1920x1080.jpg)
 
-#### 20231009 弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国 (© Dan Leeth/Alamy)
+#### 20231009 Fremont Indian petroglyphs, Dinosaur National Monument, Jensen, Utah (© Dan Leeth/Alamy)
 
 ![](images/2023-10/20231009_FremontPetroglyph_1920x1080.jpg)
 
