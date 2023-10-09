@@ -1,3 +1,7 @@
+#### 20231010 索普里斯山，科罗拉多州，美国 (© Jason Hatfield/Tandem Stills + Motion)
+
+![](20231010_SoprisSunrise_1920x1080.jpg)
+
 #### 20231009 A bowl full of cranberries, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)
 
 ![](20231009_ThanksgivingDay_1920x1080.jpg)

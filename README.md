@@ -1,3 +1,7 @@
+#### 20231010 索普里斯山，科罗拉多州，美国 (© Jason Hatfield/Tandem Stills + Motion)
+
+![](images/2023-10/20231010_SoprisSunrise_1920x1080.jpg)
+
 #### 20231009 A bowl full of cranberries, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)
 
 ![](images/2023-10/20231009_ThanksgivingDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231001 雄伟壮丽的中国长城 (© Jeff_Hu/Getty Images)
 
 ![](images/2023-10/20231001_NationalDay_1920x1080.jpg)
-
-#### 20231001 Lake Bled at sunrise, Slovenia (© Rasica/Getty Images)
-
-![](images/2023-10/20231001_LakeBledSunrise_1920x1080.jpg)
 
 
 
