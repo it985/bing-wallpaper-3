@@ -1,3 +1,7 @@
+#### 20231009 A bowl full of cranberries, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)
+
+![](images/2023-10/20231009_ThanksgivingDay_1920x1080.jpg)
+
 #### 20231009 弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国 (© Dan Leeth/Alamy)
 
 ![](images/2023-10/20231009_FremontPetroglyph_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231001 Lake Bled at sunrise, Slovenia (© Rasica/Getty Images)
 
 ![](images/2023-10/20231001_LakeBledSunrise_1920x1080.jpg)
-
-#### 20231001 Mount Assiniboine Provincial Park, Canada (© matt macpherson/500px/Getty Images)
-
-![](images/2023-10/20231001_AssiniboineProvincialPark_1920x1080.jpg)
 
 
 

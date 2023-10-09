@@ -1,3 +1,7 @@
+#### 20231009 A bowl full of cranberries, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)
+
+![](20231009_ThanksgivingDay_1920x1080.jpg)
+
 #### 20231009 弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国 (© Dan Leeth/Alamy)
 
 ![](20231009_FremontPetroglyph_1920x1080.jpg)
