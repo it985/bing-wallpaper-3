@@ -1,3 +1,7 @@
+#### 20231011 约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国 (© Ben Herndon/Tandem Stills + Motion)
+
+![](20231011_JohnDayFossil_1920x1080.jpg)
+
 #### 20231010 Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)
 
 ![](20231010_SoprisSunrise_1920x1080.jpg)

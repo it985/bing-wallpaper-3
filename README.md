@@ -1,3 +1,7 @@
+#### 20231011 约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国 (© Ben Herndon/Tandem Stills + Motion)
+
+![](images/2023-10/20231011_JohnDayFossil_1920x1080.jpg)
+
 #### 20231010 Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)
 
 ![](images/2023-10/20231010_SoprisSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231002 Louis Vuitton Foundation in the Bois de Boulogne, Paris, France (© Atlantide Phototravel/Getty Images)
 
 ![](images/2023-10/20231002_VuittonFoundation_1920x1080.jpg)
-
-#### 20231002 韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国 (© luisapuccini/Getty Images)
-
-![](images/2023-10/20231002_VerdonCanyon_1920x1080.jpg)
 
 
 
