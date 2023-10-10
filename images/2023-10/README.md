@@ -1,4 +1,4 @@
-#### 20231010 索普里斯山，科罗拉多州，美国 (© Jason Hatfield/Tandem Stills + Motion)
+#### 20231010 Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)
 
 ![](20231010_SoprisSunrise_1920x1080.jpg)
 
