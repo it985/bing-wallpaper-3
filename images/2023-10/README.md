@@ -2,6 +2,10 @@
 
 ![](20231010_SoprisSunrise_1920x1080.jpg)
 
+#### 20231010 Basilique du Sacré Cœur de Montmartre (© Tuul & Bruno Morandi)
+
+![](20231010_MontmartreHarvest_1920x1080.jpg)
+
 #### 20231009 A bowl full of cranberries, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)
 
 ![](20231009_ThanksgivingDay_1920x1080.jpg)

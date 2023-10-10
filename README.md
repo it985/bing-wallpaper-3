@@ -2,6 +2,10 @@
 
 ![](images/2023-10/20231010_SoprisSunrise_1920x1080.jpg)
 
+#### 20231010 Basilique du Sacré Cœur de Montmartre (© Tuul & Bruno Morandi)
+
+![](images/2023-10/20231010_MontmartreHarvest_1920x1080.jpg)
+
 #### 20231009 A bowl full of cranberries, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)
 
 ![](images/2023-10/20231009_ThanksgivingDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231002 韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国 (© luisapuccini/Getty Images)
 
 ![](images/2023-10/20231002_VerdonCanyon_1920x1080.jpg)
-
-#### 20231001 雄伟壮丽的中国长城 (© Jeff_Hu/Getty Images)
-
-![](images/2023-10/20231001_NationalDay_1920x1080.jpg)
 
 
 
