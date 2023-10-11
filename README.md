@@ -1,3 +1,11 @@
+#### 20231012 帕卢斯地区的老谷仓和油菜田，爱达荷州，美国 (© Terry Eggers/Getty Images)
+
+![](images/2023-10/20231012_IdahoBarn_1920x1080.jpg)
+
+#### 20231012 ナミハリネズミ, イギリス サセックス (© Jules Cox/Minden Pictures)
+
+![](images/2023-10/20231012_AutumnHedgehog_1920x1080.jpg)
+
 #### 20231011 The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)
 
 ![](images/2023-10/20231011_JohnDayFossil_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231003 Whitehaven Beach, Whitsunday Island, Queensland, Australia (© Coral Brunner/Shutterstock)
 
 ![](images/2023-10/20231003_WhitsundaySwirl_1920x1080.jpg)
-
-#### 20231003 Berliner Mauer (© frankpeters/Getty Images)
-
-![](images/2023-10/20231003_GermanFlagWall_1920x1080.jpg)
-
-#### 20231002 Louis Vuitton Foundation in the Bois de Boulogne, Paris, France (© Atlantide Phototravel/Getty Images)
-
-![](images/2023-10/20231002_VuittonFoundation_1920x1080.jpg)
 
 
 
