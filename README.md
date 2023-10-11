@@ -1,4 +1,4 @@
-#### 20231011 约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国 (© Ben Herndon/Tandem Stills + Motion)
+#### 20231011 The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)
 
 ![](images/2023-10/20231011_JohnDayFossil_1920x1080.jpg)
 
