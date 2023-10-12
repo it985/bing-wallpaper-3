@@ -1,3 +1,7 @@
+#### 20231012 Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)
+
+![](20231012_NeuschwansteinCastle_1920x1080.jpg)
+
 #### 20231012 帕卢斯地区的老谷仓和油菜田，爱达荷州，美国 (© Terry Eggers/Getty Images)
 
 ![](20231012_IdahoBarn_1920x1080.jpg)

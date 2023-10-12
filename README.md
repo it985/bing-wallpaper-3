@@ -1,3 +1,7 @@
+#### 20231012 Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)
+
+![](images/2023-10/20231012_NeuschwansteinCastle_1920x1080.jpg)
+
 #### 20231012 帕卢斯地区的老谷仓和油菜田，爱达荷州，美国 (© Terry Eggers/Getty Images)
 
 ![](images/2023-10/20231012_IdahoBarn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231004 Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)
 
 ![](images/2023-10/20231004_TarantulaNebula_1920x1080.jpg)
-
-#### 20231003 Whitehaven Beach, Whitsunday Island, Queensland, Australia (© Coral Brunner/Shutterstock)
-
-![](images/2023-10/20231003_WhitsundaySwirl_1920x1080.jpg)
 
 
 
