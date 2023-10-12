@@ -1,3 +1,7 @@
+#### 20231013 加尔加诺半岛上的维埃斯特，阿普利亚，意大利 (© Pilat666/Getty Images)
+
+![](images/2023-10/20231013_ViesteItaly_1920x1080.jpg)
+
 #### 20231012 Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)
 
 ![](images/2023-10/20231012_NeuschwansteinCastle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231005 Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)
 
 ![](images/2023-10/20231005_GentooJump_1920x1080.jpg)
-
-#### 20231004 Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)
-
-![](images/2023-10/20231004_TarantulaNebula_1920x1080.jpg)
 
 
 

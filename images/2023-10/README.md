@@ -1,3 +1,7 @@
+#### 20231013 加尔加诺半岛上的维埃斯特，阿普利亚，意大利 (© Pilat666/Getty Images)
+
+![](20231013_ViesteItaly_1920x1080.jpg)
+
 #### 20231012 Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)
 
 ![](20231012_NeuschwansteinCastle_1920x1080.jpg)
