@@ -2,7 +2,7 @@
 
 ![](images/2023-10/20231012_NeuschwansteinCastle_1920x1080.jpg)
 
-#### 20231012 帕卢斯地区的老谷仓和油菜田，爱达荷州，美国 (© Terry Eggers/Getty Images)
+#### 20231012 Old barn and canola field, Palouse region, Idaho (© Terry Eggers/Getty Images)
 
 ![](images/2023-10/20231012_IdahoBarn_1920x1080.jpg)
 
