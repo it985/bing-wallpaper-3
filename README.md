@@ -2,11 +2,15 @@
 
 ![](images/2023-10/20231013_ViesteItaly_1920x1080.jpg)
 
+#### 20231013 Château du Haut-Koenigsbourg au lever du soleil, à Orschwiller, Alsace, Grand Est (© PATRICK HERTZOG/AFP via Getty Images)
+
+![](images/2023-10/20231013_KoenigsbourgCastle_1920x1080.jpg)
+
 #### 20231012 Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)
 
 ![](images/2023-10/20231012_NeuschwansteinCastle_1920x1080.jpg)
 
-#### 20231012 Old barn and canola field, Palouse region, Idaho (© Terry Eggers/Getty Images)
+#### 20231012 Old barn and canola field, Palouse region, Washington (© Terry Eggers/Getty Images)
 
 ![](images/2023-10/20231012_IdahoBarn_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20231006 Berliner Dom in Herz-Illumination, Tag der Lichter, Berlin (© fhm/Getty Images)
 
 ![](images/2023-10/20231006_CathedralHeartLight_1920x1080.jpg)
-
-#### 20231005 Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)
-
-![](images/2023-10/20231005_GentooJump_1920x1080.jpg)
 
 
 

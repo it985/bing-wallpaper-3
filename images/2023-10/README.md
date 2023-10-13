@@ -2,11 +2,15 @@
 
 ![](20231013_ViesteItaly_1920x1080.jpg)
 
+#### 20231013 Château du Haut-Koenigsbourg au lever du soleil, à Orschwiller, Alsace, Grand Est (© PATRICK HERTZOG/AFP via Getty Images)
+
+![](20231013_KoenigsbourgCastle_1920x1080.jpg)
+
 #### 20231012 Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)
 
 ![](20231012_NeuschwansteinCastle_1920x1080.jpg)
 
-#### 20231012 Old barn and canola field, Palouse region, Idaho (© Terry Eggers/Getty Images)
+#### 20231012 Old barn and canola field, Palouse region, Washington (© Terry Eggers/Getty Images)
 
 ![](20231012_IdahoBarn_1920x1080.jpg)
 
