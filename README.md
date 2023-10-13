@@ -1,4 +1,4 @@
-#### 20231013 加尔加诺半岛上的维埃斯特，阿普利亚，意大利 (© Pilat666/Getty Images)
+#### 20231013 Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)
 
 ![](images/2023-10/20231013_ViesteItaly_1920x1080.jpg)
 
