@@ -6,6 +6,10 @@
 
 ![](20231013_KoenigsbourgCastle_1920x1080.jpg)
 
+#### 20231013 Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
+
+![](20231013_JasperDarkSky_1920x1080.jpg)
+
 #### 20231012 Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)
 
 ![](20231012_NeuschwansteinCastle_1920x1080.jpg)

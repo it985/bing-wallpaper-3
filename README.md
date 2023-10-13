@@ -6,6 +6,10 @@
 
 ![](images/2023-10/20231013_KoenigsbourgCastle_1920x1080.jpg)
 
+#### 20231013 Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
+
+![](images/2023-10/20231013_JasperDarkSky_1920x1080.jpg)
+
 #### 20231012 Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)
 
 ![](images/2023-10/20231012_NeuschwansteinCastle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231006 Taughannock Falls State Park in Trumansburg, New York (© Paul Massie Photography/Getty Images)
 
 ![](images/2023-10/20231006_TaughannockFalls_1920x1080.jpg)
-
-#### 20231006 Berliner Dom in Herz-Illumination, Tag der Lichter, Berlin (© fhm/Getty Images)
-
-![](images/2023-10/20231006_CathedralHeartLight_1920x1080.jpg)
 
 
 
