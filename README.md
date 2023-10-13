@@ -1,3 +1,11 @@
+#### 20231014 "火环”日环食，多哈，卡特尔 (© Sorin Furcoi/Getty Images)
+
+![](images/2023-10/20231014_RingEclipse_1920x1080.jpg)
+
+#### 20231014 第三只見川橋梁を渡る列車, 福島県 大沼郡 三島町 (© DoctorEgg/Getty Images)
+
+![](images/2023-10/20231014_RailwayDay_1920x1080.jpg)
+
 #### 20231013 Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)
 
 ![](images/2023-10/20231013_ViesteItaly_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231008 志賀高原の澗満滝, 長野県 (© Twenty47studio/Getty Images)
 
 ![](images/2023-10/20231008_Hanlu_1920x1080.jpg)
-
-#### 20231007 Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)
-
-![](images/2023-10/20231007_GrizzlyFalls_1920x1080.jpg)
-
-#### 20231006 Taughannock Falls State Park in Trumansburg, New York (© Paul Massie Photography/Getty Images)
-
-![](images/2023-10/20231006_TaughannockFalls_1920x1080.jpg)
 
 
 

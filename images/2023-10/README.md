@@ -1,3 +1,11 @@
+#### 20231014 "火环”日环食，多哈，卡特尔 (© Sorin Furcoi/Getty Images)
+
+![](20231014_RingEclipse_1920x1080.jpg)
+
+#### 20231014 第三只見川橋梁を渡る列車, 福島県 大沼郡 三島町 (© DoctorEgg/Getty Images)
+
+![](20231014_RailwayDay_1920x1080.jpg)
+
 #### 20231013 Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)
 
 ![](20231013_ViesteItaly_1920x1080.jpg)
