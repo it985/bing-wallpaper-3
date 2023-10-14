@@ -1,4 +1,4 @@
-#### 20231014 "火环”日环食，多哈，卡特尔 (© Sorin Furcoi/Getty Images)
+#### 20231014 'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)
 
 ![](20231014_RingEclipse_1920x1080.jpg)
 
