@@ -1,3 +1,7 @@
+#### 20231016 金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](20231016_GoldenEnchantments_1920x1080.jpg)
+
 #### 20231014 'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)
 
 ![](20231014_RingEclipse_1920x1080.jpg)

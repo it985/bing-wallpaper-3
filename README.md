@@ -1,3 +1,7 @@
+#### 20231016 金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](images/2023-10/20231016_GoldenEnchantments_1920x1080.jpg)
+
 #### 20231014 'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)
 
 ![](images/2023-10/20231014_RingEclipse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231008 Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)
 
 ![](images/2023-10/20231008_OctoClam_1920x1080.jpg)
-
-#### 20231008 志賀高原の澗満滝, 長野県 (© Twenty47studio/Getty Images)
-
-![](images/2023-10/20231008_Hanlu_1920x1080.jpg)
 
 
 
