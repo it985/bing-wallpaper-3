@@ -26,7 +26,7 @@
 
 ![](images/2023-10/20231012_IdahoBarn_1920x1080.jpg)
 
-#### 20231012 ナミハリネズミ, イギリス サセックス (© Jules Cox/Minden Pictures)
+#### 20231012 European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)
 
 ![](images/2023-10/20231012_AutumnHedgehog_1920x1080.jpg)
 
