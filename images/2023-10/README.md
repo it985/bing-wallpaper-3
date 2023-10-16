@@ -1,4 +1,4 @@
-#### 20231016 金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)
+#### 20231016 Golden larches and Prusik Peak, the Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)
 
 ![](20231016_GoldenEnchantments_1920x1080.jpg)
 
