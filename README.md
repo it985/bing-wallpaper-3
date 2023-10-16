@@ -1,3 +1,11 @@
+#### 20231017 ペルセポリスの碑文の楔形文字, イラン ファールス州 (© George Hall/Alamy)
+
+![](images/2023-10/20231017_SpreadsheetDay_1920x1080.jpg)
+
+#### 20231017 帕拉塔塔,阿雅克肖,科西嘉岛,法国 (© Jon Ingall/Alamy)
+
+![](images/2023-10/20231017_GenoeseTower_1920x1080.jpg)
+
 #### 20231016 Golden larches and Prusik Peak, the Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2023-10/20231016_GoldenEnchantments_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231009 A bowl full of cranberries, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)
 
 ![](images/2023-10/20231009_ThanksgivingDay_1920x1080.jpg)
-
-#### 20231009 Fremont Indian petroglyphs, Dinosaur National Monument, Jensen, Utah (© Dan Leeth/Alamy)
-
-![](images/2023-10/20231009_FremontPetroglyph_1920x1080.jpg)
-
-#### 20231008 Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)
-
-![](images/2023-10/20231008_OctoClam_1920x1080.jpg)
 
 
 
