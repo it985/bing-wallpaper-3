@@ -1,4 +1,4 @@
-#### 20231017 ペルセポリスの碑文の楔形文字, イラン ファールス州 (© George Hall/Alamy)
+#### 20231017 Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)
 
 ![](20231017_SpreadsheetDay_1920x1080.jpg)
 
