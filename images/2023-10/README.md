@@ -1,3 +1,7 @@
+#### 20231018 科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国 (© Ian Shive/Tandem Stills + Motion)
+
+![](20231018_KodiakAlaska_1920x1080.jpg)
+
 #### 20231017 Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)
 
 ![](20231017_SpreadsheetDay_1920x1080.jpg)
