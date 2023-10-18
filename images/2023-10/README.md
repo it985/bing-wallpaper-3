@@ -1,4 +1,4 @@
-#### 20231018 科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国 (© Ian Shive/Tandem Stills + Motion)
+#### 20231018 Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)
 
 ![](20231018_KodiakAlaska_1920x1080.jpg)
 
