@@ -1,3 +1,11 @@
+#### 20231019 ロンアンの河川, ベトナム メコンデルタ (© Khanh Phan/Solent News/Shutterstock)
+
+![](20231019_WaterLilyVietnam_1920x1080.jpg)
+
+#### 20231019 Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士 (© Alan Novelli/Alamy Stock Photo)
+
+![](20231019_CastellyGwyntUK_1920x1080.jpg)
+
 #### 20231018 Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)
 
 ![](20231018_KodiakAlaska_1920x1080.jpg)

@@ -1,3 +1,11 @@
+#### 20231019 ロンアンの河川, ベトナム メコンデルタ (© Khanh Phan/Solent News/Shutterstock)
+
+![](images/2023-10/20231019_WaterLilyVietnam_1920x1080.jpg)
+
+#### 20231019 Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士 (© Alan Novelli/Alamy Stock Photo)
+
+![](images/2023-10/20231019_CastellyGwyntUK_1920x1080.jpg)
+
 #### 20231018 Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)
 
 ![](images/2023-10/20231018_KodiakAlaska_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231011 The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)
 
 ![](images/2023-10/20231011_JohnDayFossil_1920x1080.jpg)
-
-#### 20231010 Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)
-
-![](images/2023-10/20231010_SoprisSunrise_1920x1080.jpg)
-
-#### 20231010 Basilique du Sacré Cœur de Montmartre (© Tuul & Bruno Morandi)
-
-![](images/2023-10/20231010_MontmartreHarvest_1920x1080.jpg)
 
 
 
