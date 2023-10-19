@@ -1,3 +1,7 @@
+#### 20231020 俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马 (© Suzi Eszterhas/Minden Pictures)
+
+![](images/2023-10/20231020_PygmySloth_1920x1080.jpg)
+
 #### 20231019 Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)
 
 ![](images/2023-10/20231019_WaterLilyVietnam_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231012 European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)
 
 ![](images/2023-10/20231012_AutumnHedgehog_1920x1080.jpg)
-
-#### 20231011 The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)
-
-![](images/2023-10/20231011_JohnDayFossil_1920x1080.jpg)
 
 
 

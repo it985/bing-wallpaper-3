@@ -1,3 +1,7 @@
+#### 20231020 俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马 (© Suzi Eszterhas/Minden Pictures)
+
+![](20231020_PygmySloth_1920x1080.jpg)
+
 #### 20231019 Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)
 
 ![](20231019_WaterLilyVietnam_1920x1080.jpg)
