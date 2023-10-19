@@ -1,4 +1,4 @@
-#### 20231019 ロンアンの河川, ベトナム メコンデルタ (© Khanh Phan/Solent News/Shutterstock)
+#### 20231019 Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)
 
 ![](20231019_WaterLilyVietnam_1920x1080.jpg)
 
