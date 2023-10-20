@@ -1,3 +1,7 @@
+#### 20231021 波斯古城波斯波利斯的浮雕，伊朗 (© Ozbalci/Getty Images)
+
+![](20231021_PersepolisRelief_1920x1080.jpg)
+
 #### 20231020 Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)
 
 ![](20231020_PygmySloth_1920x1080.jpg)

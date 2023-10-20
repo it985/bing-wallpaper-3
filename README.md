@@ -1,3 +1,7 @@
+#### 20231021 波斯古城波斯波利斯的浮雕，伊朗 (© Ozbalci/Getty Images)
+
+![](images/2023-10/20231021_PersepolisRelief_1920x1080.jpg)
+
 #### 20231020 Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)
 
 ![](images/2023-10/20231020_PygmySloth_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231012 Old barn and canola field, Palouse region, Washington (© Terry Eggers/Getty Images)
 
 ![](images/2023-10/20231012_IdahoBarn_1920x1080.jpg)
-
-#### 20231012 European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)
-
-![](images/2023-10/20231012_AutumnHedgehog_1920x1080.jpg)
 
 
 
