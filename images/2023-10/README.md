@@ -1,4 +1,4 @@
-#### 20231020 俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马 (© Suzi Eszterhas/Minden Pictures)
+#### 20231020 Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)
 
 ![](20231020_PygmySloth_1920x1080.jpg)
 
