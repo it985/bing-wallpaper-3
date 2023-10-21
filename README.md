@@ -1,3 +1,11 @@
+#### 20231022 平安神宮, 京都府 京都市 (© Arif Iqball Photography-Japan/Alamy Stock Photo)
+
+![](images/2023-10/20231022_JidaiMatsuri_1920x1080.jpg)
+
+#### 20231022 哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国 (© Dan Mihai/Getty Images)
+
+![](images/2023-10/20231022_AstoriaBridge_1920x1080.jpg)
+
 #### 20231021 Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)
 
 ![](images/2023-10/20231021_PersepolisRelief_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231013 Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
 
 ![](images/2023-10/20231013_JasperDarkSky_1920x1080.jpg)
-
-#### 20231012 Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)
-
-![](images/2023-10/20231012_NeuschwansteinCastle_1920x1080.jpg)
-
-#### 20231012 Old barn and canola field, Palouse region, Washington (© Terry Eggers/Getty Images)
-
-![](images/2023-10/20231012_IdahoBarn_1920x1080.jpg)
 
 
 
