@@ -1,4 +1,4 @@
-#### 20231021 波斯古城波斯波利斯的浮雕，伊朗 (© Ozbalci/Getty Images)
+#### 20231021 Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)
 
 ![](images/2023-10/20231021_PersepolisRelief_1920x1080.jpg)
 
