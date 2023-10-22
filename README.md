@@ -1,3 +1,7 @@
+#### 20231023 塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国 (© Alex Potemkin/Getty Images)
+
+![](images/2023-10/20231023_PoconosMaze_1920x1080.jpg)
+
 #### 20231022 平安神宮, 京都府 京都市 (© Arif Iqball Photography-Japan/Alamy Stock Photo)
 
 ![](images/2023-10/20231022_JidaiMatsuri_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231013 Château du Haut-Koenigsbourg au lever du soleil, à Orschwiller, Alsace, Grand Est (© PATRICK HERTZOG/AFP via Getty Images)
 
 ![](images/2023-10/20231013_KoenigsbourgCastle_1920x1080.jpg)
-
-#### 20231013 Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
-
-![](images/2023-10/20231013_JasperDarkSky_1920x1080.jpg)
 
 
 

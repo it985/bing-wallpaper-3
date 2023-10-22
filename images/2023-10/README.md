@@ -1,3 +1,7 @@
+#### 20231023 塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国 (© Alex Potemkin/Getty Images)
+
+![](20231023_PoconosMaze_1920x1080.jpg)
+
 #### 20231022 平安神宮, 京都府 京都市 (© Arif Iqball Photography-Japan/Alamy Stock Photo)
 
 ![](20231022_JidaiMatsuri_1920x1080.jpg)
