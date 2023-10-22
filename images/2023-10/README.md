@@ -2,7 +2,7 @@
 
 ![](20231022_JidaiMatsuri_1920x1080.jpg)
 
-#### 20231022 哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国 (© Dan Mihai/Getty Images)
+#### 20231022 Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)
 
 ![](20231022_AstoriaBridge_1920x1080.jpg)
 
