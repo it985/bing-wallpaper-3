@@ -1,4 +1,4 @@
-#### 20231023 塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国 (© Alex Potemkin/Getty Images)
+#### 20231023 Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)
 
 ![](images/2023-10/20231023_PoconosMaze_1920x1080.jpg)
 
