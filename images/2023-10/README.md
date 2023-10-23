@@ -1,3 +1,7 @@
+#### 20231024 桑佩伦山上的菲泽尔城堡，匈牙利 (© ZGPhotography/Alamy)
+
+![](20231024_FuzerCastle_1920x1080.jpg)
+
 #### 20231023 Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)
 
 ![](20231023_PoconosMaze_1920x1080.jpg)

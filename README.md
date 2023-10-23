@@ -1,3 +1,7 @@
+#### 20231024 桑佩伦山上的菲泽尔城堡，匈牙利 (© ZGPhotography/Alamy)
+
+![](images/2023-10/20231024_FuzerCastle_1920x1080.jpg)
+
 #### 20231023 Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)
 
 ![](images/2023-10/20231023_PoconosMaze_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231013 Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)
 
 ![](images/2023-10/20231013_ViesteItaly_1920x1080.jpg)
-
-#### 20231013 Château du Haut-Koenigsbourg au lever du soleil, à Orschwiller, Alsace, Grand Est (© PATRICK HERTZOG/AFP via Getty Images)
-
-![](images/2023-10/20231013_KoenigsbourgCastle_1920x1080.jpg)
 
 
 
