@@ -1,3 +1,7 @@
+#### 20231025 大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国 (© Jeff Foott/Minden Pictures)
+
+![](20231025_GrandStaircase_1920x1080.jpg)
+
 #### 20231024 Stiftsbibliothek im Kloster Waldsassen, Oberpfalz, Bayern (© H.&D. Zielske/Image Professionals GmbH/Alamy Stock Foto)
 
 ![](20231024_GermanLibrary_1920x1080.jpg)

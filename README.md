@@ -1,3 +1,7 @@
+#### 20231025 大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国 (© Jeff Foott/Minden Pictures)
+
+![](images/2023-10/20231025_GrandStaircase_1920x1080.jpg)
+
 #### 20231024 Stiftsbibliothek im Kloster Waldsassen, Oberpfalz, Bayern (© H.&D. Zielske/Image Professionals GmbH/Alamy Stock Foto)
 
 ![](images/2023-10/20231024_GermanLibrary_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231014 'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)
 
 ![](images/2023-10/20231014_RingEclipse_1920x1080.jpg)
-
-#### 20231014 第三只見川橋梁を渡る列車, 福島県 大沼郡 三島町 (© DoctorEgg/Getty Images)
-
-![](images/2023-10/20231014_RailwayDay_1920x1080.jpg)
 
 
 
