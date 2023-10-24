@@ -2,7 +2,7 @@
 
 ![](20231024_GermanLibrary_1920x1080.jpg)
 
-#### 20231024 桑佩伦山上的菲泽尔城堡，匈牙利 (© ZGPhotography/Alamy)
+#### 20231024 Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)
 
 ![](20231024_FuzerCastle_1920x1080.jpg)
 
