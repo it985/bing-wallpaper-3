@@ -1,3 +1,7 @@
+#### 20231024 Stiftsbibliothek im Kloster Waldsassen, Oberpfalz, Bayern (© H.&D. Zielske/Image Professionals GmbH/Alamy Stock Foto)
+
+![](images/2023-10/20231024_GermanLibrary_1920x1080.jpg)
+
 #### 20231024 桑佩伦山上的菲泽尔城堡，匈牙利 (© ZGPhotography/Alamy)
 
 ![](images/2023-10/20231024_FuzerCastle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231014 第三只見川橋梁を渡る列車, 福島県 大沼郡 三島町 (© DoctorEgg/Getty Images)
 
 ![](images/2023-10/20231014_RailwayDay_1920x1080.jpg)
-
-#### 20231013 Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)
-
-![](images/2023-10/20231013_ViesteItaly_1920x1080.jpg)
 
 
 

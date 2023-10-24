@@ -1,3 +1,7 @@
+#### 20231024 Stiftsbibliothek im Kloster Waldsassen, Oberpfalz, Bayern (© H.&D. Zielske/Image Professionals GmbH/Alamy Stock Foto)
+
+![](20231024_GermanLibrary_1920x1080.jpg)
+
 #### 20231024 桑佩伦山上的菲泽尔城堡，匈牙利 (© ZGPhotography/Alamy)
 
 ![](20231024_FuzerCastle_1920x1080.jpg)
