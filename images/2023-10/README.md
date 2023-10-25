@@ -1,3 +1,7 @@
+#### 20231026 美泉宫公园的秋叶，维也纳，奥地利 (© rusm/Getty Images)
+
+![](20231026_ViennaAutumn_1920x1080.jpg)
+
 #### 20231025 Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)
 
 ![](20231025_GrandStaircase_1920x1080.jpg)

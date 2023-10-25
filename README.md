@@ -1,3 +1,7 @@
+#### 20231026 美泉宫公园的秋叶，维也纳，奥地利 (© rusm/Getty Images)
+
+![](images/2023-10/20231026_ViennaAutumn_1920x1080.jpg)
+
 #### 20231025 Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)
 
 ![](images/2023-10/20231025_GrandStaircase_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231016 Golden larches and Prusik Peak, the Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2023-10/20231016_GoldenEnchantments_1920x1080.jpg)
-
-#### 20231014 'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)
-
-![](images/2023-10/20231014_RingEclipse_1920x1080.jpg)
 
 
 
