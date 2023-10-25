@@ -1,4 +1,4 @@
-#### 20231025 大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国 (© Jeff Foott/Minden Pictures)
+#### 20231025 Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)
 
 ![](20231025_GrandStaircase_1920x1080.jpg)
 
