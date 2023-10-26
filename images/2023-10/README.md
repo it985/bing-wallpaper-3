@@ -1,4 +1,4 @@
-#### 20231026 美泉宫公园的秋叶，维也纳，奥地利 (© rusm/Getty Images)
+#### 20231026 Autumn foliage in Schönbrunn Palace Park, Vienna, Austria (© rusm/Getty Images)
 
 ![](20231026_ViennaAutumn_1920x1080.jpg)
 
