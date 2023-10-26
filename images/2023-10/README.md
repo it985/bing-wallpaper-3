@@ -1,3 +1,7 @@
+#### 20231027 斯利加坎老桥，苏格兰斯凯岛 (© Aliaume Chapelle/Tandem Stills + Motion)
+
+![](20231027_OldBridgeSkye_1920x1080.jpg)
+
 #### 20231026 Autumn foliage in Schönbrunn Palace Park, Vienna, Austria (© rusm/Getty Images)
 
 ![](20231026_ViennaAutumn_1920x1080.jpg)
