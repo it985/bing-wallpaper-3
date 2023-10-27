@@ -1,4 +1,4 @@
-#### 20231027 斯利加坎老桥，苏格兰斯凯岛 (© Aliaume Chapelle/Tandem Stills + Motion)
+#### 20231027 Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
 
 ![](images/2023-10/20231027_OldBridgeSkye_1920x1080.jpg)
 
