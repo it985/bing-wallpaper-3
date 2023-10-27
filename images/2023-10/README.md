@@ -1,3 +1,7 @@
+#### 20231028 卡斯蒂利亚-拉曼恰的风车，西班牙 (© Getty Images)
+
+![](20231028_FiveWinds_1920x1080.jpg)
+
 #### 20231027 Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
 
 ![](20231027_OldBridgeSkye_1920x1080.jpg)

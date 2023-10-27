@@ -1,3 +1,7 @@
+#### 20231028 卡斯蒂利亚-拉曼恰的风车，西班牙 (© Getty Images)
+
+![](images/2023-10/20231028_FiveWinds_1920x1080.jpg)
+
 #### 20231027 Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
 
 ![](images/2023-10/20231027_OldBridgeSkye_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231017 Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)
 
 ![](images/2023-10/20231017_SpreadsheetDay_1920x1080.jpg)
-
-#### 20231017 帕拉塔塔,阿雅克肖,科西嘉岛,法国 (© Jon Ingall/Alamy)
-
-![](images/2023-10/20231017_GenoeseTower_1920x1080.jpg)
 
 
 
