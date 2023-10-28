@@ -1,3 +1,11 @@
+#### 20231029 博纳温彻墓地，萨凡纳，佐治亚州，美国 (© Kelly vanDellen/Alamy)
+
+![](images/2023-10/20231029_SavannahSculpture_1920x1080.jpg)
+
+#### 20231029 ブールジュの沼地, フランス (© Tuul & Bruno Morandi/Getty Images)
+
+![](images/2023-10/20231029_BourgesMarsh_1920x1080.jpg)
+
 #### 20231028 Windmills in Castilla-La Mancha, Spain (© Getty Images)
 
 ![](images/2023-10/20231028_FiveWinds_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231019 Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士 (© Alan Novelli/Alamy Stock Photo)
 
 ![](images/2023-10/20231019_CastellyGwyntUK_1920x1080.jpg)
-
-#### 20231018 Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)
-
-![](images/2023-10/20231018_KodiakAlaska_1920x1080.jpg)
-
-#### 20231017 Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)
-
-![](images/2023-10/20231017_SpreadsheetDay_1920x1080.jpg)
 
 
 

@@ -1,3 +1,11 @@
+#### 20231029 博纳温彻墓地，萨凡纳，佐治亚州，美国 (© Kelly vanDellen/Alamy)
+
+![](20231029_SavannahSculpture_1920x1080.jpg)
+
+#### 20231029 ブールジュの沼地, フランス (© Tuul & Bruno Morandi/Getty Images)
+
+![](20231029_BourgesMarsh_1920x1080.jpg)
+
 #### 20231028 Windmills in Castilla-La Mancha, Spain (© Getty Images)
 
 ![](20231028_FiveWinds_1920x1080.jpg)
