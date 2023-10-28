@@ -1,4 +1,4 @@
-#### 20231028 卡斯蒂利亚-拉曼恰的风车，西班牙 (© Getty Images)
+#### 20231028 Windmills in Castilla-La Mancha, Spain (© Getty Images)
 
 ![](20231028_FiveWinds_1920x1080.jpg)
 
