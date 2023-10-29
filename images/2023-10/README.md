@@ -1,3 +1,11 @@
+#### 20231030 グレナリフ森林公園, 北アイルランド アントリム県 (© Peter Zelei/Getty Images)
+
+![](20231030_GlenariffForest_1920x1080.jpg)
+
+#### 20231030 普通乌鸦坐在树枝上 (© WildMedia/Shutterstock)
+
+![](20231030_AutumnRaven_1920x1080.jpg)
+
 #### 20231029 L'Open 60 Safran, Transat Jacques Vabre 2011, skipper Marc Guillemot co/skipper Yann Eliès, Bretagne (© Christophe Launay/Aurora Photos/Cavan Images/Alamy Stock Photo)
 
 ![](20231029_TransatJacquesVabre_1920x1080.jpg)
