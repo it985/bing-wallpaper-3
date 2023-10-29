@@ -2,7 +2,7 @@
 
 ![](images/2023-10/20231029_TransatJacquesVabre_1920x1080.jpg)
 
-#### 20231029 博纳温彻墓地，萨凡纳，佐治亚州，美国 (© Kelly vanDellen/Alamy)
+#### 20231029 Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)
 
 ![](images/2023-10/20231029_SavannahSculpture_1920x1080.jpg)
 
