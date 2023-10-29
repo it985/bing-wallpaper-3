@@ -1,3 +1,7 @@
+#### 20231029 L'Open 60 Safran, Transat Jacques Vabre 2011, skipper Marc Guillemot co/skipper Yann Eliès, Bretagne (© Christophe Launay/Aurora Photos/Cavan Images/Alamy Stock Photo)
+
+![](images/2023-10/20231029_TransatJacquesVabre_1920x1080.jpg)
+
 #### 20231029 博纳温彻墓地，萨凡纳，佐治亚州，美国 (© Kelly vanDellen/Alamy)
 
 ![](images/2023-10/20231029_SavannahSculpture_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231019 Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)
 
 ![](images/2023-10/20231019_WaterLilyVietnam_1920x1080.jpg)
-
-#### 20231019 Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士 (© Alan Novelli/Alamy Stock Photo)
-
-![](images/2023-10/20231019_CastellyGwyntUK_1920x1080.jpg)
 
 
 
