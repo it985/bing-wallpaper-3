@@ -6,7 +6,7 @@
 
 ![](images/2023-10/20231030_GlenariffForest_1920x1080.jpg)
 
-#### 20231030 普通乌鸦坐在树枝上 (© WildMedia/Shutterstock)
+#### 20231030 Common raven sitting on a branch (© WildMedia/Shutterstock)
 
 ![](images/2023-10/20231030_AutumnRaven_1920x1080.jpg)
 
