@@ -1,3 +1,7 @@
+#### 20231030 Zwei Stockenten im Wasser, Herbst, Deutschland (© sun ok/Shutterstock)
+
+![](20231030_MallarDucks_1920x1080.jpg)
+
 #### 20231030 グレナリフ森林公園, 北アイルランド アントリム県 (© Peter Zelei/Getty Images)
 
 ![](20231030_GlenariffForest_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20231030 Zwei Stockenten im Wasser, Herbst, Deutschland (© sun ok/Shutterstock)
+
+![](images/2023-10/20231030_MallarDucks_1920x1080.jpg)
+
 #### 20231030 グレナリフ森林公園, 北アイルランド アントリム県 (© Peter Zelei/Getty Images)
 
 ![](images/2023-10/20231030_GlenariffForest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231022 Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)
 
 ![](images/2023-10/20231022_AstoriaBridge_1920x1080.jpg)
-
-#### 20231021 Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)
-
-![](images/2023-10/20231021_PersepolisRelief_1920x1080.jpg)
 
 
 
