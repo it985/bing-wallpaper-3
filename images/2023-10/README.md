@@ -1,3 +1,7 @@
+#### 20231031 万圣节南瓜灯 (© Bing Image Creator)
+
+![](20231031_HalloweenCuteAI_1920x1080.jpg)
+
 #### 20231030 Zwei Stockenten im Wasser, Herbst, Deutschland (© sun ok/Shutterstock)
 
 ![](20231030_MallarDucks_1920x1080.jpg)

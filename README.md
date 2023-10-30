@@ -1,3 +1,7 @@
+#### 20231031 万圣节南瓜灯 (© Bing Image Creator)
+
+![](images/2023-10/20231031_HalloweenCuteAI_1920x1080.jpg)
+
 #### 20231030 Zwei Stockenten im Wasser, Herbst, Deutschland (© sun ok/Shutterstock)
 
 ![](images/2023-10/20231030_MallarDucks_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231022 平安神宮, 京都府 京都市 (© Arif Iqball Photography-Japan/Alamy Stock Photo)
 
 ![](images/2023-10/20231022_JidaiMatsuri_1920x1080.jpg)
-
-#### 20231022 Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)
-
-![](images/2023-10/20231022_AstoriaBridge_1920x1080.jpg)
 
 
 
