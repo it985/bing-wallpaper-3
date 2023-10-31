@@ -1,4 +1,4 @@
-#### 20231031 Halloween-Kürbisse auf einer Veranda (© Bing Image Creator)
+#### 20231031 Halloween jack-o'-lanterns on a porch (© Bing Image Creator)
 
 ![](20231031_HalloweenPorchAI_1920x1080.jpg)
 

@@ -1,4 +1,8 @@
-#### 20231031 Halloween-Kürbisse auf einer Veranda (© Bing Image Creator)
+#### 20231101 Pumpkins and squashes (© bobkeenan/Getty Images)
+
+![](images/2023-11/20231101_PumpkinsSquash_1920x1080.jpg)
+
+#### 20231031 Halloween jack-o'-lanterns on a porch (© Bing Image Creator)
 
 ![](images/2023-10/20231031_HalloweenPorchAI_1920x1080.jpg)
 
@@ -54,10 +58,6 @@
 
 ![](images/2023-10/20231024_FuzerCastle_1920x1080.jpg)
 
-#### 20231023 Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)
-
-![](images/2023-10/20231023_PoconosMaze_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2023&emsp;&emsp;[10](images/2023-10/README.md) &emsp;&emsp;[09](images/2023-09/README.md) &emsp;&emsp;[08](images/2023-08/README.md) &emsp;&emsp;[07](images/2023-07/README.md) &emsp;&emsp;[06](images/2023-06/README.md) &emsp;&emsp;[05](images/2023-05/README.md) &emsp;&emsp;[04](images/2023-04/README.md) &emsp;&emsp;[03](images/2023-03/README.md) &emsp;&emsp;[02](images/2023-02/README.md) &emsp;&emsp;[01](images/2023-01/README.md) 
+- 2023&emsp;&emsp;[11](images/2023-11/README.md) &emsp;&emsp;[10](images/2023-10/README.md) &emsp;&emsp;[09](images/2023-09/README.md) &emsp;&emsp;[08](images/2023-08/README.md) &emsp;&emsp;[07](images/2023-07/README.md) &emsp;&emsp;[06](images/2023-06/README.md) &emsp;&emsp;[05](images/2023-05/README.md) &emsp;&emsp;[04](images/2023-04/README.md) &emsp;&emsp;[03](images/2023-03/README.md) &emsp;&emsp;[02](images/2023-02/README.md) &emsp;&emsp;[01](images/2023-01/README.md) 
 
 - 2022&emsp;&emsp;[11](images/2022-11/README.md) &emsp;&emsp;[10](images/2022-10/README.md) &emsp;&emsp;[09](images/2022-09/README.md) &emsp;&emsp;[08](images/2022-08/README.md) &emsp;&emsp;[07](images/2022-07/README.md) &emsp;&emsp;[06](images/2022-06/README.md) &emsp;&emsp;[05](images/2022-05/README.md) &emsp;&emsp;[04](images/2022-04/README.md) &emsp;&emsp;[03](images/2022-03/README.md) &emsp;&emsp;[02](images/2022-02/README.md) &emsp;&emsp;[01](images/2022-01/README.md) 
 
