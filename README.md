@@ -1,3 +1,7 @@
+#### 20231031 Halloween-Kürbisse auf einer Veranda (© Bing Image Creator)
+
+![](images/2023-10/20231031_HalloweenPorchAI_1920x1080.jpg)
+
 #### 20231031 万圣节南瓜灯 (© Bing Image Creator)
 
 ![](images/2023-10/20231031_HalloweenCuteAI_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231023 Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)
 
 ![](images/2023-10/20231023_PoconosMaze_1920x1080.jpg)
-
-#### 20231022 平安神宮, 京都府 京都市 (© Arif Iqball Photography-Japan/Alamy Stock Photo)
-
-![](images/2023-10/20231022_JidaiMatsuri_1920x1080.jpg)
 
 
 
