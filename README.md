@@ -2,6 +2,10 @@
 
 ![](images/2023-11/20231101_PumpkinsSquash_1920x1080.jpg)
 
+#### 20231101 上巴尔城堡，阿尔萨斯，法国 (© Andrea Pistolesi/Getty Images)
+
+![](images/2023-11/20231101_HautBarr_1920x1080.jpg)
+
 #### 20231031 Halloween jack-o'-lanterns on a porch (© Bing Image Creator)
 
 ![](images/2023-10/20231031_HalloweenPorchAI_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231024 Stiftsbibliothek im Kloster Waldsassen, Oberpfalz, Bayern (© H.&D. Zielske/Image Professionals GmbH/Alamy Stock Foto)
 
 ![](images/2023-10/20231024_GermanLibrary_1920x1080.jpg)
-
-#### 20231024 Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)
-
-![](images/2023-10/20231024_FuzerCastle_1920x1080.jpg)
 
 
 
