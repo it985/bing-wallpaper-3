@@ -1,3 +1,7 @@
+#### 20231102 恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](20231102_DeathValleySalt_1920x1080.jpg)
+
 #### 20231101 Pumpkins and squashes (© bobkeenan/Getty Images)
 
 ![](20231101_PumpkinsSquash_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20231102 恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](images/2023-11/20231102_DeathValleySalt_1920x1080.jpg)
+
 #### 20231101 Pumpkins and squashes (© bobkeenan/Getty Images)
 
 ![](images/2023-11/20231101_PumpkinsSquash_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231028 Windmills in Castilla-La Mancha, Spain (© Getty Images)
 
 ![](images/2023-10/20231028_FiveWinds_1920x1080.jpg)
-
-#### 20231027 Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
-
-![](images/2023-10/20231027_OldBridgeSkye_1920x1080.jpg)
 
 
 
