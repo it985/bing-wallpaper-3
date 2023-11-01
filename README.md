@@ -2,6 +2,10 @@
 
 ![](images/2023-11/20231101_PumpkinsSquash_1920x1080.jpg)
 
+#### 20231101 Mummy Cave ruins, Canyon de Chelly National Monument, Arizona (© Cindy Miller Hopkins/Danita Delimont)
+
+![](images/2023-11/20231101_MummyCaveRuins_1920x1080.jpg)
+
 #### 20231101 Kenny Lake at dawn, Lake Superior Provincial Park, Ontario, Canada (© Don Johnston/agefotostock)
 
 ![](images/2023-11/20231101_KennyLake_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231026 Autumn foliage in Schönbrunn Palace Park, Vienna, Austria (© rusm/Getty Images)
 
 ![](images/2023-10/20231026_ViennaAutumn_1920x1080.jpg)
-
-#### 20231025 Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)
-
-![](images/2023-10/20231025_GrandStaircase_1920x1080.jpg)
 
 
 
