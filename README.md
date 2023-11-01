@@ -14,6 +14,10 @@
 
 ![](images/2023-11/20231101_HautBarr_1920x1080.jpg)
 
+#### 20231101 コロンビア川とアストリア・メグラー橋, 米国 オレゴン州 (© Dan Mihai/Getty Images)
+
+![](images/2023-11/20231101_AstoriaBridge_1920x1080.jpg)
+
 #### 20231031 Halloween jack-o'-lanterns on a porch (© Bing Image Creator)
 
 ![](images/2023-10/20231031_HalloweenPorchAI_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231027 Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
 
 ![](images/2023-10/20231027_OldBridgeSkye_1920x1080.jpg)
-
-#### 20231026 Autumn foliage in Schönbrunn Palace Park, Vienna, Austria (© rusm/Getty Images)
-
-![](images/2023-10/20231026_ViennaAutumn_1920x1080.jpg)
 
 
 

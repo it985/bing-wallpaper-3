@@ -14,3 +14,7 @@
 
 ![](20231101_HautBarr_1920x1080.jpg)
 
+#### 20231101 コロンビア川とアストリア・メグラー橋, 米国 オレゴン州 (© Dan Mihai/Getty Images)
+
+![](20231101_AstoriaBridge_1920x1080.jpg)
+
