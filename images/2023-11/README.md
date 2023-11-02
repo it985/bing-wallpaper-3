@@ -1,3 +1,11 @@
+#### 20231103 卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](20231103_SeaNettles_1920x1080.jpg)
+
+#### 20231103 スリー・シスターズ・スプリングス, 米国 フロリダ州 クリスタルリバー市 (© Karine Aigner/Tandem Stills + Motion)
+
+![](20231103_ManateeMama_1920x1080.jpg)
+
 #### 20231102 Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](20231102_DeathValleySalt_1920x1080.jpg)
