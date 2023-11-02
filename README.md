@@ -1,4 +1,4 @@
-#### 20231102 恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion)
+#### 20231102 Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2023-11/20231102_DeathValleySalt_1920x1080.jpg)
 
