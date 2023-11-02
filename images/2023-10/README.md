@@ -26,6 +26,10 @@
 
 ![](20231029_SavannahSculpture_1920x1080.jpg)
 
+#### 20231029 Burg Füzér im Tokajer Gebirge, Ungarn (© ZGPhotography/Alamy)
+
+![](20231029_FuzerCastle_1920x1080.jpg)
+
 #### 20231029 ブールジュの沼地, フランス (© Tuul & Bruno Morandi/Getty Images)
 
 ![](20231029_BourgesMarsh_1920x1080.jpg)
