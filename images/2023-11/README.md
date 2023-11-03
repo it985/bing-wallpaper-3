@@ -6,6 +6,10 @@
 
 ![](20231103_ManateeMama_1920x1080.jpg)
 
+#### 20231103 Hunsrück Hochwald, Herbstwald bei Deuselbach, Naherholungsgebiet Erbeskopf, Rheinland-Pfalz (© Hans-Peter Merten/Huber/eStock Photo)
+
+![](20231103_HunsrueckHochwald_1920x1080.jpg)
+
 #### 20231102 Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](20231102_DeathValleySalt_1920x1080.jpg)

@@ -6,6 +6,10 @@
 
 ![](images/2023-11/20231103_ManateeMama_1920x1080.jpg)
 
+#### 20231103 Hunsrück Hochwald, Herbstwald bei Deuselbach, Naherholungsgebiet Erbeskopf, Rheinland-Pfalz (© Hans-Peter Merten/Huber/eStock Photo)
+
+![](images/2023-11/20231103_HunsrueckHochwald_1920x1080.jpg)
+
 #### 20231102 Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2023-11/20231102_DeathValleySalt_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231029 L'Open 60 Safran, Transat Jacques Vabre 2011, skipper Marc Guillemot co/skipper Yann Eliès, Bretagne (© Christophe Launay/Aurora Photos/Cavan Images/Alamy Stock Photo)
 
 ![](images/2023-10/20231029_TransatJacquesVabre_1920x1080.jpg)
-
-#### 20231029 Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)
-
-![](images/2023-10/20231029_SavannahSculpture_1920x1080.jpg)
 
 
 
