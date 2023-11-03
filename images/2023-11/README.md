@@ -1,4 +1,4 @@
-#### 20231103 卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国 (© Jim Patterson/Tandem Stills + Motion)
+#### 20231103 Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](20231103_SeaNettles_1920x1080.jpg)
 
