@@ -1,3 +1,7 @@
+#### 20231104 美洲野牛，黄石国家公园，怀俄明州，美国 (© Gary Gray/Getty Images)
+
+![](images/2023-11/20231104_BisonSnow_1920x1080.jpg)
+
 #### 20231103 Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2023-11/20231103_SeaNettles_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231030 Common raven sitting on a branch (© WildMedia/Shutterstock)
 
 ![](images/2023-10/20231030_AutumnRaven_1920x1080.jpg)
-
-#### 20231029 L'Open 60 Safran, Transat Jacques Vabre 2011, skipper Marc Guillemot co/skipper Yann Eliès, Bretagne (© Christophe Launay/Aurora Photos/Cavan Images/Alamy Stock Photo)
-
-![](images/2023-10/20231029_TransatJacquesVabre_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20231104 美洲野牛，黄石国家公园，怀俄明州，美国 (© Gary Gray/Getty Images)
+
+![](20231104_BisonSnow_1920x1080.jpg)
+
 #### 20231103 Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](20231103_SeaNettles_1920x1080.jpg)
