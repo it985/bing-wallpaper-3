@@ -1,4 +1,4 @@
-#### 20231104 美洲野牛，黄石国家公园，怀俄明州，美国 (© Gary Gray/Getty Images)
+#### 20231104 American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)
 
 ![](images/2023-11/20231104_BisonSnow_1920x1080.jpg)
 
