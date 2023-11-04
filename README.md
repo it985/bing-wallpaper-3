@@ -1,3 +1,7 @@
+#### 20231105 石英岩地层，普拉亚德尔锡伦西奥，西班牙 (© Jean-Philippe Delobelle/Minden Pictures)
+
+![](images/2023-11/20231105_SilencioSpain_1920x1080.jpg)
+
 #### 20231104 American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)
 
 ![](images/2023-11/20231104_BisonSnow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231030 グレナリフ森林公園, 北アイルランド アントリム県 (© Peter Zelei/Getty Images)
 
 ![](images/2023-10/20231030_GlenariffForest_1920x1080.jpg)
-
-#### 20231030 Common raven sitting on a branch (© WildMedia/Shutterstock)
-
-![](images/2023-10/20231030_AutumnRaven_1920x1080.jpg)
 
 
 

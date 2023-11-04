@@ -1,3 +1,7 @@
+#### 20231105 石英岩地层，普拉亚德尔锡伦西奥，西班牙 (© Jean-Philippe Delobelle/Minden Pictures)
+
+![](20231105_SilencioSpain_1920x1080.jpg)
+
 #### 20231104 American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)
 
 ![](20231104_BisonSnow_1920x1080.jpg)
