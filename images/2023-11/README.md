@@ -1,4 +1,4 @@
-#### 20231105 石英岩地层，普拉亚德尔锡伦西奥，西班牙 (© Jean-Philippe Delobelle/Minden Pictures)
+#### 20231105 Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)
 
 ![](20231105_SilencioSpain_1920x1080.jpg)
 
