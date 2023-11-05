@@ -1,3 +1,7 @@
+#### 20231106 佩霍湖，百内国家公园，智利南部 (© OST/Getty Images)
+
+![](images/2023-11/20231106_LagoPehoe_1920x1080.jpg)
+
 #### 20231105 Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)
 
 ![](images/2023-11/20231105_SilencioSpain_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231030 Zwei Stockenten im Wasser, Herbst, Deutschland (© sun ok/Shutterstock)
 
 ![](images/2023-10/20231030_MallarDucks_1920x1080.jpg)
-
-#### 20231030 グレナリフ森林公園, 北アイルランド アントリム県 (© Peter Zelei/Getty Images)
-
-![](images/2023-10/20231030_GlenariffForest_1920x1080.jpg)
 
 
 

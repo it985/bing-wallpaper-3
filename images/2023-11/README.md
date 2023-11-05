@@ -1,3 +1,7 @@
+#### 20231106 佩霍湖，百内国家公园，智利南部 (© OST/Getty Images)
+
+![](20231106_LagoPehoe_1920x1080.jpg)
+
 #### 20231105 Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)
 
 ![](20231105_SilencioSpain_1920x1080.jpg)
