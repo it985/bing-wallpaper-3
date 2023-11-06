@@ -1,4 +1,4 @@
-#### 20231106 佩霍湖，百内国家公园，智利南部 (© OST/Getty Images)
+#### 20231106 Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)
 
 ![](images/2023-11/20231106_LagoPehoe_1920x1080.jpg)
 
