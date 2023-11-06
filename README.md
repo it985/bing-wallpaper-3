@@ -1,3 +1,7 @@
+#### 20231107 Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/Shutterstock)
+
+![](images/2023-11/20231107_KirkilaiTower_1920x1080.jpg)
+
 #### 20231106 Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)
 
 ![](images/2023-11/20231106_LagoPehoe_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231031 万圣节南瓜灯 (© Bing Image Creator)
 
 ![](images/2023-10/20231031_HalloweenCuteAI_1920x1080.jpg)
-
-#### 20231030 Zwei Stockenten im Wasser, Herbst, Deutschland (© sun ok/Shutterstock)
-
-![](images/2023-10/20231030_MallarDucks_1920x1080.jpg)
 
 
 
