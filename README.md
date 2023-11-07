@@ -1,3 +1,11 @@
+#### 20231108 干し柿, 山梨県 南都留郡 富士河口湖町 (© STEPHEN FLEMING/Alamy Stock Photo)
+
+![](images/2023-11/20231108_Lidong_1920x1080.jpg)
+
+#### 20231108 黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images)
+
+![](images/2023-11/20231108_LiDong_1920x1080.jpg)
+
 #### 20231107 Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)
 
 ![](images/2023-11/20231107_KirkilaiTower_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231101 コロンビア川とアストリア・メグラー橋, 米国 オレゴン州 (© Dan Mihai/Getty Images)
 
 ![](images/2023-11/20231101_AstoriaBridge_1920x1080.jpg)
-
-#### 20231031 Halloween jack-o'-lanterns on a porch (© Bing Image Creator)
-
-![](images/2023-10/20231031_HalloweenPorchAI_1920x1080.jpg)
-
-#### 20231031 万圣节南瓜灯 (© Bing Image Creator)
-
-![](images/2023-10/20231031_HalloweenCuteAI_1920x1080.jpg)
 
 
 
