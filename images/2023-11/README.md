@@ -1,4 +1,4 @@
-#### 20231107 Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/Shutterstock)
+#### 20231107 Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)
 
 ![](20231107_KirkilaiTower_1920x1080.jpg)
 
