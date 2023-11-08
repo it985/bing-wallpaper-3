@@ -1,3 +1,7 @@
+#### 20231109 秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images)
+
+![](20231109_NorwayBirch_1920x1080.jpg)
+
 #### 20231108 干し柿, 山梨県 南都留郡 富士河口湖町 (© STEPHEN FLEMING/Alamy Stock Photo)
 
 ![](20231108_Lidong_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20231109 秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images)
+
+![](images/2023-11/20231109_NorwayBirch_1920x1080.jpg)
+
 #### 20231108 干し柿, 山梨県 南都留郡 富士河口湖町 (© STEPHEN FLEMING/Alamy Stock Photo)
 
 ![](images/2023-11/20231108_Lidong_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231101 上巴尔城堡，阿尔萨斯，法国 (© Andrea Pistolesi/Getty Images)
 
 ![](images/2023-11/20231101_HautBarr_1920x1080.jpg)
-
-#### 20231101 コロンビア川とアストリア・メグラー橋, 米国 オレゴン州 (© Dan Mihai/Getty Images)
-
-![](images/2023-11/20231101_AstoriaBridge_1920x1080.jpg)
 
 
 
