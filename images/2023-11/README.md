@@ -26,7 +26,7 @@
 
 ![](20231103_SeaNettles_1920x1080.jpg)
 
-#### 20231103 スリー・シスターズ・スプリングス, 米国 フロリダ州 クリスタルリバー市 (© Karine Aigner/Tandem Stills + Motion)
+#### 20231103 West Indian manatee mother and baby, Three Sisters Springs, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)
 
 ![](20231103_ManateeMama_1920x1080.jpg)
 
