@@ -1,4 +1,4 @@
-#### 20231109 秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images)
+#### 20231109 Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)
 
 ![](images/2023-11/20231109_NorwayBirch_1920x1080.jpg)
 
