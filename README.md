@@ -1,3 +1,7 @@
+#### 20231110 恶地国家公园，南达科他州，美国 (© Grant Ordelheide/Tandem Stills + Motion)
+
+![](images/2023-11/20231110_BadlandsSunrise_1920x1080.jpg)
+
 #### 20231109 Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)
 
 ![](images/2023-11/20231109_NorwayBirch_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231101 Kenny Lake at dawn, Lake Superior Provincial Park, Ontario, Canada (© Don Johnston/agefotostock)
 
 ![](images/2023-11/20231101_KennyLake_1920x1080.jpg)
-
-#### 20231101 上巴尔城堡，阿尔萨斯，法国 (© Andrea Pistolesi/Getty Images)
-
-![](images/2023-11/20231101_HautBarr_1920x1080.jpg)
 
 
 

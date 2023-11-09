@@ -1,3 +1,7 @@
+#### 20231110 恶地国家公园，南达科他州，美国 (© Grant Ordelheide/Tandem Stills + Motion)
+
+![](20231110_BadlandsSunrise_1920x1080.jpg)
+
 #### 20231109 Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)
 
 ![](20231109_NorwayBirch_1920x1080.jpg)
