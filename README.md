@@ -2,7 +2,7 @@
 
 ![](images/2023-11/20231110_SchwerinerSchloss_1920x1080.jpg)
 
-#### 20231110 恶地国家公园，南达科他州，美国 (© Grant Ordelheide/Tandem Stills + Motion)
+#### 20231110 Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)
 
 ![](images/2023-11/20231110_BadlandsSunrise_1920x1080.jpg)
 
