@@ -1,3 +1,11 @@
+#### 20231111 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利 (© Achim Thomae/Getty Images)
+
+![](images/2023-11/20231111_ValDiFunes_1920x1080.jpg)
+
+#### 20231111 サレック国立公園, スウェーデン (© Hans Strand/Getty Images)
+
+![](images/2023-11/20231111_SarekSweden_1920x1080.jpg)
+
 #### 20231110 Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)
 
 ![](images/2023-11/20231110_SchwerinerSchloss_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231102 Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2023-11/20231102_DeathValleySalt_1920x1080.jpg)
-
-#### 20231101 Pumpkins and squashes (© bobkeenan/Getty Images)
-
-![](images/2023-11/20231101_PumpkinsSquash_1920x1080.jpg)
-
-#### 20231101 Mummy Cave ruins, Canyon de Chelly National Monument, Arizona (© Cindy Miller Hopkins/Danita Delimont)
-
-![](images/2023-11/20231101_MummyCaveRuins_1920x1080.jpg)
 
 
 

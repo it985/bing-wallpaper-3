@@ -1,3 +1,11 @@
+#### 20231111 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利 (© Achim Thomae/Getty Images)
+
+![](20231111_ValDiFunes_1920x1080.jpg)
+
+#### 20231111 サレック国立公園, スウェーデン (© Hans Strand/Getty Images)
+
+![](20231111_SarekSweden_1920x1080.jpg)
+
 #### 20231110 Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)
 
 ![](20231110_SchwerinerSchloss_1920x1080.jpg)
