@@ -1,3 +1,7 @@
+#### 20231110 Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)
+
+![](images/2023-11/20231110_SchwerinerSchloss_1920x1080.jpg)
+
 #### 20231110 恶地国家公园，南达科他州，美国 (© Grant Ordelheide/Tandem Stills + Motion)
 
 ![](images/2023-11/20231110_BadlandsSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231101 Mummy Cave ruins, Canyon de Chelly National Monument, Arizona (© Cindy Miller Hopkins/Danita Delimont)
 
 ![](images/2023-11/20231101_MummyCaveRuins_1920x1080.jpg)
-
-#### 20231101 Kenny Lake at dawn, Lake Superior Provincial Park, Ontario, Canada (© Don Johnston/agefotostock)
-
-![](images/2023-11/20231101_KennyLake_1920x1080.jpg)
 
 
 
