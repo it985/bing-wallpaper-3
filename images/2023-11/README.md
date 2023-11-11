@@ -6,6 +6,10 @@
 
 ![](20231111_SarekSweden_1920x1080.jpg)
 
+#### 20231111 Drapeau français sous l’Arc de Triomphe, Paris, France (© Wiliam Perry/Alamy Stock Photo)
+
+![](20231111_RemembranceDay_1920x1080.jpg)
+
 #### 20231110 Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)
 
 ![](20231110_SchwerinerSchloss_1920x1080.jpg)

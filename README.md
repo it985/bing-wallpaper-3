@@ -6,6 +6,10 @@
 
 ![](images/2023-11/20231111_SarekSweden_1920x1080.jpg)
 
+#### 20231111 Drapeau français sous l’Arc de Triomphe, Paris, France (© Wiliam Perry/Alamy Stock Photo)
+
+![](images/2023-11/20231111_RemembranceDay_1920x1080.jpg)
+
 #### 20231110 Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)
 
 ![](images/2023-11/20231110_SchwerinerSchloss_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231103 Hunsrück Hochwald, Herbstwald bei Deuselbach, Naherholungsgebiet Erbeskopf, Rheinland-Pfalz (© Hans-Peter Merten/Huber/eStock Photo)
 
 ![](images/2023-11/20231103_HunsrueckHochwald_1920x1080.jpg)
-
-#### 20231102 Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)
-
-![](images/2023-11/20231102_DeathValleySalt_1920x1080.jpg)
 
 
 
