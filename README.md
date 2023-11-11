@@ -1,3 +1,11 @@
+#### 20231112 秋天池塘里的两只绿头鸭 (© sun ok/Shutterstock)
+
+![](images/2023-11/20231112_MallarDucks_1920x1080.jpg)
+
+#### 20231112 ランプが灯るアヨーディヤー, インド (© SANJAY KANOJIA/AFP/Getty Images)
+
+![](images/2023-11/20231112_DiwaliAyodhya_1920x1080.jpg)
+
 #### 20231111 Autumnal woodland and Young Peak, British Columbia, Canada (© David Noton/Minden)
 
 ![](images/2023-11/20231111_YoungPeaks_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231105 Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)
 
 ![](images/2023-11/20231105_SilencioSpain_1920x1080.jpg)
-
-#### 20231104 American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)
-
-![](images/2023-11/20231104_BisonSnow_1920x1080.jpg)
-
-#### 20231103 Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)
-
-![](images/2023-11/20231103_SeaNettles_1920x1080.jpg)
 
 
 

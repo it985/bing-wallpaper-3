@@ -1,3 +1,11 @@
+#### 20231112 秋天池塘里的两只绿头鸭 (© sun ok/Shutterstock)
+
+![](20231112_MallarDucks_1920x1080.jpg)
+
+#### 20231112 ランプが灯るアヨーディヤー, インド (© SANJAY KANOJIA/AFP/Getty Images)
+
+![](20231112_DiwaliAyodhya_1920x1080.jpg)
+
 #### 20231111 Autumnal woodland and Young Peak, British Columbia, Canada (© David Noton/Minden)
 
 ![](20231111_YoungPeaks_1920x1080.jpg)
