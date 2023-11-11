@@ -1,3 +1,11 @@
+#### 20231111 Autumnal woodland and Young Peak, British Columbia, Canada (© David Noton/Minden)
+
+![](images/2023-11/20231111_YoungPeaks_1920x1080.jpg)
+
+#### 20231111 Sunset at the Washington Monument, Washington, DC (© Joe Daniel Price/Getty Images)
+
+![](images/2023-11/20231111_VeteransDayDC_1920x1080.jpg)
+
 #### 20231111 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利 (© Achim Thomae/Getty Images)
 
 ![](images/2023-11/20231111_ValDiFunes_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231103 Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2023-11/20231103_SeaNettles_1920x1080.jpg)
-
-#### 20231103 West Indian manatee mother and baby, Three Sisters Springs, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)
-
-![](images/2023-11/20231103_ManateeMama_1920x1080.jpg)
-
-#### 20231103 Hunsrück Hochwald, Herbstwald bei Deuselbach, Naherholungsgebiet Erbeskopf, Rheinland-Pfalz (© Hans-Peter Merten/Huber/eStock Photo)
-
-![](images/2023-11/20231103_HunsrueckHochwald_1920x1080.jpg)
 
 
 

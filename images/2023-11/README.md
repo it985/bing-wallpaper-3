@@ -1,3 +1,11 @@
+#### 20231111 Autumnal woodland and Young Peak, British Columbia, Canada (© David Noton/Minden)
+
+![](20231111_YoungPeaks_1920x1080.jpg)
+
+#### 20231111 Sunset at the Washington Monument, Washington, DC (© Joe Daniel Price/Getty Images)
+
+![](20231111_VeteransDayDC_1920x1080.jpg)
+
 #### 20231111 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利 (© Achim Thomae/Getty Images)
 
 ![](20231111_ValDiFunes_1920x1080.jpg)
