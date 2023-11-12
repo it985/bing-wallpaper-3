@@ -1,3 +1,7 @@
+#### 20231113 特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙 (© cinoby/Getty Images)
+
+![](20231113_OliveOrchard_1920x1080.jpg)
+
 #### 20231112 秋天池塘里的两只绿头鸭 (© sun ok/Shutterstock)
 
 ![](20231112_MallarDucks_1920x1080.jpg)

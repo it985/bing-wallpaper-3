@@ -1,3 +1,7 @@
+#### 20231113 特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙 (© cinoby/Getty Images)
+
+![](images/2023-11/20231113_OliveOrchard_1920x1080.jpg)
+
 #### 20231112 秋天池塘里的两只绿头鸭 (© sun ok/Shutterstock)
 
 ![](images/2023-11/20231112_MallarDucks_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231106 Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)
 
 ![](images/2023-11/20231106_LagoPehoe_1920x1080.jpg)
-
-#### 20231105 Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)
-
-![](images/2023-11/20231105_SilencioSpain_1920x1080.jpg)
 
 
 
