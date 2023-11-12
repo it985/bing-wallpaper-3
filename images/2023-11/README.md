@@ -2,7 +2,7 @@
 
 ![](20231112_MallarDucks_1920x1080.jpg)
 
-#### 20231112 ランプが灯るアヨーディヤー, インド (© SANJAY KANOJIA/AFP/Getty Images)
+#### 20231112 Lamps on the banks of the Sarayu River for Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)
 
 ![](20231112_DiwaliAyodhya_1920x1080.jpg)
 
