@@ -1,4 +1,4 @@
-#### 20231113 特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙 (© cinoby/Getty Images)
+#### 20231113 Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)
 
 ![](20231113_OliveOrchard_1920x1080.jpg)
 
