@@ -1,3 +1,7 @@
+#### 20231114 特卡波湖沿岸的鲁冰花，南岛，新西兰 (© Jeffrey Lewis/Tandem Stills + Motion)
+
+![](images/2023-11/20231114_RussellLupines_1920x1080.jpg)
+
 #### 20231113 Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)
 
 ![](images/2023-11/20231113_OliveOrchard_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231107 Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)
 
 ![](images/2023-11/20231107_KirkilaiTower_1920x1080.jpg)
-
-#### 20231106 Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)
-
-![](images/2023-11/20231106_LagoPehoe_1920x1080.jpg)
 
 
 
