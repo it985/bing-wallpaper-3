@@ -50,13 +50,13 @@
 
 ![](images/2023-11/20231109_NorwayBirch_1920x1080.jpg)
 
+#### 20231108 West Indian manatee mother and baby, Three Sisters Springs, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)
+
+![](images/2023-11/20231108_ManateeMama_1920x1080.jpg)
+
 #### 20231108 干し柿, 山梨県 南都留郡 富士河口湖町 (© STEPHEN FLEMING/Alamy Stock Photo)
 
 ![](images/2023-11/20231108_Lidong_1920x1080.jpg)
-
-#### 20231108 黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images)
-
-![](images/2023-11/20231108_LiDong_1920x1080.jpg)
 
 
 
