@@ -1,3 +1,7 @@
+#### 20231115 七五三の絵馬 (© 222studio/Shutterstock)
+
+![](images/2023-11/20231115_ShichiGoSan_1920x1080.jpg)
+
 #### 20231114 Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](images/2023-11/20231114_RussellLupines_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231108 West Indian manatee mother and baby, Three Sisters Springs, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)
 
 ![](images/2023-11/20231108_ManateeMama_1920x1080.jpg)
-
-#### 20231108 干し柿, 山梨県 南都留郡 富士河口湖町 (© STEPHEN FLEMING/Alamy Stock Photo)
-
-![](images/2023-11/20231108_Lidong_1920x1080.jpg)
 
 
 
