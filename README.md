@@ -2,6 +2,10 @@
 
 ![](images/2023-11/20231114_RussellLupines_1920x1080.jpg)
 
+#### 20231114 Vielblättrige Lupinen am Lake Tekapo, Südinsel, Neuseeland (© Jeffrey Lewis/Tandem Stills + Motion)
+
+![](images/2023-11/20231114_RusellLupines_1920x1080.jpg)
+
 #### 20231113 Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)
 
 ![](images/2023-11/20231113_OliveOrchard_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231108 黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images)
 
 ![](images/2023-11/20231108_LiDong_1920x1080.jpg)
-
-#### 20231107 Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)
-
-![](images/2023-11/20231107_KirkilaiTower_1920x1080.jpg)
 
 
 

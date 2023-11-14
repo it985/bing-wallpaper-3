@@ -2,6 +2,10 @@
 
 ![](20231114_RussellLupines_1920x1080.jpg)
 
+#### 20231114 Vielblättrige Lupinen am Lake Tekapo, Südinsel, Neuseeland (© Jeffrey Lewis/Tandem Stills + Motion)
+
+![](20231114_RusellLupines_1920x1080.jpg)
+
 #### 20231113 Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)
 
 ![](20231113_OliveOrchard_1920x1080.jpg)
