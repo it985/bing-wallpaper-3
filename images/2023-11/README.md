@@ -1,4 +1,4 @@
-#### 20231114 特卡波湖沿岸的鲁冰花，南岛，新西兰 (© Jeffrey Lewis/Tandem Stills + Motion)
+#### 20231114 Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](20231114_RussellLupines_1920x1080.jpg)
 
