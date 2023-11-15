@@ -34,7 +34,7 @@
 
 ![](20231111_ValDiFunes_1920x1080.jpg)
 
-#### 20231111 サレック国立公園, スウェーデン (© Hans Strand/Getty Images)
+#### 20231111 Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)
 
 ![](20231111_SarekSweden_1920x1080.jpg)
 
