@@ -1,3 +1,7 @@
+#### 20231116 雅典和卫城，希腊 (© Mlenny/Getty Images)
+
+![](images/2023-11/20231116_AthensAcropolis_1920x1080.jpg)
+
 #### 20231115 七五三の絵馬 (© 222studio/Shutterstock)
 
 ![](images/2023-11/20231115_ShichiGoSan_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231109 Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)
 
 ![](images/2023-11/20231109_NorwayBirch_1920x1080.jpg)
-
-#### 20231108 West Indian manatee mother and baby, Three Sisters Springs, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)
-
-![](images/2023-11/20231108_ManateeMama_1920x1080.jpg)
 
 
 

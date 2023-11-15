@@ -1,3 +1,7 @@
+#### 20231116 雅典和卫城，希腊 (© Mlenny/Getty Images)
+
+![](20231116_AthensAcropolis_1920x1080.jpg)
+
 #### 20231115 七五三の絵馬 (© 222studio/Shutterstock)
 
 ![](20231115_ShichiGoSan_1920x1080.jpg)
