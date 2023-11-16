@@ -1,3 +1,7 @@
+#### 20231116 Moulin à vent dans les vignes, France (© Marco Bottigelli/Getty Images)
+
+![](images/2023-11/20231116_BeaujolaisVineyard_1920x1080.jpg)
+
 #### 20231116 雅典和卫城，希腊 (© Mlenny/Getty Images)
 
 ![](images/2023-11/20231116_AthensAcropolis_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231110 Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)
 
 ![](images/2023-11/20231110_BadlandsSunrise_1920x1080.jpg)
-
-#### 20231109 Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)
-
-![](images/2023-11/20231109_NorwayBirch_1920x1080.jpg)
 
 
 
