@@ -1,8 +1,12 @@
+#### 20231116 Festival of Lights, VanDusen Botanical Garden, Vancouver (© Wiliam Perry/Alamy Stock Photo)
+
+![](images/2023-11/20231116_VanDusenGarden_1920x1080.jpg)
+
 #### 20231116 Moulin à vent dans les vignes, France (© Marco Bottigelli/Getty Images)
 
 ![](images/2023-11/20231116_BeaujolaisVineyard_1920x1080.jpg)
 
-#### 20231116 雅典和卫城，希腊 (© Mlenny/Getty Images)
+#### 20231116 View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)
 
 ![](images/2023-11/20231116_AthensAcropolis_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20231110 Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)
 
 ![](images/2023-11/20231110_SchwerinerSchloss_1920x1080.jpg)
-
-#### 20231110 Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)
-
-![](images/2023-11/20231110_BadlandsSunrise_1920x1080.jpg)
 
 
 

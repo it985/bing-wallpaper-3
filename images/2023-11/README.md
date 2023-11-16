@@ -1,8 +1,12 @@
+#### 20231116 Festival of Lights, VanDusen Botanical Garden, Vancouver (© Wiliam Perry/Alamy Stock Photo)
+
+![](20231116_VanDusenGarden_1920x1080.jpg)
+
 #### 20231116 Moulin à vent dans les vignes, France (© Marco Bottigelli/Getty Images)
 
 ![](20231116_BeaujolaisVineyard_1920x1080.jpg)
 
-#### 20231116 雅典和卫城，希腊 (© Mlenny/Getty Images)
+#### 20231116 View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)
 
 ![](20231116_AthensAcropolis_1920x1080.jpg)
 
