@@ -1,3 +1,11 @@
+#### 20231117 グランド・ティトン国立公園, 米国 ワイオミング州 (© Westend61/Getty Images)
+
+![](images/2023-11/20231117_SnakeRiverTeton_1920x1080.jpg)
+
+#### 20231117 铜瀑布州立公园的巴德河，威斯康星州，美国 (© Big Joe/Getty Images)
+
+![](images/2023-11/20231117_BadRiver_1920x1080.jpg)
+
 #### 20231116 Festival of Lights, VanDusen Botanical Garden, Vancouver (© Wiliam Perry/Alamy Stock Photo)
 
 ![](images/2023-11/20231116_VanDusenGarden_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231111 Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)
 
 ![](images/2023-11/20231111_SarekSweden_1920x1080.jpg)
-
-#### 20231111 Drapeau français sous l’Arc de Triomphe, Paris, France (© Wiliam Perry/Alamy Stock Photo)
-
-![](images/2023-11/20231111_RemembranceDay_1920x1080.jpg)
-
-#### 20231110 Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)
-
-![](images/2023-11/20231110_SchwerinerSchloss_1920x1080.jpg)
 
 
 
