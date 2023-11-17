@@ -2,6 +2,10 @@
 
 ![](images/2023-11/20231117_SnakeRiverTeton_1920x1080.jpg)
 
+#### 20231117 Königssee im Herbst, Berchtesgaden, Bayern (© rusm/Getty Images)
+
+![](images/2023-11/20231117_KoenigseeLake_1920x1080.jpg)
+
 #### 20231117 铜瀑布州立公园的巴德河，威斯康星州，美国 (© Big Joe/Getty Images)
 
 ![](images/2023-11/20231117_BadRiver_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231111 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利 (© Achim Thomae/Getty Images)
 
 ![](images/2023-11/20231111_ValDiFunes_1920x1080.jpg)
-
-#### 20231111 Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)
-
-![](images/2023-11/20231111_SarekSweden_1920x1080.jpg)
 
 
 
