@@ -6,7 +6,7 @@
 
 ![](20231117_KoenigseeLake_1920x1080.jpg)
 
-#### 20231117 铜瀑布州立公园的巴德河，威斯康星州，美国 (© Big Joe/Getty Images)
+#### 20231117 Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)
 
 ![](20231117_BadRiver_1920x1080.jpg)
 
