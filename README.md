@@ -1,3 +1,7 @@
+#### 20231118 北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大 (© Thorsten Milse/Getty Images)
+
+![](images/2023-11/20231118_MilsePolarBear_1920x1080.jpg)
+
 #### 20231117 グランド・ティトン国立公園, 米国 ワイオミング州 (© Westend61/Getty Images)
 
 ![](images/2023-11/20231117_SnakeRiverTeton_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231111 Sunset at the Washington Monument, Washington, DC (© Joe Daniel Price/Getty Images)
 
 ![](images/2023-11/20231111_VeteransDayDC_1920x1080.jpg)
-
-#### 20231111 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利 (© Achim Thomae/Getty Images)
-
-![](images/2023-11/20231111_ValDiFunes_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20231118 北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大 (© Thorsten Milse/Getty Images)
+
+![](20231118_MilsePolarBear_1920x1080.jpg)
+
 #### 20231117 グランド・ティトン国立公園, 米国 ワイオミング州 (© Westend61/Getty Images)
 
 ![](20231117_SnakeRiverTeton_1920x1080.jpg)
