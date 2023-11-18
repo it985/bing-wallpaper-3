@@ -1,3 +1,7 @@
+#### 20231119 Alam-Pedja自然保护区，爱沙尼亚 (© Sven Zacek/Minden Pictures)
+
+![](images/2023-11/20231119_FrozenBog_1920x1080.jpg)
+
 #### 20231118 Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)
 
 ![](images/2023-11/20231118_MilsePolarBear_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231111 Autumnal woodland and Young Peak, British Columbia, Canada (© David Noton/Minden)
 
 ![](images/2023-11/20231111_YoungPeaks_1920x1080.jpg)
-
-#### 20231111 Sunset at the Washington Monument, Washington, DC (© Joe Daniel Price/Getty Images)
-
-![](images/2023-11/20231111_VeteransDayDC_1920x1080.jpg)
 
 
 

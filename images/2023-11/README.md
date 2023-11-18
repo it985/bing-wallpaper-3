@@ -1,3 +1,7 @@
+#### 20231119 Alam-Pedja自然保护区，爱沙尼亚 (© Sven Zacek/Minden Pictures)
+
+![](20231119_FrozenBog_1920x1080.jpg)
+
 #### 20231118 Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)
 
 ![](20231118_MilsePolarBear_1920x1080.jpg)
