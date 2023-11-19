@@ -1,3 +1,11 @@
+#### 20231120 ギャザリング・プレイス公園内の滑り台, 米国 オクラホマ州 (© Susan Vineyard/Alamy)
+
+![](images/2023-11/20231120_ChapmanAdventure_1920x1080.jpg)
+
+#### 20231120 科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲 (© Billy Stock/robertharding/Alamy Stock Photo)
+
+![](images/2023-11/20231120_CastleCoch_1920x1080.jpg)
+
 #### 20231119 Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)
 
 ![](images/2023-11/20231119_FrozenBog_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231112 秋天池塘里的两只绿头鸭 (© sun ok/Shutterstock)
 
 ![](images/2023-11/20231112_MallarDucks_1920x1080.jpg)
-
-#### 20231112 Lamps on the banks of the Sarayu River for Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)
-
-![](images/2023-11/20231112_DiwaliAyodhya_1920x1080.jpg)
-
-#### 20231111 Autumnal woodland and Young Peak, British Columbia, Canada (© David Noton/Minden)
-
-![](images/2023-11/20231111_YoungPeaks_1920x1080.jpg)
 
 
 
