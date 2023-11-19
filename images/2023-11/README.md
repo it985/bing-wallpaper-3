@@ -1,4 +1,4 @@
-#### 20231119 Alam-Pedja自然保护区，爱沙尼亚 (© Sven Zacek/Minden Pictures)
+#### 20231119 Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)
 
 ![](20231119_FrozenBog_1920x1080.jpg)
 
