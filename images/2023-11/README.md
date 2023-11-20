@@ -1,3 +1,7 @@
+#### 20231121 英国诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures)
+
+![](20231121_HelloSeal_1920x1080.jpg)
+
 #### 20231120 Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)
 
 ![](20231120_ChapmanAdventure_1920x1080.jpg)

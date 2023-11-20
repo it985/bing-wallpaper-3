@@ -1,3 +1,7 @@
+#### 20231121 英国诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures)
+
+![](images/2023-11/20231121_HelloSeal_1920x1080.jpg)
+
 #### 20231120 Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)
 
 ![](images/2023-11/20231120_ChapmanAdventure_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231113 Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)
 
 ![](images/2023-11/20231113_OliveOrchard_1920x1080.jpg)
-
-#### 20231112 秋天池塘里的两只绿头鸭 (© sun ok/Shutterstock)
-
-![](images/2023-11/20231112_MallarDucks_1920x1080.jpg)
 
 
 
