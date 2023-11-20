@@ -1,4 +1,4 @@
-#### 20231120 ギャザリング・プレイス公園内の滑り台, 米国 オクラホマ州 (© Susan Vineyard/Alamy)
+#### 20231120 Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)
 
 ![](20231120_ChapmanAdventure_1920x1080.jpg)
 
