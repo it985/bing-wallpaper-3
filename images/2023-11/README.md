@@ -46,6 +46,10 @@
 
 ![](20231115_ShichiGoSan_1920x1080.jpg)
 
+#### 20231115 Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)
+
+![](20231115_SarekSweden_1920x1080.jpg)
+
 #### 20231114 Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](20231114_RussellLupines_1920x1080.jpg)

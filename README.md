@@ -46,6 +46,10 @@
 
 ![](images/2023-11/20231115_ShichiGoSan_1920x1080.jpg)
 
+#### 20231115 Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)
+
+![](images/2023-11/20231115_SarekSweden_1920x1080.jpg)
+
 #### 20231114 Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](images/2023-11/20231114_RussellLupines_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231114 Vielblättrige Lupinen am Lake Tekapo, Südinsel, Neuseeland (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](images/2023-11/20231114_RusellLupines_1920x1080.jpg)
-
-#### 20231113 Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)
-
-![](images/2023-11/20231113_OliveOrchard_1920x1080.jpg)
 
 
 
