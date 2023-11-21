@@ -2,7 +2,7 @@
 
 ![](images/2023-11/20231121_RioNegro_1920x1080.jpg)
 
-#### 20231121 英国诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures)
+#### 20231121 Gray seal pup, Norfolk, England (© Vince Burton/Minden Pictures)
 
 ![](images/2023-11/20231121_HelloSeal_1920x1080.jpg)
 
