@@ -1,3 +1,7 @@
+#### 20231122 初冬の阿寒湖周辺, 北海道 釧路市 (© vladimir zakharov/Getty Images)
+
+![](images/2023-11/20231122_Xiaoxue_1920x1080.jpg)
+
 #### 20231121 Río Negro, Amazonasbecken, Brasilien (© Timothy Allen/Getty Images)
 
 ![](images/2023-11/20231121_RioNegro_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231115 Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)
 
 ![](images/2023-11/20231115_SarekSweden_1920x1080.jpg)
-
-#### 20231114 Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)
-
-![](images/2023-11/20231114_RussellLupines_1920x1080.jpg)
 
 
 

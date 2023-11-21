@@ -1,3 +1,7 @@
+#### 20231122 初冬の阿寒湖周辺, 北海道 釧路市 (© vladimir zakharov/Getty Images)
+
+![](20231122_Xiaoxue_1920x1080.jpg)
+
 #### 20231121 Río Negro, Amazonasbecken, Brasilien (© Timothy Allen/Getty Images)
 
 ![](20231121_RioNegro_1920x1080.jpg)
