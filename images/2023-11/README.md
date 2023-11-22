@@ -1,3 +1,11 @@
+#### 20231123 泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙 (© Javier Martínez Morán/Alamy)
+
+![](20231123_TeideNational_1920x1080.jpg)
+
+#### 20231123 ブラッドゲート・パーク, イギリス イングランド (© Chris Bainbridge/Alamy)
+
+![](20231123_BradgateFallow_1920x1080.jpg)
+
 #### 20231122 初冬の阿寒湖周辺, 北海道 釧路市 (© vladimir zakharov/Getty Images)
 
 ![](20231122_Xiaoxue_1920x1080.jpg)
