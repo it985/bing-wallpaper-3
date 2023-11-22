@@ -26,7 +26,7 @@
 
 ![](images/2023-11/20231118_MilsePolarBear_1920x1080.jpg)
 
-#### 20231117 グランド・ティトン国立公園, 米国 ワイオミング州 (© Westend61/Getty Images)
+#### 20231117 Grand Teton National Park, Wyoming (© Westend61/Getty Images)
 
 ![](images/2023-11/20231117_SnakeRiverTeton_1920x1080.jpg)
 
