@@ -2,6 +2,10 @@
 
 ![](20231123_TeideNational_1920x1080.jpg)
 
+#### 20231123 Flint corn (© Cynthia Liang/Shutterstock)
+
+![](20231123_FlintCorn_1920x1080.jpg)
+
 #### 20231123 Flamants roses au lever du soleil, Saintes-Maries-de-la-Mer, Parc Naturel Régional de Camargue, France (© Image via Shutterstock)
 
 ![](20231123_FlamingosSaintesMaries_1920x1080.jpg)
