@@ -2,6 +2,10 @@
 
 ![](20231123_TeideNational_1920x1080.jpg)
 
+#### 20231123 Flamants roses au lever du soleil, Saintes-Maries-de-la-Mer, Parc Naturel Régional de Camargue, France (© Image via Shutterstock)
+
+![](20231123_FlamingosSaintesMaries_1920x1080.jpg)
+
 #### 20231123 ブラッドゲート・パーク, イギリス イングランド (© Chris Bainbridge/Alamy)
 
 ![](20231123_BradgateFallow_1920x1080.jpg)

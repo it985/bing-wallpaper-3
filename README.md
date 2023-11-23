@@ -2,6 +2,10 @@
 
 ![](images/2023-11/20231123_TeideNational_1920x1080.jpg)
 
+#### 20231123 Flamants roses au lever du soleil, Saintes-Maries-de-la-Mer, Parc Naturel Régional de Camargue, France (© Image via Shutterstock)
+
+![](images/2023-11/20231123_FlamingosSaintesMaries_1920x1080.jpg)
+
 #### 20231123 ブラッドゲート・パーク, イギリス イングランド (© Chris Bainbridge/Alamy)
 
 ![](images/2023-11/20231123_BradgateFallow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231116 Moulin à vent dans les vignes, France (© Marco Bottigelli/Getty Images)
 
 ![](images/2023-11/20231116_BeaujolaisVineyard_1920x1080.jpg)
-
-#### 20231116 View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)
-
-![](images/2023-11/20231116_AthensAcropolis_1920x1080.jpg)
 
 
 
