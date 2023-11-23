@@ -1,3 +1,7 @@
+#### 20231124 奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国 (© James Randklev/Getty Images)
+
+![](images/2023-11/20231124_HallofMosses_1920x1080.jpg)
+
 #### 20231123 泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙 (© Javier Martínez Morán/Alamy)
 
 ![](images/2023-11/20231123_TeideNational_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231117 Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)
 
 ![](images/2023-11/20231117_BadRiver_1920x1080.jpg)
-
-#### 20231116 Festival of Lights, VanDusen Botanical Garden, Vancouver (© Wiliam Perry/Alamy Stock Photo)
-
-![](images/2023-11/20231116_VanDusenGarden_1920x1080.jpg)
 
 
 
