@@ -1,3 +1,7 @@
+#### 20231125 托莱多，西班牙 (© Carlos Fernandez/Getty Images)
+
+![](images/2023-11/20231125_TajoRiver_1920x1080.jpg)
+
 #### 20231124 Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)
 
 ![](images/2023-11/20231124_HallofMosses_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231117 Königssee im Herbst, Berchtesgaden, Bayern (© rusm/Getty Images)
 
 ![](images/2023-11/20231117_KoenigseeLake_1920x1080.jpg)
-
-#### 20231117 Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)
-
-![](images/2023-11/20231117_BadRiver_1920x1080.jpg)
 
 
 
