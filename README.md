@@ -1,4 +1,4 @@
-#### 20231124 奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国 (© James Randklev/Getty Images)
+#### 20231124 Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)
 
 ![](images/2023-11/20231124_HallofMosses_1920x1080.jpg)
 
