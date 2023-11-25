@@ -1,6 +1,10 @@
-#### 20231125 托莱多，西班牙 (© Carlos Fernandez/Getty Images)
+#### 20231125 Toledo, Spain (© Carlos Fernandez/Getty Images)
 
 ![](20231125_TajoRiver_1920x1080.jpg)
+
+#### 20231125 Mount Logan in Kluane National Park and Reserve, Yukon, Canada (© A. Michael Brown/Shutterstock)
+
+![](20231125_KluaneNationalPark_1920x1080.jpg)
 
 #### 20231124 Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)
 
