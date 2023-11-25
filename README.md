@@ -1,3 +1,7 @@
+#### 20231126 修善寺温泉街, 静岡県 伊豆市 (© JaCZhou 2015/Getty Images)
+
+![](images/2023-11/20231126_BathingDay_1920x1080.jpg)
+
 #### 20231125 Toledo, Spain (© Carlos Fernandez/Getty Images)
 
 ![](images/2023-11/20231125_TajoRiver_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231118 Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)
 
 ![](images/2023-11/20231118_MilsePolarBear_1920x1080.jpg)
-
-#### 20231117 Grand Teton National Park, Wyoming (© Westend61/Getty Images)
-
-![](images/2023-11/20231117_SnakeRiverTeton_1920x1080.jpg)
 
 
 
