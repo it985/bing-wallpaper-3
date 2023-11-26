@@ -26,7 +26,7 @@
 
 ![](images/2023-11/20231123_FlamingosSaintesMaries_1920x1080.jpg)
 
-#### 20231123 ブラッドゲート・パーク, イギリス イングランド (© Chris Bainbridge/Alamy)
+#### 20231123 Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)
 
 ![](images/2023-11/20231123_BradgateFallow_1920x1080.jpg)
 
