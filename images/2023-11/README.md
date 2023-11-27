@@ -1,3 +1,11 @@
+#### 20231128 手と手をつなぐ巨大な地上絵, トルコ イスタンブール (© Chris McGrath/Getty Images)
+
+![](20231128_HumanKindness_1920x1080.jpg)
+
+#### 20231128 阿西尼博因山省级公园，加拿大 (© matt macpherson/500px/Getty Images)
+
+![](20231128_AssiniboineProvincialPark_1920x1080.jpg)
+
 #### 20231127 Weihnachtsmarkt in Frankfurt am Main, Hessen (© Michael Abid/Alamy Stock Photo)
 
 ![](20231127_FrankfurtChristmasMarket_1920x1080.jpg)

@@ -1,3 +1,11 @@
+#### 20231128 手と手をつなぐ巨大な地上絵, トルコ イスタンブール (© Chris McGrath/Getty Images)
+
+![](images/2023-11/20231128_HumanKindness_1920x1080.jpg)
+
+#### 20231128 阿西尼博因山省级公园，加拿大 (© matt macpherson/500px/Getty Images)
+
+![](images/2023-11/20231128_AssiniboineProvincialPark_1920x1080.jpg)
+
 #### 20231127 Weihnachtsmarkt in Frankfurt am Main, Hessen (© Michael Abid/Alamy Stock Photo)
 
 ![](images/2023-11/20231127_FrankfurtChristmasMarket_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231120 Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)
 
 ![](images/2023-11/20231120_ChapmanAdventure_1920x1080.jpg)
-
-#### 20231120 科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲 (© Billy Stock/robertharding/Alamy Stock Photo)
-
-![](images/2023-11/20231120_CastleCoch_1920x1080.jpg)
-
-#### 20231119 Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)
-
-![](images/2023-11/20231119_FrozenBog_1920x1080.jpg)
 
 
 
