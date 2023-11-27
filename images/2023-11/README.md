@@ -1,3 +1,7 @@
+#### 20231127 Weihnachtsmarkt in Frankfurt am Main, Hessen (© Michael Abid/Alamy Stock Photo)
+
+![](20231127_FrankfurtChristmasMarket_1920x1080.jpg)
+
 #### 20231126 修善寺温泉街, 静岡県 伊豆市 (© JaCZhou 2015/Getty Images)
 
 ![](20231126_BathingDay_1920x1080.jpg)

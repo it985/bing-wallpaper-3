@@ -1,3 +1,7 @@
+#### 20231127 Weihnachtsmarkt in Frankfurt am Main, Hessen (© Michael Abid/Alamy Stock Photo)
+
+![](images/2023-11/20231127_FrankfurtChristmasMarket_1920x1080.jpg)
+
 #### 20231126 修善寺温泉街, 静岡県 伊豆市 (© JaCZhou 2015/Getty Images)
 
 ![](images/2023-11/20231126_BathingDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231119 Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)
 
 ![](images/2023-11/20231119_FrozenBog_1920x1080.jpg)
-
-#### 20231118 Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)
-
-![](images/2023-11/20231118_MilsePolarBear_1920x1080.jpg)
 
 
 
