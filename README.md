@@ -38,7 +38,7 @@
 
 ![](images/2023-11/20231122_Xiaoxue_1920x1080.jpg)
 
-#### 20231121 Río Negro, Amazonasbecken, Brasilien (© Timothy Allen/Getty Images)
+#### 20231121 Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)
 
 ![](images/2023-11/20231121_RioNegro_1920x1080.jpg)
 
