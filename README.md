@@ -1,3 +1,11 @@
+#### 20231129 ロックフェラーセンター,  米国 ニューヨーク州 (© Jonathan Orenstein/Getty Images)
+
+![](images/2023-11/20231129_TreeLighting_1920x1080.jpg)
+
+#### 20231129 什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国 (© Hannes Wendt/Shutterstock)
+
+![](images/2023-11/20231129_SchwerinerSchloss_1920x1080.jpg)
+
 #### 20231128 Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)
 
 ![](images/2023-11/20231128_HumanKindness_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231121 Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)
 
 ![](images/2023-11/20231121_RioNegro_1920x1080.jpg)
-
-#### 20231121 Gray seal pup, Norfolk, England (© Vince Burton/Minden Pictures)
-
-![](images/2023-11/20231121_HelloSeal_1920x1080.jpg)
-
-#### 20231120 Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)
-
-![](images/2023-11/20231120_ChapmanAdventure_1920x1080.jpg)
 
 
 

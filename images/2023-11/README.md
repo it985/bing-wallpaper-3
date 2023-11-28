@@ -1,3 +1,11 @@
+#### 20231129 ロックフェラーセンター,  米国 ニューヨーク州 (© Jonathan Orenstein/Getty Images)
+
+![](20231129_TreeLighting_1920x1080.jpg)
+
+#### 20231129 什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国 (© Hannes Wendt/Shutterstock)
+
+![](20231129_SchwerinerSchloss_1920x1080.jpg)
+
 #### 20231128 Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)
 
 ![](20231128_HumanKindness_1920x1080.jpg)
