@@ -54,6 +54,10 @@
 
 ![](20231122_Xiaoxue_1920x1080.jpg)
 
+#### 20231122 Grand Teton National Park, Wyoming (© Westend61/Getty Images)
+
+![](20231122_SnakeRiverTeton_1920x1080.jpg)
+
 #### 20231121 Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)
 
 ![](20231121_RioNegro_1920x1080.jpg)
