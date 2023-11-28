@@ -1,4 +1,4 @@
-#### 20231128 手と手をつなぐ巨大な地上絵, トルコ イスタンブール (© Chris McGrath/Getty Images)
+#### 20231128 Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)
 
 ![](20231128_HumanKindness_1920x1080.jpg)
 
