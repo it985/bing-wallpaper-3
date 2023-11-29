@@ -1,4 +1,4 @@
-#### 20231129 ロックフェラーセンター,  米国 ニューヨーク州 (© Jonathan Orenstein/Getty Images)
+#### 20231129 Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)
 
 ![](images/2023-11/20231129_TreeLighting_1920x1080.jpg)
 
