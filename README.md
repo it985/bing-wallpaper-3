@@ -1,3 +1,7 @@
+#### 20231130 斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国 (© Juan Maria Coy Vergara/Getty Images)
+
+![](images/2023-11/20231130_TrotternishStorr_1920x1080.jpg)
+
 #### 20231129 Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)
 
 ![](images/2023-11/20231129_TreeLighting_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231122 初冬の阿寒湖周辺, 北海道 釧路市 (© vladimir zakharov/Getty Images)
 
 ![](images/2023-11/20231122_Xiaoxue_1920x1080.jpg)
-
-#### 20231122 Grand Teton National Park, Wyoming (© Westend61/Getty Images)
-
-![](images/2023-11/20231122_SnakeRiverTeton_1920x1080.jpg)
 
 
 

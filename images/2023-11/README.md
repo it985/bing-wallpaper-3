@@ -1,3 +1,7 @@
+#### 20231130 斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国 (© Juan Maria Coy Vergara/Getty Images)
+
+![](20231130_TrotternishStorr_1920x1080.jpg)
+
 #### 20231129 Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)
 
 ![](20231129_TreeLighting_1920x1080.jpg)
