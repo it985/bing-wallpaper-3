@@ -2,6 +2,10 @@
 
 ![](20231130_TrotternishStorr_1920x1080.jpg)
 
+#### 20231130 Cyprès chauves à l'étang de Boulieu, Isère, France (© photosimysia/Getty Images)
+
+![](20231130_BaldCypress_1920x1080.jpg)
+
 #### 20231129 Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)
 
 ![](20231129_TreeLighting_1920x1080.jpg)

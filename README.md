@@ -2,6 +2,10 @@
 
 ![](images/2023-11/20231130_TrotternishStorr_1920x1080.jpg)
 
+#### 20231130 Cyprès chauves à l'étang de Boulieu, Isère, France (© photosimysia/Getty Images)
+
+![](images/2023-11/20231130_BaldCypress_1920x1080.jpg)
+
 #### 20231129 Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)
 
 ![](images/2023-11/20231129_TreeLighting_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231123 Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)
 
 ![](images/2023-11/20231123_BradgateFallow_1920x1080.jpg)
-
-#### 20231122 初冬の阿寒湖周辺, 北海道 釧路市 (© vladimir zakharov/Getty Images)
-
-![](images/2023-11/20231122_Xiaoxue_1920x1080.jpg)
 
 
 
