@@ -1,4 +1,4 @@
-#### 20231130 斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国 (© Juan Maria Coy Vergara/Getty Images)
+#### 20231130 The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)
 
 ![](20231130_TrotternishStorr_1920x1080.jpg)
 
