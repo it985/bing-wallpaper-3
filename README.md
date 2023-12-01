@@ -50,13 +50,13 @@
 
 ![](images/2023-11/20231127_FrankfurtChristmasMarket_1920x1080.jpg)
 
+#### 20231126 Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)
+
+![](images/2023-11/20231126_BradgateFallow_1920x1080.jpg)
+
 #### 20231126 修善寺温泉街, 静岡県 伊豆市 (© JaCZhou 2015/Getty Images)
 
 ![](images/2023-11/20231126_BathingDay_1920x1080.jpg)
-
-#### 20231125 Toledo, Spain (© Carlos Fernandez/Getty Images)
-
-![](images/2023-11/20231125_TajoRiver_1920x1080.jpg)
 
 
 
