@@ -1,4 +1,12 @@
-#### 20231201 罗斯海的冰山，南极洲 (© Michel Roggo/Minden Pictures)
+#### 20231202 Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Getty Images)
+
+![](images/2023-12/20231202_JasperDarkSky_1920x1080.jpg)
+
+#### 20231201 Lake Minnewanka, Alberta, Canada (© Ken Phung/500px/Getty Images)
+
+![](images/2023-12/20231201_MinnewankaLake_1920x1080.jpg)
+
+#### 20231201 Iceberg in the Ross Sea, Antarctica (© Michel Roggo/Minden Pictures)
 
 ![](images/2023-12/20231201_IcebergAntarctica_1920x1080.jpg)
 
@@ -49,14 +57,6 @@
 #### 20231123 泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙 (© Javier Martínez Morán/Alamy)
 
 ![](images/2023-11/20231123_TeideNational_1920x1080.jpg)
-
-#### 20231123 Flint corn (© Cynthia Liang/Shutterstock)
-
-![](images/2023-11/20231123_FlintCorn_1920x1080.jpg)
-
-#### 20231123 Flamants roses au lever du soleil, Saintes-Maries-de-la-Mer, Parc Naturel Régional de Camargue, France (© Image via Shutterstock)
-
-![](images/2023-11/20231123_FlamingosSaintesMaries_1920x1080.jpg)
 
 
 
