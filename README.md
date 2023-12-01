@@ -2,6 +2,14 @@
 
 ![](images/2023-12/20231202_JasperDarkSky_1920x1080.jpg)
 
+#### 20231202 瓜廖尔堡，中央邦，印度 (© Dmitry Rukhlenko-Photos of India/Alamy)
+
+![](images/2023-12/20231202_GwaliorFortMP_1920x1080.jpg)
+
+#### 20231202 アンコール遺跡, カンボジア (© Amazing Travel Lifestyle/Shutterstock)
+
+![](images/2023-12/20231202_AngkorPark_1920x1080.jpg)
+
 #### 20231201 Lake Minnewanka, Alberta, Canada (© Ken Phung/500px/Getty Images)
 
 ![](images/2023-12/20231201_MinnewankaLake_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231125 Toledo, Spain (© Carlos Fernandez/Getty Images)
 
 ![](images/2023-11/20231125_TajoRiver_1920x1080.jpg)
-
-#### 20231125 Mount Logan in Kluane National Park and Reserve, Yukon, Canada (© A. Michael Brown/Shutterstock)
-
-![](images/2023-11/20231125_KluaneNationalPark_1920x1080.jpg)
-
-#### 20231124 Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)
-
-![](images/2023-11/20231124_HallofMosses_1920x1080.jpg)
 
 
 

@@ -2,6 +2,14 @@
 
 ![](20231202_JasperDarkSky_1920x1080.jpg)
 
+#### 20231202 瓜廖尔堡，中央邦，印度 (© Dmitry Rukhlenko-Photos of India/Alamy)
+
+![](20231202_GwaliorFortMP_1920x1080.jpg)
+
+#### 20231202 アンコール遺跡, カンボジア (© Amazing Travel Lifestyle/Shutterstock)
+
+![](20231202_AngkorPark_1920x1080.jpg)
+
 #### 20231201 Lake Minnewanka, Alberta, Canada (© Ken Phung/500px/Getty Images)
 
 ![](20231201_MinnewankaLake_1920x1080.jpg)
