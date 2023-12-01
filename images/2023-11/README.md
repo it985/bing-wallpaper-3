@@ -22,6 +22,10 @@
 
 ![](20231128_AssiniboineProvincialPark_1920x1080.jpg)
 
+#### 20231127 Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)
+
+![](20231127_RioNegro_1920x1080.jpg)
+
 #### 20231127 Weihnachtsmarkt in Frankfurt am Main, Hessen (© Michael Abid/Alamy Stock Photo)
 
 ![](20231127_FrankfurtChristmasMarket_1920x1080.jpg)

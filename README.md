@@ -34,6 +34,10 @@
 
 ![](images/2023-11/20231128_AssiniboineProvincialPark_1920x1080.jpg)
 
+#### 20231127 Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)
+
+![](images/2023-11/20231127_RioNegro_1920x1080.jpg)
+
 #### 20231127 Weihnachtsmarkt in Frankfurt am Main, Hessen (© Michael Abid/Alamy Stock Photo)
 
 ![](images/2023-11/20231127_FrankfurtChristmasMarket_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231124 Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)
 
 ![](images/2023-11/20231124_HallofMosses_1920x1080.jpg)
-
-#### 20231123 泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙 (© Javier Martínez Morán/Alamy)
-
-![](images/2023-11/20231123_TeideNational_1920x1080.jpg)
 
 
 
