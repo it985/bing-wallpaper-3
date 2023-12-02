@@ -1,3 +1,11 @@
+#### 20231203 砂岩岩层，红悬崖国家保护区，亚利桑那州，美国 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](images/2023-12/20231203_VermilionCliffs_1920x1080.jpg)
+
+#### 20231203 豪華絢爛な山車と花火, 埼玉県 秩父市 (© ASSOCIATED PRESS/AP)
+
+![](images/2023-12/20231203_ChichibuNightFestival_1920x1080.jpg)
+
 #### 20231202 Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Getty Images)
 
 ![](images/2023-12/20231202_JasperDarkSky_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231127 Weihnachtsmarkt in Frankfurt am Main, Hessen (© Michael Abid/Alamy Stock Photo)
 
 ![](images/2023-11/20231127_FrankfurtChristmasMarket_1920x1080.jpg)
-
-#### 20231126 Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)
-
-![](images/2023-11/20231126_BradgateFallow_1920x1080.jpg)
-
-#### 20231126 修善寺温泉街, 静岡県 伊豆市 (© JaCZhou 2015/Getty Images)
-
-![](images/2023-11/20231126_BathingDay_1920x1080.jpg)
 
 
 
