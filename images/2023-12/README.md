@@ -6,7 +6,7 @@
 
 ![](20231202_GwaliorFortMP_1920x1080.jpg)
 
-#### 20231202 アンコール遺跡, カンボジア (© Amazing Travel Lifestyle/Shutterstock)
+#### 20231202 North Gate of Angkor Thom, Angkor Archaeological Park, Cambodia (© Amazing Travel Lifestyle/Shutterstock)
 
 ![](20231202_AngkorPark_1920x1080.jpg)
 
