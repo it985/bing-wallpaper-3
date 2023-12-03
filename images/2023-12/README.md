@@ -1,4 +1,4 @@
-#### 20231203 砂岩岩层，红悬崖国家保护区，亚利桑那州，美国 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+#### 20231203 Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](20231203_VermilionCliffs_1920x1080.jpg)
 
