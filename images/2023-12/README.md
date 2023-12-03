@@ -1,3 +1,7 @@
+#### 20231204 一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚 (© Scott Davis/Tandem Stills + Motion)
+
+![](20231204_CheetahDay_1920x1080.jpg)
+
 #### 20231203 Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](20231203_VermilionCliffs_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20231204 一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚 (© Scott Davis/Tandem Stills + Motion)
+
+![](images/2023-12/20231204_CheetahDay_1920x1080.jpg)
+
 #### 20231203 Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2023-12/20231203_VermilionCliffs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231128 阿西尼博因山省级公园，加拿大 (© matt macpherson/500px/Getty Images)
 
 ![](images/2023-11/20231128_AssiniboineProvincialPark_1920x1080.jpg)
-
-#### 20231127 Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)
-
-![](images/2023-11/20231127_RioNegro_1920x1080.jpg)
 
 
 
