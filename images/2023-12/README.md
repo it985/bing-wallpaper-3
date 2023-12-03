@@ -6,6 +6,10 @@
 
 ![](20231203_ChichibuNightFestival_1920x1080.jpg)
 
+#### 20231203 Die Adventszeit beginnt (© Muenz/Getty Images)
+
+![](20231203_AdventCandles_1920x1080.jpg)
+
 #### 20231202 Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Getty Images)
 
 ![](20231202_JasperDarkSky_1920x1080.jpg)

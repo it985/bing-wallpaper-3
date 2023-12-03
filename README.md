@@ -6,6 +6,10 @@
 
 ![](images/2023-12/20231203_ChichibuNightFestival_1920x1080.jpg)
 
+#### 20231203 Die Adventszeit beginnt (© Muenz/Getty Images)
+
+![](images/2023-12/20231203_AdventCandles_1920x1080.jpg)
+
 #### 20231202 Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Getty Images)
 
 ![](images/2023-12/20231202_JasperDarkSky_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231127 Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)
 
 ![](images/2023-11/20231127_RioNegro_1920x1080.jpg)
-
-#### 20231127 Weihnachtsmarkt in Frankfurt am Main, Hessen (© Michael Abid/Alamy Stock Photo)
-
-![](images/2023-11/20231127_FrankfurtChristmasMarket_1920x1080.jpg)
 
 
 
