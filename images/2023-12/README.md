@@ -1,4 +1,4 @@
-#### 20231204 一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚 (© Scott Davis/Tandem Stills + Motion)
+#### 20231204 A mother cheetah and her cubs in the Maasai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)
 
 ![](20231204_CheetahDay_1920x1080.jpg)
 
