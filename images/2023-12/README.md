@@ -1,3 +1,7 @@
+#### 20231205 天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国 (© Harald Nachtmann/Getty Images)
+
+![](20231205_AlpsCastles_1920x1080.jpg)
+
 #### 20231204 A mother cheetah and her cubs in the Maasai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)
 
 ![](20231204_CheetahDay_1920x1080.jpg)

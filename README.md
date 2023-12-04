@@ -1,3 +1,7 @@
+#### 20231205 天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国 (© Harald Nachtmann/Getty Images)
+
+![](images/2023-12/20231205_AlpsCastles_1920x1080.jpg)
+
 #### 20231204 A mother cheetah and her cubs in the Maasai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)
 
 ![](images/2023-12/20231204_CheetahDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231128 Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)
 
 ![](images/2023-11/20231128_HumanKindness_1920x1080.jpg)
-
-#### 20231128 阿西尼博因山省级公园，加拿大 (© matt macpherson/500px/Getty Images)
-
-![](images/2023-11/20231128_AssiniboineProvincialPark_1920x1080.jpg)
 
 
 
