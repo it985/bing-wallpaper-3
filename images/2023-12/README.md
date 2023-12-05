@@ -1,4 +1,4 @@
-#### 20231205 天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国 (© Harald Nachtmann/Getty Images)
+#### 20231205 Neuschwanstein and Hohenschwangau castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)
 
 ![](20231205_AlpsCastles_1920x1080.jpg)
 
