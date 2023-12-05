@@ -1,3 +1,11 @@
+#### 20231206 达尔达尼亚瀑布，博洛尼亚，意大利 (© Alberto Ghizzi Panizza/Minden)
+
+![](20231206_DardagnaWaterfalls_1920x1080.jpg)
+
+#### 20231206 グローブ・オブ・サイエンス・アンド・イノベーション, スイス (© Deyan Baric/Alamy)
+
+![](20231206_CERNCenter_1920x1080.jpg)
+
 #### 20231205 Neuschwanstein and Hohenschwangau castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)
 
 ![](20231205_AlpsCastles_1920x1080.jpg)

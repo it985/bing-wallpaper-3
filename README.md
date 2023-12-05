@@ -1,3 +1,11 @@
+#### 20231206 达尔达尼亚瀑布，博洛尼亚，意大利 (© Alberto Ghizzi Panizza/Minden)
+
+![](images/2023-12/20231206_DardagnaWaterfalls_1920x1080.jpg)
+
+#### 20231206 グローブ・オブ・サイエンス・アンド・イノベーション, スイス (© Deyan Baric/Alamy)
+
+![](images/2023-12/20231206_CERNCenter_1920x1080.jpg)
+
 #### 20231205 Neuschwanstein and Hohenschwangau castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)
 
 ![](images/2023-12/20231205_AlpsCastles_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231129 Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)
 
 ![](images/2023-11/20231129_TreeLighting_1920x1080.jpg)
-
-#### 20231129 什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国 (© Hannes Wendt/Shutterstock)
-
-![](images/2023-11/20231129_SchwerinerSchloss_1920x1080.jpg)
-
-#### 20231128 Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)
-
-![](images/2023-11/20231128_HumanKindness_1920x1080.jpg)
 
 
 
