@@ -2,7 +2,7 @@
 
 ![](20231206_DardagnaWaterfalls_1920x1080.jpg)
 
-#### 20231206 グローブ・オブ・サイエンス・アンド・イノベーション, スイス (© Deyan Baric/Alamy)
+#### 20231206 The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)
 
 ![](20231206_CERNCenter_1920x1080.jpg)
 
