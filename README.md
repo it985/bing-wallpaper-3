@@ -1,3 +1,11 @@
+#### 20231207 白川郷の雪景色, 岐阜県 (© MIYAMOTO_Y/Getty Images)
+
+![](images/2023-12/20231207_Taisetsu_1920x1080.jpg)
+
+#### 20231207 韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国 (© Hemis/Alamy)
+
+![](images/2023-12/20231207_GrandCanyonVerdon_1920x1080.jpg)
+
 #### 20231206 达尔达尼亚瀑布，博洛尼亚，意大利 (© Alberto Ghizzi Panizza/Minden)
 
 ![](images/2023-12/20231206_DardagnaWaterfalls_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231130 The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)
 
 ![](images/2023-11/20231130_TrotternishStorr_1920x1080.jpg)
-
-#### 20231130 Cyprès chauves à l'étang de Boulieu, Isère, France (© photosimysia/Getty Images)
-
-![](images/2023-11/20231130_BaldCypress_1920x1080.jpg)
-
-#### 20231129 Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)
-
-![](images/2023-11/20231129_TreeLighting_1920x1080.jpg)
 
 
 
