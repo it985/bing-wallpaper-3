@@ -2,6 +2,10 @@
 
 ![](images/2023-12/20231207_Taisetsu_1920x1080.jpg)
 
+#### 20231207 USS Arizona Memorial, Pearl Harbor, Oahu, Hawaii (© Douglas Peebles Photography/Alamy)
+
+![](images/2023-12/20231207_PearlHarborArizona_1920x1080.jpg)
+
 #### 20231207 韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国 (© Hemis/Alamy)
 
 ![](images/2023-12/20231207_GrandCanyonVerdon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231201 Iceberg in the Ross Sea, Antarctica (© Michel Roggo/Minden Pictures)
 
 ![](images/2023-12/20231201_IcebergAntarctica_1920x1080.jpg)
-
-#### 20231130 The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)
-
-![](images/2023-11/20231130_TrotternishStorr_1920x1080.jpg)
 
 
 
