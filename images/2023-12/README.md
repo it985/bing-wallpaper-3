@@ -1,3 +1,7 @@
+#### 20231208 拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo)
+
+![](20231208_JerseyIsland_1920x1080.jpg)
+
 #### 20231207 白川郷の雪景色, 岐阜県 (© MIYAMOTO_Y/Getty Images)
 
 ![](20231207_Taisetsu_1920x1080.jpg)

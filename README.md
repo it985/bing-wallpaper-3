@@ -1,3 +1,7 @@
+#### 20231208 拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo)
+
+![](images/2023-12/20231208_JerseyIsland_1920x1080.jpg)
+
 #### 20231207 白川郷の雪景色, 岐阜県 (© MIYAMOTO_Y/Getty Images)
 
 ![](images/2023-12/20231207_Taisetsu_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231201 Lake Minnewanka, Alberta, Canada (© Ken Phung/500px/Getty Images)
 
 ![](images/2023-12/20231201_MinnewankaLake_1920x1080.jpg)
-
-#### 20231201 Iceberg in the Ross Sea, Antarctica (© Michel Roggo/Minden Pictures)
-
-![](images/2023-12/20231201_IcebergAntarctica_1920x1080.jpg)
 
 
 
