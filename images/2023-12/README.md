@@ -1,3 +1,7 @@
+#### 20231209 原驼，冰川国家公园，阿根廷 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](20231209_PatagoniaGuanaco_1920x1080.jpg)
+
 #### 20231208 Souvenirverkauf auf dem Christkindlesmarkt, Nürnberg (© AlpKaya/Shutterstock)
 
 ![](20231208_NurnbergSouvenir_1920x1080.jpg)

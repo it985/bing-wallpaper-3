@@ -1,3 +1,7 @@
+#### 20231209 原驼，冰川国家公园，阿根廷 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](images/2023-12/20231209_PatagoniaGuanaco_1920x1080.jpg)
+
 #### 20231208 Souvenirverkauf auf dem Christkindlesmarkt, Nürnberg (© AlpKaya/Shutterstock)
 
 ![](images/2023-12/20231208_NurnbergSouvenir_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231202 Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Getty Images)
 
 ![](images/2023-12/20231202_JasperDarkSky_1920x1080.jpg)
-
-#### 20231202 瓜廖尔堡，中央邦，印度 (© Dmitry Rukhlenko-Photos of India/Alamy)
-
-![](images/2023-12/20231202_GwaliorFortMP_1920x1080.jpg)
 
 
 
