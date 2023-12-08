@@ -1,3 +1,11 @@
+#### 20231208 Souvenirverkauf auf dem Christkindlesmarkt, Nürnberg (© AlpKaya/Shutterstock)
+
+![](images/2023-12/20231208_NurnbergSouvenir_1920x1080.jpg)
+
+#### 20231208 Fête des Lumières, œuvre d'art de Daniel Knipper, nommée Regards, en hommage aux victimes de l'attentat de Paris 2015, Lyon, France (© Baptiste de Izarra/Alamy Stock Photo)
+
+![](images/2023-12/20231208_LightFestivalLyon_1920x1080.jpg)
+
 #### 20231208 拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](images/2023-12/20231208_JerseyIsland_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231202 瓜廖尔堡，中央邦，印度 (© Dmitry Rukhlenko-Photos of India/Alamy)
 
 ![](images/2023-12/20231202_GwaliorFortMP_1920x1080.jpg)
-
-#### 20231202 North Gate of Angkor Thom, Angkor Archaeological Park, Cambodia (© Amazing Travel Lifestyle/Shutterstock)
-
-![](images/2023-12/20231202_AngkorPark_1920x1080.jpg)
-
-#### 20231201 Lake Minnewanka, Alberta, Canada (© Ken Phung/500px/Getty Images)
-
-![](images/2023-12/20231201_MinnewankaLake_1920x1080.jpg)
 
 
 

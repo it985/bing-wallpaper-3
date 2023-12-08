@@ -1,3 +1,11 @@
+#### 20231208 Souvenirverkauf auf dem Christkindlesmarkt, Nürnberg (© AlpKaya/Shutterstock)
+
+![](20231208_NurnbergSouvenir_1920x1080.jpg)
+
+#### 20231208 Fête des Lumières, œuvre d'art de Daniel Knipper, nommée Regards, en hommage aux victimes de l'attentat de Paris 2015, Lyon, France (© Baptiste de Izarra/Alamy Stock Photo)
+
+![](20231208_LightFestivalLyon_1920x1080.jpg)
+
 #### 20231208 拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](20231208_JerseyIsland_1920x1080.jpg)
