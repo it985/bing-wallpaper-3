@@ -6,7 +6,7 @@
 
 ![](images/2023-12/20231208_LightFestivalLyon_1920x1080.jpg)
 
-#### 20231208 拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo)
+#### 20231208 La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](images/2023-12/20231208_JerseyIsland_1920x1080.jpg)
 
