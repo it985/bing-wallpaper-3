@@ -1,3 +1,11 @@
+#### 20231210 サハラ砂漠の砂丘群, アルジェリア (© AWL Images/DanitaDelimont.com)
+
+![](20231210_SaharaDunes_1920x1080.jpg)
+
+#### 20231210 林帕达恩湖，斯诺登尼亚国家公园， 威尔士 (© Joe Daniel Price/Getty Images)
+
+![](20231210_LlanberisSnowdoniaSunset_1920x1080.jpg)
+
 #### 20231209 Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](20231209_PatagoniaGuanaco_1920x1080.jpg)

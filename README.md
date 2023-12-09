@@ -1,3 +1,11 @@
+#### 20231210 サハラ砂漠の砂丘群, アルジェリア (© AWL Images/DanitaDelimont.com)
+
+![](images/2023-12/20231210_SaharaDunes_1920x1080.jpg)
+
+#### 20231210 林帕达恩湖，斯诺登尼亚国家公园， 威尔士 (© Joe Daniel Price/Getty Images)
+
+![](images/2023-12/20231210_LlanberisSnowdoniaSunset_1920x1080.jpg)
+
 #### 20231209 Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2023-12/20231209_PatagoniaGuanaco_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231203 豪華絢爛な山車と花火, 埼玉県 秩父市 (© ASSOCIATED PRESS/AP)
 
 ![](images/2023-12/20231203_ChichibuNightFestival_1920x1080.jpg)
-
-#### 20231203 Die Adventszeit beginnt (© Muenz/Getty Images)
-
-![](images/2023-12/20231203_AdventCandles_1920x1080.jpg)
-
-#### 20231202 Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Getty Images)
-
-![](images/2023-12/20231202_JasperDarkSky_1920x1080.jpg)
 
 
 
