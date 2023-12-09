@@ -1,4 +1,4 @@
-#### 20231209 原驼，冰川国家公园，阿根廷 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+#### 20231209 Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2023-12/20231209_PatagoniaGuanaco_1920x1080.jpg)
 
