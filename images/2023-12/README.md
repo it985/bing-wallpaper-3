@@ -1,4 +1,4 @@
-#### 20231210 サハラ砂漠の砂丘群, アルジェリア (© AWL Images/DanitaDelimont.com)
+#### 20231210 Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)
 
 ![](20231210_SaharaDunes_1920x1080.jpg)
 
