@@ -1,3 +1,7 @@
+#### 20231211 黄山的冬天，中国 (© Hung Chung Chih/Shutterstock)
+
+![](20231211_MountainDayChina_1920x1080.jpg)
+
 #### 20231210 Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)
 
 ![](20231210_SaharaDunes_1920x1080.jpg)

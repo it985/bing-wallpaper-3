@@ -1,3 +1,7 @@
+#### 20231211 黄山的冬天，中国 (© Hung Chung Chih/Shutterstock)
+
+![](images/2023-12/20231211_MountainDayChina_1920x1080.jpg)
+
 #### 20231210 Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)
 
 ![](images/2023-12/20231210_SaharaDunes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231203 Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2023-12/20231203_VermilionCliffs_1920x1080.jpg)
-
-#### 20231203 豪華絢爛な山車と花火, 埼玉県 秩父市 (© ASSOCIATED PRESS/AP)
-
-![](images/2023-12/20231203_ChichibuNightFestival_1920x1080.jpg)
 
 
 
