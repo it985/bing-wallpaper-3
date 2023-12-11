@@ -1,3 +1,7 @@
+#### 20231212 一品红 (© Yarygin/Getty Images)
+
+![](20231212_Poinsettia_1920x1080.jpg)
+
 #### 20231211 Winter at Huangshan, China (© Hung Chung Chih/Shutterstock)
 
 ![](20231211_MountainDayChina_1920x1080.jpg)

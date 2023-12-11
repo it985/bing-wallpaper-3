@@ -1,3 +1,7 @@
+#### 20231212 一品红 (© Yarygin/Getty Images)
+
+![](images/2023-12/20231212_Poinsettia_1920x1080.jpg)
+
 #### 20231211 Winter at Huangshan, China (© Hung Chung Chih/Shutterstock)
 
 ![](images/2023-12/20231211_MountainDayChina_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231204 A mother cheetah and her cubs in the Maasai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)
 
 ![](images/2023-12/20231204_CheetahDay_1920x1080.jpg)
-
-#### 20231203 Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)
-
-![](images/2023-12/20231203_VermilionCliffs_1920x1080.jpg)
 
 
 
