@@ -1,4 +1,4 @@
-#### 20231211 黄山的冬天，中国 (© Hung Chung Chih/Shutterstock)
+#### 20231211 Winter at Huangshan, China (© Hung Chung Chih/Shutterstock)
 
 ![](images/2023-12/20231211_MountainDayChina_1920x1080.jpg)
 
