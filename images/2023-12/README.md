@@ -1,4 +1,4 @@
-#### 20231212 一品红 (© Yarygin/Getty Images)
+#### 20231212 Poinsettias (© Yarygin/Getty Images)
 
 ![](20231212_Poinsettia_1920x1080.jpg)
 
