@@ -1,3 +1,7 @@
+#### 20231213 传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威 (© Roberto Moiola/Sysaworld/Getty Images)
+
+![](images/2023-12/20231213_LofotenRorbu_1920x1080.jpg)
+
 #### 20231212 Poinsettias (© Yarygin/Getty Images)
 
 ![](images/2023-12/20231212_Poinsettia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231205 Neuschwanstein and Hohenschwangau castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)
 
 ![](images/2023-12/20231205_AlpsCastles_1920x1080.jpg)
-
-#### 20231204 A mother cheetah and her cubs in the Maasai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)
-
-![](images/2023-12/20231204_CheetahDay_1920x1080.jpg)
 
 
 

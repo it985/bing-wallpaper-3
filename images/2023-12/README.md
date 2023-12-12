@@ -1,3 +1,7 @@
+#### 20231213 传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威 (© Roberto Moiola/Sysaworld/Getty Images)
+
+![](20231213_LofotenRorbu_1920x1080.jpg)
+
 #### 20231212 Poinsettias (© Yarygin/Getty Images)
 
 ![](20231212_Poinsettia_1920x1080.jpg)
