@@ -1,3 +1,7 @@
+#### 20231214 北方猫头鹰，萨斯喀彻温省，加拿大 (© Nick Saunders/Minden Pictures)
+
+![](images/2023-12/20231214_BorealOwl_1920x1080.jpg)
+
 #### 20231213 Traditional rorbu houses, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)
 
 ![](images/2023-12/20231213_LofotenRorbu_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231206 The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)
 
 ![](images/2023-12/20231206_CERNCenter_1920x1080.jpg)
-
-#### 20231205 Neuschwanstein and Hohenschwangau castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)
-
-![](images/2023-12/20231205_AlpsCastles_1920x1080.jpg)
 
 
 
