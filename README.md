@@ -1,4 +1,4 @@
-#### 20231213 传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威 (© Roberto Moiola/Sysaworld/Getty Images)
+#### 20231213 Traditional rorbu houses, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)
 
 ![](images/2023-12/20231213_LofotenRorbu_1920x1080.jpg)
 
