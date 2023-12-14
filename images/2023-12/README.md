@@ -1,4 +1,4 @@
-#### 20231214 北方猫头鹰，萨斯喀彻温省，加拿大 (© Nick Saunders/Minden Pictures)
+#### 20231214 Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)
 
 ![](20231214_BorealOwl_1920x1080.jpg)
 
