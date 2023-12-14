@@ -1,3 +1,7 @@
+#### 20231215 罗瓦涅米的圣诞老人公园，拉普兰德，芬兰 (© lukutin77/Getty Images)
+
+![](images/2023-12/20231215_SantaPark_1920x1080.jpg)
+
 #### 20231214 Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)
 
 ![](images/2023-12/20231214_BorealOwl_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231206 达尔达尼亚瀑布，博洛尼亚，意大利 (© Alberto Ghizzi Panizza/Minden)
 
 ![](images/2023-12/20231206_DardagnaWaterfalls_1920x1080.jpg)
-
-#### 20231206 The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)
-
-![](images/2023-12/20231206_CERNCenter_1920x1080.jpg)
 
 
 

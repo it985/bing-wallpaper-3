@@ -1,3 +1,7 @@
+#### 20231215 罗瓦涅米的圣诞老人公园，拉普兰德，芬兰 (© lukutin77/Getty Images)
+
+![](20231215_SantaPark_1920x1080.jpg)
+
 #### 20231214 Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)
 
 ![](20231214_BorealOwl_1920x1080.jpg)
