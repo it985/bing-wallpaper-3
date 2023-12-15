@@ -1,3 +1,7 @@
+#### 20231216 大广场，布鲁塞尔，比利时 (© Richard Taylor/Sime/eStock Photo)
+
+![](20231216_GrandPlaceXmas_1920x1080.jpg)
+
 #### 20231215 SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)
 
 ![](20231215_SantaPark_1920x1080.jpg)

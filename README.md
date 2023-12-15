@@ -1,3 +1,7 @@
+#### 20231216 大广场，布鲁塞尔，比利时 (© Richard Taylor/Sime/eStock Photo)
+
+![](images/2023-12/20231216_GrandPlaceXmas_1920x1080.jpg)
+
 #### 20231215 SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)
 
 ![](images/2023-12/20231215_SantaPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231207 韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国 (© Hemis/Alamy)
 
 ![](images/2023-12/20231207_GrandCanyonVerdon_1920x1080.jpg)
-
-#### 20231206 达尔达尼亚瀑布，博洛尼亚，意大利 (© Alberto Ghizzi Panizza/Minden)
-
-![](images/2023-12/20231206_DardagnaWaterfalls_1920x1080.jpg)
 
 
 
