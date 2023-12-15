@@ -1,4 +1,4 @@
-#### 20231215 罗瓦涅米的圣诞老人公园，拉普兰德，芬兰 (© lukutin77/Getty Images)
+#### 20231215 SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)
 
 ![](images/2023-12/20231215_SantaPark_1920x1080.jpg)
 
