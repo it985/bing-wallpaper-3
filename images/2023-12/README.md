@@ -1,3 +1,7 @@
+#### 20231217 波西米亚太平鸟栖息在树枝上，加拿大 (© Jim Cumming/Shutterstock)
+
+![](20231217_WinterWaxwings_1920x1080.jpg)
+
 #### 20231216 Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)
 
 ![](20231216_GrandPlaceXmas_1920x1080.jpg)

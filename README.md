@@ -1,3 +1,7 @@
+#### 20231217 波西米亚太平鸟栖息在树枝上，加拿大 (© Jim Cumming/Shutterstock)
+
+![](images/2023-12/20231217_WinterWaxwings_1920x1080.jpg)
+
 #### 20231216 Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)
 
 ![](images/2023-12/20231216_GrandPlaceXmas_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231207 白川郷の雪景色, 岐阜県 (© MIYAMOTO_Y/Getty Images)
 
 ![](images/2023-12/20231207_Taisetsu_1920x1080.jpg)
-
-#### 20231207 USS Arizona Memorial, Pearl Harbor, Oahu, Hawaii (© Douglas Peebles Photography/Alamy)
-
-![](images/2023-12/20231207_PearlHarborArizona_1920x1080.jpg)
 
 
 
