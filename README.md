@@ -2,6 +2,10 @@
 
 ![](images/2023-12/20231216_GrandPlaceXmas_1920x1080.jpg)
 
+#### 20231216 Festlich beleuchtete Marktkirche, Hannover, Niedersachsen (© picture alliance/Alamy)
+
+![](images/2023-12/20231216_FestivelyIlluminated_1920x1080.jpg)
+
 #### 20231215 SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)
 
 ![](images/2023-12/20231215_SantaPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231207 USS Arizona Memorial, Pearl Harbor, Oahu, Hawaii (© Douglas Peebles Photography/Alamy)
 
 ![](images/2023-12/20231207_PearlHarborArizona_1920x1080.jpg)
-
-#### 20231207 韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国 (© Hemis/Alamy)
-
-![](images/2023-12/20231207_GrandCanyonVerdon_1920x1080.jpg)
 
 
 

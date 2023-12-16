@@ -2,6 +2,10 @@
 
 ![](20231216_GrandPlaceXmas_1920x1080.jpg)
 
+#### 20231216 Festlich beleuchtete Marktkirche, Hannover, Niedersachsen (© picture alliance/Alamy)
+
+![](20231216_FestivelyIlluminated_1920x1080.jpg)
+
 #### 20231215 SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)
 
 ![](20231215_SantaPark_1920x1080.jpg)
