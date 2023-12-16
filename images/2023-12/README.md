@@ -1,4 +1,4 @@
-#### 20231216 大广场，布鲁塞尔，比利时 (© Richard Taylor/Sime/eStock Photo)
+#### 20231216 Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)
 
 ![](20231216_GrandPlaceXmas_1920x1080.jpg)
 
