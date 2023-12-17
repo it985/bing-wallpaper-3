@@ -1,4 +1,4 @@
-#### 20231217 波西米亚太平鸟栖息在树枝上，加拿大 (© Jim Cumming/Shutterstock)
+#### 20231217 Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)
 
 ![](20231217_WinterWaxwings_1920x1080.jpg)
 
