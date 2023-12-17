@@ -1,3 +1,7 @@
+#### 20231218 圆顶礁国家公园，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)
+
+![](20231218_CapitolReefSnow_1920x1080.jpg)
+
 #### 20231217 Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)
 
 ![](20231217_WinterWaxwings_1920x1080.jpg)

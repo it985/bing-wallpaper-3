@@ -1,3 +1,7 @@
+#### 20231218 圆顶礁国家公园，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)
+
+![](images/2023-12/20231218_CapitolReefSnow_1920x1080.jpg)
+
 #### 20231217 Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)
 
 ![](images/2023-12/20231217_WinterWaxwings_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231208 La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](images/2023-12/20231208_JerseyIsland_1920x1080.jpg)
-
-#### 20231207 白川郷の雪景色, 岐阜県 (© MIYAMOTO_Y/Getty Images)
-
-![](images/2023-12/20231207_Taisetsu_1920x1080.jpg)
 
 
 
