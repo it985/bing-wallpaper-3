@@ -2,6 +2,10 @@
 
 ![](20231218_CapitolReefSnow_1920x1080.jpg)
 
+#### 20231218 Station de ski du col des Saisies à l'aube, Beaufortain, Savoie, France (© SPANI Arnaud/hemis.fr/Alamy Stock Photo)
+
+![](20231218_Beaufortain_1920x1080.jpg)
+
 #### 20231217 Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)
 
 ![](20231217_WinterWaxwings_1920x1080.jpg)

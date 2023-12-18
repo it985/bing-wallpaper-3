@@ -2,6 +2,10 @@
 
 ![](images/2023-12/20231218_CapitolReefSnow_1920x1080.jpg)
 
+#### 20231218 Station de ski du col des Saisies à l'aube, Beaufortain, Savoie, France (© SPANI Arnaud/hemis.fr/Alamy Stock Photo)
+
+![](images/2023-12/20231218_Beaufortain_1920x1080.jpg)
+
 #### 20231217 Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)
 
 ![](images/2023-12/20231217_WinterWaxwings_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231208 Fête des Lumières, œuvre d'art de Daniel Knipper, nommée Regards, en hommage aux victimes de l'attentat de Paris 2015, Lyon, France (© Baptiste de Izarra/Alamy Stock Photo)
 
 ![](images/2023-12/20231208_LightFestivalLyon_1920x1080.jpg)
-
-#### 20231208 La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)
-
-![](images/2023-12/20231208_JerseyIsland_1920x1080.jpg)
 
 
 
