@@ -1,3 +1,7 @@
+#### 20231219 城堡广场的圣诞树，华沙古城，波兰 (© Panther Media GmbH/Alamy Stock Photo)
+
+![](images/2023-12/20231219_WarsawChristmas_1920x1080.jpg)
+
 #### 20231218 Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)
 
 ![](images/2023-12/20231218_CapitolReefSnow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231208 Souvenirverkauf auf dem Christkindlesmarkt, Nürnberg (© AlpKaya/Shutterstock)
 
 ![](images/2023-12/20231208_NurnbergSouvenir_1920x1080.jpg)
-
-#### 20231208 Fête des Lumières, œuvre d'art de Daniel Knipper, nommée Regards, en hommage aux victimes de l'attentat de Paris 2015, Lyon, France (© Baptiste de Izarra/Alamy Stock Photo)
-
-![](images/2023-12/20231208_LightFestivalLyon_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20231219 城堡广场的圣诞树，华沙古城，波兰 (© Panther Media GmbH/Alamy Stock Photo)
+
+![](20231219_WarsawChristmas_1920x1080.jpg)
+
 #### 20231218 Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)
 
 ![](20231218_CapitolReefSnow_1920x1080.jpg)
