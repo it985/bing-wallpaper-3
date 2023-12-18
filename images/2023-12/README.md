@@ -1,4 +1,4 @@
-#### 20231218 圆顶礁国家公园，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)
+#### 20231218 Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)
 
 ![](20231218_CapitolReefSnow_1920x1080.jpg)
 
