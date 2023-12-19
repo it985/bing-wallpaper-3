@@ -1,4 +1,8 @@
-#### 20231219 城堡广场的圣诞树，华沙古城，波兰 (© Panther Media GmbH/Alamy Stock Photo)
+#### 20231220 Cachoeira da Fumacinha, Chapada Diamantina, Bahia, Brazil (© Rtzstudio/Shutterstock)
+
+![](images/2023-12/20231220_ChapadaDiamantina_1920x1080.jpg)
+
+#### 20231219 Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)
 
 ![](images/2023-12/20231219_WarsawChristmas_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20231209 Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2023-12/20231209_PatagoniaGuanaco_1920x1080.jpg)
-
-#### 20231208 Souvenirverkauf auf dem Christkindlesmarkt, Nürnberg (© AlpKaya/Shutterstock)
-
-![](images/2023-12/20231208_NurnbergSouvenir_1920x1080.jpg)
 
 
 

@@ -1,4 +1,8 @@
-#### 20231219 城堡广场的圣诞树，华沙古城，波兰 (© Panther Media GmbH/Alamy Stock Photo)
+#### 20231220 Cachoeira da Fumacinha, Chapada Diamantina, Bahia, Brazil (© Rtzstudio/Shutterstock)
+
+![](20231220_ChapadaDiamantina_1920x1080.jpg)
+
+#### 20231219 Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)
 
 ![](20231219_WarsawChristmas_1920x1080.jpg)
 
