@@ -1,3 +1,7 @@
+#### 20231220 圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利 (© Ingus Kruklitis/Getty Images)
+
+![](images/2023-12/20231220_ValGardenaItaly_1920x1080.jpg)
+
 #### 20231220 Cachoeira da Fumacinha, Chapada Diamantina, Bahia, Brazil (© Rtzstudio/Shutterstock)
 
 ![](images/2023-12/20231220_ChapadaDiamantina_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231210 林帕达恩湖，斯诺登尼亚国家公园， 威尔士 (© Joe Daniel Price/Getty Images)
 
 ![](images/2023-12/20231210_LlanberisSnowdoniaSunset_1920x1080.jpg)
-
-#### 20231209 Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)
-
-![](images/2023-12/20231209_PatagoniaGuanaco_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20231220 圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利 (© Ingus Kruklitis/Getty Images)
+
+![](20231220_ValGardenaItaly_1920x1080.jpg)
+
 #### 20231220 Cachoeira da Fumacinha, Chapada Diamantina, Bahia, Brazil (© Rtzstudio/Shutterstock)
 
 ![](20231220_ChapadaDiamantina_1920x1080.jpg)
