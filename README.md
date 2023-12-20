@@ -1,3 +1,7 @@
+#### 20231220 Barcelonnette aux portes des Hautes Vallées de l'Ubay, Alpes-de-Haute-Provence, France (© iStock/Getty Images Plus)
+
+![](images/2023-12/20231220_XmasDesserts_1920x1080.jpg)
+
 #### 20231220 圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利 (© Ingus Kruklitis/Getty Images)
 
 ![](images/2023-12/20231220_ValGardenaItaly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231210 Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)
 
 ![](images/2023-12/20231210_SaharaDunes_1920x1080.jpg)
-
-#### 20231210 林帕达恩湖，斯诺登尼亚国家公园， 威尔士 (© Joe Daniel Price/Getty Images)
-
-![](images/2023-12/20231210_LlanberisSnowdoniaSunset_1920x1080.jpg)
 
 
 

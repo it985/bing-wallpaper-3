@@ -1,3 +1,7 @@
+#### 20231220 Barcelonnette aux portes des Hautes Vallées de l'Ubay, Alpes-de-Haute-Provence, France (© iStock/Getty Images Plus)
+
+![](20231220_XmasDesserts_1920x1080.jpg)
+
 #### 20231220 圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利 (© Ingus Kruklitis/Getty Images)
 
 ![](20231220_ValGardenaItaly_1920x1080.jpg)
