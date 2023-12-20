@@ -1,3 +1,7 @@
+#### 20231221 卢布尔雅那，斯洛文尼亚共和国 (© kasto80/Getty images)
+
+![](20231221_LjubljanaLights_1920x1080.jpg)
+
 #### 20231220 Barcelonnette aux portes des Hautes Vallées de l'Ubay, Alpes-de-Haute-Provence, France (© iStock/Getty Images Plus)
 
 ![](20231220_XmasDesserts_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20231221 卢布尔雅那，斯洛文尼亚共和国 (© kasto80/Getty images)
+
+![](images/2023-12/20231221_LjubljanaLights_1920x1080.jpg)
+
 #### 20231220 Barcelonnette aux portes des Hautes Vallées de l'Ubay, Alpes-de-Haute-Provence, France (© iStock/Getty Images Plus)
 
 ![](images/2023-12/20231220_XmasDesserts_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231211 Winter at Huangshan, China (© Hung Chung Chih/Shutterstock)
 
 ![](images/2023-12/20231211_MountainDayChina_1920x1080.jpg)
-
-#### 20231210 Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)
-
-![](images/2023-12/20231210_SaharaDunes_1920x1080.jpg)
 
 
 
