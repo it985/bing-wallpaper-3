@@ -1,3 +1,11 @@
+#### 20231222 青い池, 北海道 美瑛町 (© Haruna/Getty Images)
+
+![](20231222_Wintersolstice_1920x1080.jpg)
+
+#### 20231222 天鹅泉湿地公园，伊犁，新疆，中国 (© 500px Asia/Getty images)
+
+![](20231222_WinterSolstice_1920x1080.jpg)
+
 #### 20231221 卢布尔雅那，斯洛文尼亚共和国 (© kasto80/Getty images)
 
 ![](20231221_LjubljanaLights_1920x1080.jpg)

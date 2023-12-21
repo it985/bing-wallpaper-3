@@ -1,3 +1,11 @@
+#### 20231222 青い池, 北海道 美瑛町 (© Haruna/Getty Images)
+
+![](images/2023-12/20231222_Wintersolstice_1920x1080.jpg)
+
+#### 20231222 天鹅泉湿地公园，伊犁，新疆，中国 (© 500px Asia/Getty images)
+
+![](images/2023-12/20231222_WinterSolstice_1920x1080.jpg)
+
 #### 20231221 卢布尔雅那，斯洛文尼亚共和国 (© kasto80/Getty images)
 
 ![](images/2023-12/20231221_LjubljanaLights_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231215 SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)
 
 ![](images/2023-12/20231215_SantaPark_1920x1080.jpg)
-
-#### 20231214 Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)
-
-![](images/2023-12/20231214_BorealOwl_1920x1080.jpg)
-
-#### 20231213 Traditional rorbu houses, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)
-
-![](images/2023-12/20231213_LofotenRorbu_1920x1080.jpg)
 
 
 
