@@ -1,3 +1,11 @@
+#### 20231223 けやき坂のイルミネーション, 東京 (© Photography by ZhangXun/Getty Images)
+
+![](20231223_TokyoTower_1920x1080.jpg)
+
+#### 20231223 帽带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures)
+
+![](20231223_FestivusPenguins_1920x1080.jpg)
+
 #### 20231222 青い池, 北海道 美瑛町 (© Haruna/Getty Images)
 
 ![](20231222_Wintersolstice_1920x1080.jpg)

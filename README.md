@@ -1,3 +1,11 @@
+#### 20231223 けやき坂のイルミネーション, 東京 (© Photography by ZhangXun/Getty Images)
+
+![](images/2023-12/20231223_TokyoTower_1920x1080.jpg)
+
+#### 20231223 帽带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures)
+
+![](images/2023-12/20231223_FestivusPenguins_1920x1080.jpg)
+
 #### 20231222 青い池, 北海道 美瑛町 (© Haruna/Getty Images)
 
 ![](images/2023-12/20231222_Wintersolstice_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231216 Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)
 
 ![](images/2023-12/20231216_GrandPlaceXmas_1920x1080.jpg)
-
-#### 20231216 Festlich beleuchtete Marktkirche, Hannover, Niedersachsen (© picture alliance/Alamy)
-
-![](images/2023-12/20231216_FestivelyIlluminated_1920x1080.jpg)
-
-#### 20231215 SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)
-
-![](images/2023-12/20231215_SantaPark_1920x1080.jpg)
 
 
 
