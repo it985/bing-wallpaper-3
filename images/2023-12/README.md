@@ -6,7 +6,7 @@
 
 ![](20231222_WinterSolstice_1920x1080.jpg)
 
-#### 20231221 卢布尔雅那，斯洛文尼亚共和国 (© kasto80/Getty images)
+#### 20231221 Ljubljana, Slovenia (© kasto80/Getty images)
 
 ![](20231221_LjubljanaLights_1920x1080.jpg)
 
