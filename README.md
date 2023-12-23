@@ -1,3 +1,7 @@
+#### 20231224 市政厅广场，塔尔图，爱沙尼亚 (© Westend61/Getty Images)
+
+![](images/2023-12/20231224_EstoniaXmasEve_1920x1080.jpg)
+
 #### 20231223 けやき坂のイルミネーション, 東京 (© Photography by ZhangXun/Getty Images)
 
 ![](images/2023-12/20231223_TokyoTower_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231218 Station de ski du col des Saisies à l'aube, Beaufortain, Savoie, France (© SPANI Arnaud/hemis.fr/Alamy Stock Photo)
 
 ![](images/2023-12/20231218_Beaufortain_1920x1080.jpg)
-
-#### 20231217 Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)
-
-![](images/2023-12/20231217_WinterWaxwings_1920x1080.jpg)
 
 
 

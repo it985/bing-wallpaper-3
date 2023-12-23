@@ -1,3 +1,7 @@
+#### 20231224 市政厅广场，塔尔图，爱沙尼亚 (© Westend61/Getty Images)
+
+![](20231224_EstoniaXmasEve_1920x1080.jpg)
+
 #### 20231223 けやき坂のイルミネーション, 東京 (© Photography by ZhangXun/Getty Images)
 
 ![](20231223_TokyoTower_1920x1080.jpg)
