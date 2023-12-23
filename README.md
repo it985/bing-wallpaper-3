@@ -6,6 +6,10 @@
 
 ![](images/2023-12/20231223_FestivusPenguins_1920x1080.jpg)
 
+#### 20231223 Berge, die sich in einem kristallklaren Bergsee spiegeln, Alpen Deutschland (© JFL Photography/Adobe Stock)
+
+![](images/2023-12/20231223_AlpsReflecting_1920x1080.jpg)
+
 #### 20231222 青い池, 北海道 美瑛町 (© Haruna/Getty Images)
 
 ![](images/2023-12/20231222_Wintersolstice_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231217 Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)
 
 ![](images/2023-12/20231217_WinterWaxwings_1920x1080.jpg)
-
-#### 20231216 Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)
-
-![](images/2023-12/20231216_GrandPlaceXmas_1920x1080.jpg)
 
 
 

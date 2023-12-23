@@ -6,6 +6,10 @@
 
 ![](20231223_FestivusPenguins_1920x1080.jpg)
 
+#### 20231223 Berge, die sich in einem kristallklaren Bergsee spiegeln, Alpen Deutschland (© JFL Photography/Adobe Stock)
+
+![](20231223_AlpsReflecting_1920x1080.jpg)
+
 #### 20231222 青い池, 北海道 美瑛町 (© Haruna/Getty Images)
 
 ![](20231222_Wintersolstice_1920x1080.jpg)
