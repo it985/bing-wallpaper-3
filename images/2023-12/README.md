@@ -2,7 +2,7 @@
 
 ![](20231223_TokyoTower_1920x1080.jpg)
 
-#### 20231223 帽带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures)
+#### 20231223 Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)
 
 ![](20231223_FestivusPenguins_1920x1080.jpg)
 
