@@ -1,3 +1,7 @@
+#### 20231225 驯鹿在雪中奔跑，阿拉斯加，美国 (© Michael Quinton/Minden Pictures)
+
+![](20231225_CaribouChristmas_1920x1080.jpg)
+
 #### 20231224 Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)
 
 ![](20231224_EstoniaXmasEve_1920x1080.jpg)

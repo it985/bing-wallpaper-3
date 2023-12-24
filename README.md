@@ -1,3 +1,7 @@
+#### 20231225 驯鹿在雪中奔跑，阿拉斯加，美国 (© Michael Quinton/Minden Pictures)
+
+![](images/2023-12/20231225_CaribouChristmas_1920x1080.jpg)
+
 #### 20231224 Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)
 
 ![](images/2023-12/20231224_EstoniaXmasEve_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231218 Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)
 
 ![](images/2023-12/20231218_CapitolReefSnow_1920x1080.jpg)
-
-#### 20231218 Station de ski du col des Saisies à l'aube, Beaufortain, Savoie, France (© SPANI Arnaud/hemis.fr/Alamy Stock Photo)
-
-![](images/2023-12/20231218_Beaufortain_1920x1080.jpg)
 
 
 
