@@ -1,3 +1,7 @@
+#### 20231226 冬季日出，戴德姆，科尔切斯特，英格兰 (© George W Johnson/Getty Images)
+
+![](20231226_BoxingDaySunrise_1920x1080.jpg)
+
 #### 20231225 Toronto Christmas market at the Distillery District (© Praveen P.N/Moment/Getty Images)
 
 ![](20231225_ChristmasCA_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20231226 冬季日出，戴德姆，科尔切斯特，英格兰 (© George W Johnson/Getty Images)
+
+![](images/2023-12/20231226_BoxingDaySunrise_1920x1080.jpg)
+
 #### 20231225 Toronto Christmas market at the Distillery District (© Praveen P.N/Moment/Getty Images)
 
 ![](images/2023-12/20231225_ChristmasCA_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231220 Cachoeira da Fumacinha, Chapada Diamantina, Bahia, Brazil (© Rtzstudio/Shutterstock)
 
 ![](images/2023-12/20231220_ChapadaDiamantina_1920x1080.jpg)
-
-#### 20231219 Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)
-
-![](images/2023-12/20231219_WarsawChristmas_1920x1080.jpg)
 
 
 
