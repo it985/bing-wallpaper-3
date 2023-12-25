@@ -1,4 +1,8 @@
-#### 20231225 驯鹿在雪中奔跑，阿拉斯加，美国 (© Michael Quinton/Minden Pictures)
+#### 20231225 Toronto Christmas market at the Distillery District (© Praveen P.N/Moment/Getty Images)
+
+![](images/2023-12/20231225_ChristmasCA_1920x1080.jpg)
+
+#### 20231225 Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)
 
 ![](images/2023-12/20231225_CaribouChristmas_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20231219 Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)
 
 ![](images/2023-12/20231219_WarsawChristmas_1920x1080.jpg)
-
-#### 20231218 Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)
-
-![](images/2023-12/20231218_CapitolReefSnow_1920x1080.jpg)
 
 
 
