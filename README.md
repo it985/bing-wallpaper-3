@@ -1,3 +1,7 @@
+#### 20231227 教堂山，斯奈山半岛，冰岛 (© Ratnakorn Piyasirisorost/Getty Images)
+
+![](images/2023-12/20231227_KirkjufellAurora_1920x1080.jpg)
+
 #### 20231226 Winter sunrise in Dedham, Colchester, England (© George W Johnson/Getty Images)
 
 ![](images/2023-12/20231226_BoxingDaySunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231220 Barcelonnette aux portes des Hautes Vallées de l'Ubay, Alpes-de-Haute-Provence, France (© iStock/Getty Images Plus)
 
 ![](images/2023-12/20231220_XmasDesserts_1920x1080.jpg)
-
-#### 20231220 Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)
-
-![](images/2023-12/20231220_ValGardenaItaly_1920x1080.jpg)
 
 
 
