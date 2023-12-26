@@ -1,6 +1,10 @@
-#### 20231226 冬季日出，戴德姆，科尔切斯特，英格兰 (© George W Johnson/Getty Images)
+#### 20231226 Winter sunrise in Dedham, Colchester, England (© George W Johnson/Getty Images)
 
 ![](20231226_BoxingDaySunrise_1920x1080.jpg)
+
+#### 20231226 Christmas lights on trees at dusk, Vancouver, Canada (© Stuart Dee/Getty Images)
+
+![](20231226_BoxingDayCA_1920x1080.jpg)
 
 #### 20231225 Toronto Christmas market at the Distillery District (© Praveen P.N/Moment/Getty Images)
 
