@@ -1,4 +1,4 @@
-#### 20231227 教堂山，斯奈山半岛，冰岛 (© Ratnakorn Piyasirisorost/Getty Images)
+#### 20231227 Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)
 
 ![](20231227_KirkjufellAurora_1920x1080.jpg)
 
