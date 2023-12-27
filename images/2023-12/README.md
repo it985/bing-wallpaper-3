@@ -1,3 +1,7 @@
+#### 20231228 座头鲸，迪斯科湾，格陵兰 (© Paul Souders/DanitaDelimont.com)
+
+![](20231228_GreenlandHumpback_1920x1080.jpg)
+
 #### 20231227 Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)
 
 ![](20231227_KirkjufellAurora_1920x1080.jpg)

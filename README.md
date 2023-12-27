@@ -1,3 +1,7 @@
+#### 20231228 座头鲸，迪斯科湾，格陵兰 (© Paul Souders/DanitaDelimont.com)
+
+![](images/2023-12/20231228_GreenlandHumpback_1920x1080.jpg)
+
 #### 20231227 Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)
 
 ![](images/2023-12/20231227_KirkjufellAurora_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231221 Avenue of birch trees near Uffing am Staffelsee, Bavaria, Germany (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](images/2023-12/20231221_BavarianSolstice_1920x1080.jpg)
-
-#### 20231220 Barcelonnette aux portes des Hautes Vallées de l'Ubay, Alpes-de-Haute-Provence, France (© iStock/Getty Images Plus)
-
-![](images/2023-12/20231220_XmasDesserts_1920x1080.jpg)
 
 
 
