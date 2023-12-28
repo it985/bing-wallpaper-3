@@ -1,3 +1,7 @@
+#### 20231229 旧西街区，阿姆斯特丹 ，荷兰 (© George Pachantouris/Getty Images)
+
+![](20231229_BlueAmsterdam_1920x1080.jpg)
+
 #### 20231228 Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)
 
 ![](20231228_GreenlandHumpback_1920x1080.jpg)

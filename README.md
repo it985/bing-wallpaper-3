@@ -1,3 +1,7 @@
+#### 20231229 旧西街区，阿姆斯特丹 ，荷兰 (© George Pachantouris/Getty Images)
+
+![](images/2023-12/20231229_BlueAmsterdam_1920x1080.jpg)
+
 #### 20231228 Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)
 
 ![](images/2023-12/20231228_GreenlandHumpback_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231221 Castlerigg Stone Circle near Keswick, Lake District National Park, Cumbria, United Kingdom (© John Finney Photography/Getty Images)
 
 ![](images/2023-12/20231221_CastleriggStoneCircleUK_1920x1080.jpg)
-
-#### 20231221 Avenue of birch trees near Uffing am Staffelsee, Bavaria, Germany (© Reinhard Schmid/Huber/eStock Photo)
-
-![](images/2023-12/20231221_BavarianSolstice_1920x1080.jpg)
 
 
 
