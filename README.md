@@ -1,4 +1,4 @@
-#### 20231228 座头鲸，迪斯科湾，格陵兰 (© Paul Souders/DanitaDelimont.com)
+#### 20231228 Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)
 
 ![](images/2023-12/20231228_GreenlandHumpback_1920x1080.jpg)
 
