@@ -1,4 +1,4 @@
-#### 20231229 旧西街区，阿姆斯特丹 ，荷兰 (© George Pachantouris/Getty Images)
+#### 20231229 Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)
 
 ![](20231229_BlueAmsterdam_1920x1080.jpg)
 
