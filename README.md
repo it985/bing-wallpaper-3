@@ -1,3 +1,7 @@
+#### 20231230 第一只見川橋梁, 福島県 (© DoctorEgg/Getty Images)
+
+![](images/2023-12/20231230_TadamiWinter_1920x1080.jpg)
+
 #### 20231229 Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)
 
 ![](images/2023-12/20231229_BlueAmsterdam_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231221 Ljubljana, Slovenia (© kasto80/Getty images)
 
 ![](images/2023-12/20231221_LjubljanaLights_1920x1080.jpg)
-
-#### 20231221 Castlerigg Stone Circle near Keswick, Lake District National Park, Cumbria, United Kingdom (© John Finney Photography/Getty Images)
-
-![](images/2023-12/20231221_CastleriggStoneCircleUK_1920x1080.jpg)
 
 
 

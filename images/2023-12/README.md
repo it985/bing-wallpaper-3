@@ -1,3 +1,7 @@
+#### 20231230 第一只見川橋梁, 福島県 (© DoctorEgg/Getty Images)
+
+![](20231230_TadamiWinter_1920x1080.jpg)
+
 #### 20231229 Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)
 
 ![](20231229_BlueAmsterdam_1920x1080.jpg)
