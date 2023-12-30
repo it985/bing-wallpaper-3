@@ -1,4 +1,4 @@
-#### 20231230 第一只見川橋梁, 福島県 (© DoctorEgg/Getty Images)
+#### 20231230 Daiichi Tadami River Bridge, Fukushima prefecture, Japan (© DoctorEgg/Getty Images)
 
 ![](20231230_TadamiWinter_1920x1080.jpg)
 
