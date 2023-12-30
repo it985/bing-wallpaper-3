@@ -1,3 +1,11 @@
+#### 20231231 帕那空奇里上空的烟花，碧武里府,泰国 (© noomcpk/Shutterstock)
+
+![](20231231_ThailandNewYears_1920x1080.jpg)
+
+#### 20231231 増上寺の梵鐘, 東京 (© kanzilyou/Adobe Stock)
+
+![](20231231_Omisoka_1920x1080.jpg)
+
 #### 20231230 Daiichi Tadami River Bridge, Fukushima prefecture, Japan (© DoctorEgg/Getty Images)
 
 ![](20231230_TadamiWinter_1920x1080.jpg)

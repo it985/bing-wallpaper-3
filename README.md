@@ -1,3 +1,11 @@
+#### 20231231 帕那空奇里上空的烟花，碧武里府,泰国 (© noomcpk/Shutterstock)
+
+![](images/2023-12/20231231_ThailandNewYears_1920x1080.jpg)
+
+#### 20231231 増上寺の梵鐘, 東京 (© kanzilyou/Adobe Stock)
+
+![](images/2023-12/20231231_Omisoka_1920x1080.jpg)
+
 #### 20231230 Daiichi Tadami River Bridge, Fukushima prefecture, Japan (© DoctorEgg/Getty Images)
 
 ![](images/2023-12/20231230_TadamiWinter_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231222 青い池, 北海道 美瑛町 (© Haruna/Getty Images)
 
 ![](images/2023-12/20231222_Wintersolstice_1920x1080.jpg)
-
-#### 20231222 天鹅泉湿地公园，伊犁，新疆，中国 (© 500px Asia/Getty images)
-
-![](images/2023-12/20231222_WinterSolstice_1920x1080.jpg)
-
-#### 20231221 Ljubljana, Slovenia (© kasto80/Getty images)
-
-![](images/2023-12/20231221_LjubljanaLights_1920x1080.jpg)
 
 
 
