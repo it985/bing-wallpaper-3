@@ -1,3 +1,11 @@
+#### 20240101 本栖湖から見る富士山の日の出, 山梨県 (© Sakarin Sawasdinaka/Shutterstock)
+
+![](images/2024-01/20240101_Sunrise_1920x1080.jpg)
+
+#### 20240101 睡在雪地里的赤狐，阿布鲁佐，意大利 (© marco vancini/500px/Getty Images)
+
+![](images/2024-01/20240101_SleepingFox_1920x1080.jpg)
+
 #### 20231231 Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)
 
 ![](images/2023-12/20231231_ThailandNewYears_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2023-12/20231223_FestivusPenguins_1920x1080.jpg)
 
-#### 20231223 Berge, die sich in einem kristallklaren Bergsee spiegeln, Alpen Deutschland (© JFL Photography/Adobe Stock)
-
-![](images/2023-12/20231223_AlpsReflecting_1920x1080.jpg)
-
-#### 20231222 青い池, 北海道 美瑛町 (© Haruna/Getty Images)
-
-![](images/2023-12/20231222_Wintersolstice_1920x1080.jpg)
-
 
 
 
@@ -65,6 +65,8 @@
 #### all wallpaper
 
 
+
+- 2024&emsp;&emsp;[01](images/2024-01/README.md) 
 
 - 2023&emsp;&emsp;[12](images/2023-12/README.md) &emsp;&emsp;[11](images/2023-11/README.md) &emsp;&emsp;[10](images/2023-10/README.md) &emsp;&emsp;[09](images/2023-09/README.md) &emsp;&emsp;[08](images/2023-08/README.md) &emsp;&emsp;[07](images/2023-07/README.md) &emsp;&emsp;[06](images/2023-06/README.md) &emsp;&emsp;[05](images/2023-05/README.md) &emsp;&emsp;[04](images/2023-04/README.md) &emsp;&emsp;[03](images/2023-03/README.md) &emsp;&emsp;[02](images/2023-02/README.md) &emsp;&emsp;[01](images/2023-01/README.md) 
 
