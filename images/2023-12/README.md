@@ -1,4 +1,4 @@
-#### 20231231 帕那空奇里上空的烟花，碧武里府,泰国 (© noomcpk/Shutterstock)
+#### 20231231 Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)
 
 ![](20231231_ThailandNewYears_1920x1080.jpg)
 
