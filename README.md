@@ -1,3 +1,11 @@
+#### 20240102 贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度 (© Twenty47studio/Getty images)
+
+![](images/2024-01/20240102_MehrangarhJodhpur_1920x1080.jpg)
+
+#### 20240102 ポブジカ渓谷, ブータン (© John Warburton-Lee/DanitaDelimont.com)
+
+![](images/2024-01/20240102_BhutanSolstice_1920x1080.jpg)
+
 #### 20240101 本栖湖から見る富士山の日の出, 山梨県 (© Sakarin Sawasdinaka/Shutterstock)
 
 ![](images/2024-01/20240101_Sunrise_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231224 Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)
 
 ![](images/2023-12/20231224_EstoniaXmasEve_1920x1080.jpg)
-
-#### 20231223 けやき坂のイルミネーション, 東京 (© Photography by ZhangXun/Getty Images)
-
-![](images/2023-12/20231223_TokyoTower_1920x1080.jpg)
-
-#### 20231223 Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)
-
-![](images/2023-12/20231223_FestivusPenguins_1920x1080.jpg)
 
 
 
