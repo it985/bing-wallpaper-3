@@ -26,6 +26,10 @@
 
 ![](images/2023-12/20231230_TadamiWinter_1920x1080.jpg)
 
+#### 20231230 卡塞里格石圈，湖区国家公园 ，坎布里亚，英国 (© John Finney Photography/Getty Images)
+
+![](images/2023-12/20231230_CastleriggStoneCircleUK_1920x1080.jpg)
+
 #### 20231229 Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)
 
 ![](images/2023-12/20231229_BlueAmsterdam_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231225 Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)
 
 ![](images/2023-12/20231225_CaribouChristmas_1920x1080.jpg)
-
-#### 20231224 Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)
-
-![](images/2023-12/20231224_EstoniaXmasEve_1920x1080.jpg)
 
 
 

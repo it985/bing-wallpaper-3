@@ -10,6 +10,10 @@
 
 ![](20231230_TadamiWinter_1920x1080.jpg)
 
+#### 20231230 卡塞里格石圈，湖区国家公园 ，坎布里亚，英国 (© John Finney Photography/Getty Images)
+
+![](20231230_CastleriggStoneCircleUK_1920x1080.jpg)
+
 #### 20231229 Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)
 
 ![](20231229_BlueAmsterdam_1920x1080.jpg)
