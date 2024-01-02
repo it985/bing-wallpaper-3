@@ -1,3 +1,11 @@
+#### 20240103 明尼汪卡湖，阿尔伯塔省，加拿大 (© Ken Phung/500px/Getty Images)
+
+![](images/2024-01/20240103_MinnewankaLake_1920x1080.jpg)
+
+#### 20240103 オックスフォード大学のボドリアン図書館, イギリス (© Andrew Holt/Getty Images)
+
+![](images/2024-01/20240103_BodleianCeiling_1920x1080.jpg)
+
 #### 20240102 贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度 (© Twenty47studio/Getty images)
 
 ![](images/2024-01/20240102_MehrangarhJodhpur_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231226 Christmas lights on trees at dusk, Vancouver, Canada (© Stuart Dee/Getty Images)
 
 ![](images/2023-12/20231226_BoxingDayCA_1920x1080.jpg)
-
-#### 20231225 Toronto Christmas market at the Distillery District (© Praveen P.N/Moment/Getty Images)
-
-![](images/2023-12/20231225_ChristmasCA_1920x1080.jpg)
-
-#### 20231225 Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)
-
-![](images/2023-12/20231225_CaribouChristmas_1920x1080.jpg)
 
 
 

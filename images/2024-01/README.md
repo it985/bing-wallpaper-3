@@ -1,3 +1,11 @@
+#### 20240103 明尼汪卡湖，阿尔伯塔省，加拿大 (© Ken Phung/500px/Getty Images)
+
+![](20240103_MinnewankaLake_1920x1080.jpg)
+
+#### 20240103 オックスフォード大学のボドリアン図書館, イギリス (© Andrew Holt/Getty Images)
+
+![](20240103_BodleianCeiling_1920x1080.jpg)
+
 #### 20240102 贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度 (© Twenty47studio/Getty images)
 
 ![](20240102_MehrangarhJodhpur_1920x1080.jpg)
