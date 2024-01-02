@@ -2,7 +2,7 @@
 
 ![](20240102_MehrangarhJodhpur_1920x1080.jpg)
 
-#### 20240102 ポブジカ渓谷, ブータン (© John Warburton-Lee/DanitaDelimont.com)
+#### 20240102 Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)
 
 ![](20240102_BhutanSolstice_1920x1080.jpg)
 
