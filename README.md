@@ -2,6 +2,10 @@
 
 ![](images/2024-01/20240103_MinnewankaLake_1920x1080.jpg)
 
+#### 20240103 Coucher de soleil sur les lacs des Chéserys, Chamonix-Mont Blanc, France (© Smit/Shutterstock)
+
+![](images/2024-01/20240103_Cheserys_1920x1080.jpg)
+
 #### 20240103 オックスフォード大学のボドリアン図書館, イギリス (© Andrew Holt/Getty Images)
 
 ![](images/2024-01/20240103_BodleianCeiling_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231226 Winter sunrise in Dedham, Colchester, England (© George W Johnson/Getty Images)
 
 ![](images/2023-12/20231226_BoxingDaySunrise_1920x1080.jpg)
-
-#### 20231226 Christmas lights on trees at dusk, Vancouver, Canada (© Stuart Dee/Getty Images)
-
-![](images/2023-12/20231226_BoxingDayCA_1920x1080.jpg)
 
 
 

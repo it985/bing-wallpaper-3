@@ -2,6 +2,10 @@
 
 ![](20240103_MinnewankaLake_1920x1080.jpg)
 
+#### 20240103 Coucher de soleil sur les lacs des Chéserys, Chamonix-Mont Blanc, France (© Smit/Shutterstock)
+
+![](20240103_Cheserys_1920x1080.jpg)
+
 #### 20240103 オックスフォード大学のボドリアン図書館, イギリス (© Andrew Holt/Getty Images)
 
 ![](20240103_BodleianCeiling_1920x1080.jpg)
