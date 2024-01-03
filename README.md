@@ -1,3 +1,7 @@
+#### 20240104 金门大桥，旧金山，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](images/2024-01/20240104_GoldenGateLight_1920x1080.jpg)
+
 #### 20240103 明尼汪卡湖，阿尔伯塔省，加拿大 (© Ken Phung/500px/Getty Images)
 
 ![](images/2024-01/20240103_MinnewankaLake_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231227 Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)
 
 ![](images/2023-12/20231227_KirkjufellAurora_1920x1080.jpg)
-
-#### 20231226 Winter sunrise in Dedham, Colchester, England (© George W Johnson/Getty Images)
-
-![](images/2023-12/20231226_BoxingDaySunrise_1920x1080.jpg)
 
 
 

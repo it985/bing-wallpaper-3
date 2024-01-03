@@ -1,3 +1,7 @@
+#### 20240104 金门大桥，旧金山，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](20240104_GoldenGateLight_1920x1080.jpg)
+
 #### 20240103 明尼汪卡湖，阿尔伯塔省，加拿大 (© Ken Phung/500px/Getty Images)
 
 ![](20240103_MinnewankaLake_1920x1080.jpg)
