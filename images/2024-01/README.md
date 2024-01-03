@@ -6,7 +6,7 @@
 
 ![](20240103_Cheserys_1920x1080.jpg)
 
-#### 20240103 オックスフォード大学のボドリアン図書館, イギリス (© Andrew Holt/Getty Images)
+#### 20240103 Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)
 
 ![](20240103_BodleianCeiling_1920x1080.jpg)
 
