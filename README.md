@@ -1,3 +1,7 @@
+#### 20240104 Klosterkirche St. Peter auf dem Schwarzwald, Südschwarzwald, Baden-Württemberg (© Reinhard Schmid/Huber/eStock Photo)
+
+![](images/2024-01/20240104_StPeterMonastery_1920x1080.jpg)
+
 #### 20240104 金门大桥，旧金山，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2024-01/20240104_GoldenGateLight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231228 Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)
 
 ![](images/2023-12/20231228_GreenlandHumpback_1920x1080.jpg)
-
-#### 20231227 Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)
-
-![](images/2023-12/20231227_KirkjufellAurora_1920x1080.jpg)
 
 
 
