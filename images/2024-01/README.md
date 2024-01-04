@@ -2,7 +2,7 @@
 
 ![](20240104_StPeterMonastery_1920x1080.jpg)
 
-#### 20240104 金门大桥，旧金山，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion)
+#### 20240104 Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)
 
 ![](20240104_GoldenGateLight_1920x1080.jpg)
 
