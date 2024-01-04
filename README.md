@@ -1,3 +1,11 @@
+#### 20240105 ハルビン氷祭り, 中国 (© WANG ZHAO/AFP/Getty Images)
+
+![](images/2024-01/20240105_HarbinFestival_1920x1080.jpg)
+
+#### 20240105 巴伐利亚阿尔卑斯山脉，德国 (© JFL Photography/Adobe Stock)
+
+![](images/2024-01/20240105_AlpsReflecting_1920x1080.jpg)
+
 #### 20240104 Klosterkirche St. Peter auf dem Schwarzwald, Südschwarzwald, Baden-Württemberg (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](images/2024-01/20240104_StPeterMonastery_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20231230 卡塞里格石圈，湖区国家公园 ，坎布里亚，英国 (© John Finney Photography/Getty Images)
 
 ![](images/2023-12/20231230_CastleriggStoneCircleUK_1920x1080.jpg)
-
-#### 20231229 Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)
-
-![](images/2023-12/20231229_BlueAmsterdam_1920x1080.jpg)
-
-#### 20231228 Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)
-
-![](images/2023-12/20231228_GreenlandHumpback_1920x1080.jpg)
 
 
 

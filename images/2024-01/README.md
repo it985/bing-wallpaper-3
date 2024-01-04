@@ -1,3 +1,11 @@
+#### 20240105 ハルビン氷祭り, 中国 (© WANG ZHAO/AFP/Getty Images)
+
+![](20240105_HarbinFestival_1920x1080.jpg)
+
+#### 20240105 巴伐利亚阿尔卑斯山脉，德国 (© JFL Photography/Adobe Stock)
+
+![](20240105_AlpsReflecting_1920x1080.jpg)
+
 #### 20240104 Klosterkirche St. Peter auf dem Schwarzwald, Südschwarzwald, Baden-Württemberg (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](20240104_StPeterMonastery_1920x1080.jpg)
