@@ -1,4 +1,4 @@
-#### 20240105 ハルビン氷祭り, 中国 (© WANG ZHAO/AFP/Getty Images)
+#### 20240105 International Ice and Snow Sculpture Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)
 
 ![](images/2024-01/20240105_HarbinFestival_1920x1080.jpg)
 
