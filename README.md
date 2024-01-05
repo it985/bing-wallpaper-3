@@ -1,3 +1,7 @@
+#### 20240106 冬天，雄性苍头燕雀栖息在海棠果树上 (© Mark Hamblin/2020VISION/Minden Pictures)
+
+![](images/2024-01/20240106_CrabappleChaffinch_1920x1080.jpg)
+
 #### 20240105 International Ice and Snow Sculpture Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)
 
 ![](images/2024-01/20240105_HarbinFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20231230 Daiichi Tadami River Bridge, Fukushima prefecture, Japan (© DoctorEgg/Getty Images)
 
 ![](images/2023-12/20231230_TadamiWinter_1920x1080.jpg)
-
-#### 20231230 卡塞里格石圈，湖区国家公园 ，坎布里亚，英国 (© John Finney Photography/Getty Images)
-
-![](images/2023-12/20231230_CastleriggStoneCircleUK_1920x1080.jpg)
 
 
 
