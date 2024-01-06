@@ -1,8 +1,12 @@
+#### 20240106 Vermilion Lakes, Banff, Canada (© Carlos Fernandez/Moment/Getty Images)
+
+![](images/2024-01/20240106_VermilionLakesCA_1920x1080.jpg)
+
 #### 20240106 Antilles françaises, Guadeloupe, brume sur le volcan de la Soufrière (© Walter Bibikow/Getty Images)
 
 ![](images/2024-01/20240106_GuadeloupeCarnival_1920x1080.jpg)
 
-#### 20240106 冬天，雄性苍头燕雀栖息在海棠果树上 (© Mark Hamblin/2020VISION/Minden Pictures)
+#### 20240106 Male chaffinch perched on a crab apple tree in winter (© Mark Hamblin/2020VISION/Minden Pictures)
 
 ![](images/2024-01/20240106_CrabappleChaffinch_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20231231 Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)
 
 ![](images/2023-12/20231231_ThailandNewYears_1920x1080.jpg)
-
-#### 20231231 増上寺の梵鐘, 東京 (© kanzilyou/Adobe Stock)
-
-![](images/2023-12/20231231_Omisoka_1920x1080.jpg)
 
 
 

@@ -1,8 +1,12 @@
+#### 20240106 Vermilion Lakes, Banff, Canada (© Carlos Fernandez/Moment/Getty Images)
+
+![](20240106_VermilionLakesCA_1920x1080.jpg)
+
 #### 20240106 Antilles françaises, Guadeloupe, brume sur le volcan de la Soufrière (© Walter Bibikow/Getty Images)
 
 ![](20240106_GuadeloupeCarnival_1920x1080.jpg)
 
-#### 20240106 冬天，雄性苍头燕雀栖息在海棠果树上 (© Mark Hamblin/2020VISION/Minden Pictures)
+#### 20240106 Male chaffinch perched on a crab apple tree in winter (© Mark Hamblin/2020VISION/Minden Pictures)
 
 ![](20240106_CrabappleChaffinch_1920x1080.jpg)
 
