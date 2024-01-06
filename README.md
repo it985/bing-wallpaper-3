@@ -1,3 +1,7 @@
+#### 20240107 魔鬼大理石保护区，澳大利亚 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](images/2024-01/20240107_DevilsMarbles_1920x1080.jpg)
+
 #### 20240106 Vermilion Lakes, Banff, Canada (© Carlos Fernandez/Moment/Getty Images)
 
 ![](images/2024-01/20240106_VermilionLakesCA_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240101 Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)
 
 ![](images/2024-01/20240101_SleepingFox_1920x1080.jpg)
-
-#### 20231231 Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)
-
-![](images/2023-12/20231231_ThailandNewYears_1920x1080.jpg)
 
 
 

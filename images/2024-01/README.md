@@ -1,3 +1,7 @@
+#### 20240107 魔鬼大理石保护区，澳大利亚 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](20240107_DevilsMarbles_1920x1080.jpg)
+
 #### 20240106 Vermilion Lakes, Banff, Canada (© Carlos Fernandez/Moment/Getty Images)
 
 ![](20240106_VermilionLakesCA_1920x1080.jpg)
