@@ -1,3 +1,7 @@
+#### 20240108 贝尔尼纳山口的滑雪场，格劳宾登州，瑞士 (© Francesco Bergamaschi/Getty Images)
+
+![](20240108_BerninaPass_1920x1080.jpg)
+
 #### 20240107 Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](20240107_DevilsMarbles_1920x1080.jpg)
