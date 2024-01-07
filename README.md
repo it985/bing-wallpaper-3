@@ -1,4 +1,4 @@
-#### 20240107 魔鬼大理石保护区，澳大利亚 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+#### 20240107 Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2024-01/20240107_DevilsMarbles_1920x1080.jpg)
 
