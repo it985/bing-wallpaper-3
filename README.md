@@ -1,4 +1,4 @@
-#### 20240108 贝尔尼纳山口的滑雪场，格劳宾登州，瑞士 (© Francesco Bergamaschi/Getty Images)
+#### 20240108 Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)
 
 ![](images/2024-01/20240108_BerninaPass_1920x1080.jpg)
 
