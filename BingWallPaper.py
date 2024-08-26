@@ -4,6 +4,7 @@ import json
 import os
 import re
 import shutil
+import sys
 
 import requests
 
@@ -96,7 +97,7 @@ def find_newest_images(count=20):
     return images_map
 
 
-def update_main_readme():
+def update_main_readme(is_archive=False):
     month_list = sorted(os.listdir(base_dir), reverse=True)
     found_change_path = []
     show_count = 15
@@ -128,23 +129,40 @@ def update_main_readme():
             md_content += '- ' + last_year
         md_content += '&emsp;&emsp;[' + month[5:7] + '](' + base_dir + '/' + month + '/README.md) '
     md_content += '\n\n'
-    for old_year in range(int(last_year) - 1, 2009, -1):
-        md_content += '- ' + str(old_year)
-        for old_month in range(12, 0, -1):
-            old_month_str = '{0:02d}'.format(old_month)
-            old_url = 'https://github.com/janonden/bing-wallpaper/blob/{0}/images/{0}-{1}/README.md' \
-                .format(old_year, old_month_str)
-            md_content += '&emsp;&emsp;[' + str(old_month_str) + '](' + old_url + ') '
-        md_content += '\n\n'
+    if not is_archive:
+        for old_year in range(int(last_year) - 1, 2009, -1):
+            md_content += '- ' + str(old_year)
+            for old_month in range(12, 0, -1):
+                old_month_str = '{0:02d}'.format(old_month)
+                old_url = 'https://github.com/janonden/bing-wallpaper/blob/{0}/images/{0}-{1}/README.md' \
+                    .format(old_year, old_month_str)
+                md_content += '&emsp;&emsp;[' + str(old_month_str) + '](' + old_url + ') '
+            md_content += '\n\n'
     with codecs.open('README.md', "w", "UTF-8") as out_file:
         print('update README.md')
         out_file.write(md_content)
 
 
+def archive_last_year(last_year):
+    if len(last_year) == 0:
+        return
+    print('Archive ' + last_year)
+    month_list = sorted(os.listdir(base_dir), reverse=True)
+    for month_dir in month_list:
+        if not month_dir.startswith(last_year):
+            shutil.rmtree(os.path.join(base_dir, month_dir))
+    if len(os.listdir(base_dir)) == 0:
+        return
+    update_main_readme(is_archive=True)
+
+
 if __name__ == '__main__':
-    newest_images_map = find_newest_images()
-    is_update = False
-    for cc in ['us', 'uk', 'au', 'cn', 'jp', 'de', 'ca', 'fr']:
-        is_update = download_from_bing(newest_images_map, cc) or is_update
-    if is_update or not os.path.exists('README.md'):
-        update_main_readme()
+    if len(sys.argv) >= 3 and 'archive' == sys.argv[1]:
+        archive_last_year(sys.argv[2])
+    else:
+        newest_images_map = find_newest_images()
+        is_update = False
+        for cc in ['us', 'uk', 'au', 'cn', 'jp', 'de', 'ca', 'fr']:
+            is_update = download_from_bing(newest_images_map, cc) or is_update
+        if is_update or not os.path.exists('README.md'):
+            update_main_readme()
