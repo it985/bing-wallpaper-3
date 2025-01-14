@@ -10,7 +10,7 @@
 
 ![](20250114_MuseumCourt_1920x1080.jpg)
 
-#### 20250113 Cottage with Tŵr Mawr Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)
+#### 20250113 Cottage with Tŵr Bach Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)
 
 ![](20250113_CoastalWales_1920x1080.jpg)
 
