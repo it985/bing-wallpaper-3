@@ -1,3 +1,7 @@
+#### 20250208 梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚 (© photoaliona/Getty Images)
+
+![](20250208_SnowySvaneti_1920x1080.jpg)
+
 #### 20250207 Pyramide du Louvre, Paris, France (© Andriy Kravchenko/Alamy Stock Photo)
 
 ![](20250207_LouvreRainyDay_1920x1080.jpg)

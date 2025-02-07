@@ -1,3 +1,7 @@
+#### 20250208 梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚 (© photoaliona/Getty Images)
+
+![](images/2025-02/20250208_SnowySvaneti_1920x1080.jpg)
+
 #### 20250207 Pyramide du Louvre, Paris, France (© Andriy Kravchenko/Alamy Stock Photo)
 
 ![](images/2025-02/20250207_LouvreRainyDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250201 National Museum of African American History & Culture, Washington, DC (© BrianPIrwin/Shutterstock)
 
 ![](images/2025-02/20250201_AfricanMuseumDC_1920x1080.jpg)
-
-#### 20250131 Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)
-
-![](images/2025-01/20250131_PlainsZebra_1920x1080.jpg)
 
 
 
