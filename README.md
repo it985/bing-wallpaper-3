@@ -1,3 +1,7 @@
+#### 20250207 Pyramide du Louvre, Paris, France (© Andriy Kravchenko/Alamy Stock Photo)
+
+![](images/2025-02/20250207_LouvreRainyDay_1920x1080.jpg)
+
 #### 20250207 特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images)
 
 ![](images/2025-02/20250207_BlueNorway_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250131 Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)
 
 ![](images/2025-01/20250131_PlainsZebra_1920x1080.jpg)
-
-#### 20250130 Prioro, Castile and León, Spain (© Ruben Earth/Getty Images)
-
-![](images/2025-01/20250130_PrioroWinter_1920x1080.jpg)
 
 
 

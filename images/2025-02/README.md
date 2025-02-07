@@ -1,3 +1,7 @@
+#### 20250207 Pyramide du Louvre, Paris, France (© Andriy Kravchenko/Alamy Stock Photo)
+
+![](20250207_LouvreRainyDay_1920x1080.jpg)
+
 #### 20250207 特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images)
 
 ![](20250207_BlueNorway_1920x1080.jpg)
