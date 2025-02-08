@@ -1,4 +1,4 @@
-#### 20250208 梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚 (© photoaliona/Getty Images)
+#### 20250208 Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)
 
 ![](20250208_SnowySvaneti_1920x1080.jpg)
 
