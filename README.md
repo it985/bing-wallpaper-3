@@ -1,3 +1,7 @@
+#### 20250209 阿尔斯特罗姆角，鲍威尔湖，犹他州，美国 (© T.M. Schultze/TANDEM Stills + Motion)
+
+![](images/2025-02/20250209_AlstromPoint_1920x1080.jpg)
+
 #### 20250208 Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)
 
 ![](images/2025-02/20250208_SnowySvaneti_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250201 Cerf élaphe, forêt de Rambouillet,  Île-de-France (© Nicolas Le Boulanger/500px/Getty Image)
 
 ![](images/2025-02/20250201_DeerForest_1920x1080.jpg)
-
-#### 20250201 National Museum of African American History & Culture, Washington, DC (© BrianPIrwin/Shutterstock)
-
-![](images/2025-02/20250201_AfricanMuseumDC_1920x1080.jpg)
 
 
 
