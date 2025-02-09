@@ -1,3 +1,7 @@
+#### 20250210 雨伞艺术装置，博罗市场，伦敦，英国 (© Malcolm P Chapman/Getty Images)
+
+![](images/2025-02/20250210_UmbrellaDay_1920x1080.jpg)
+
 #### 20250209 Leonardo Glass Cube, Bad Driburg, Nordrhein-Westfalen (© Nathan Willock-VIEW/Alamy Stock Foto)
 
 ![](images/2025-02/20250209_LeonardoGlassCubeBadDriburg_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250201 Golden Bridge, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)
 
 ![](images/2025-02/20250201_GoldenBridge_1920x1080.jpg)
-
-#### 20250201 国王岩堡垒 , 瑞士撒克逊, 德国 (© Bildagentur-online/Exss/Alamy)
-
-![](images/2025-02/20250201_FestungKonigsteinElbsandsteingebirge_1920x1080.jpg)
 
 
 

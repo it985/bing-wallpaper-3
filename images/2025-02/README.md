@@ -1,3 +1,7 @@
+#### 20250210 雨伞艺术装置，博罗市场，伦敦，英国 (© Malcolm P Chapman/Getty Images)
+
+![](20250210_UmbrellaDay_1920x1080.jpg)
+
 #### 20250209 Leonardo Glass Cube, Bad Driburg, Nordrhein-Westfalen (© Nathan Willock-VIEW/Alamy Stock Foto)
 
 ![](20250209_LeonardoGlassCubeBadDriburg_1920x1080.jpg)
