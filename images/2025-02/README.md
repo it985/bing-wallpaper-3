@@ -1,3 +1,7 @@
+#### 20250209 Leonardo Glass Cube, Bad Driburg, Nordrhein-Westfalen (© Nathan Willock-VIEW/Alamy Stock Foto)
+
+![](20250209_LeonardoGlassCubeBadDriburg_1920x1080.jpg)
+
 #### 20250209 阿尔斯特罗姆角，鲍威尔湖，犹他州，美国 (© T.M. Schultze/TANDEM Stills + Motion)
 
 ![](20250209_AlstromPoint_1920x1080.jpg)

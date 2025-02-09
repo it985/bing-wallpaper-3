@@ -1,3 +1,7 @@
+#### 20250209 Leonardo Glass Cube, Bad Driburg, Nordrhein-Westfalen (© Nathan Willock-VIEW/Alamy Stock Foto)
+
+![](images/2025-02/20250209_LeonardoGlassCubeBadDriburg_1920x1080.jpg)
+
 #### 20250209 阿尔斯特罗姆角，鲍威尔湖，犹他州，美国 (© T.M. Schultze/TANDEM Stills + Motion)
 
 ![](images/2025-02/20250209_AlstromPoint_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250201 国王岩堡垒 , 瑞士撒克逊, 德国 (© Bildagentur-online/Exss/Alamy)
 
 ![](images/2025-02/20250201_FestungKonigsteinElbsandsteingebirge_1920x1080.jpg)
-
-#### 20250201 Cerf élaphe, forêt de Rambouillet,  Île-de-France (© Nicolas Le Boulanger/500px/Getty Image)
-
-![](images/2025-02/20250201_DeerForest_1920x1080.jpg)
 
 
 
