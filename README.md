@@ -2,7 +2,7 @@
 
 ![](images/2025-02/20250209_LeonardoGlassCubeBadDriburg_1920x1080.jpg)
 
-#### 20250209 阿尔斯特罗姆角，鲍威尔湖，犹他州，美国 (© T.M. Schultze/TANDEM Stills + Motion)
+#### 20250209 Alstrom Point, Lake Powell, Utah (© T.M. Schultze/TANDEM Stills + Motion)
 
 ![](images/2025-02/20250209_AlstromPoint_1920x1080.jpg)
 
