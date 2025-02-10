@@ -1,6 +1,10 @@
-#### 20250210 雨伞艺术装置，博罗市场，伦敦，英国 (© Malcolm P Chapman/Getty Images)
+#### 20250210 Art installation of umbrellas at Borough Market in London, England (© Malcolm P Chapman/Getty Images)
 
 ![](20250210_UmbrellaDay_1920x1080.jpg)
+
+#### 20250210 Banff National Park in winter, Alberta, Canada (© Waitforlight/Moment/Getty Images)
+
+![](20250210_BanffSnow_1920x1080.jpg)
 
 #### 20250209 Leonardo Glass Cube, Bad Driburg, Nordrhein-Westfalen (© Nathan Willock-VIEW/Alamy Stock Foto)
 
