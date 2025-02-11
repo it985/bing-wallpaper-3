@@ -1,4 +1,4 @@
-#### 20250211 云冈石窟，大同，山西省，中国 (© Eric Yang/Getty Images)
+#### 20250211 Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)
 
 ![](images/2025-02/20250211_YungangGrottoes_1920x1080.jpg)
 
